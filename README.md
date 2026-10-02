@@ -13,6 +13,7 @@ There is nothing to install and no dependencies: just Node.js. Your Bible text s
   - Click a result to jump to the verse, which is highlighted along with your search terms.
 - **Dictionary lookup.** Select a word in the text and its definition opens in a side panel. If the word appears in more than one entry (for example *Moses* and *Law of Moses*), every matching entry is shown.
 - **Scripture links.** References inside dictionary definitions, such as `(Gen. 45:17-25)` or `Job 28:22; 31:12`, are clickable and open that verse in the reader. Only text that starts with a real book name or abbreviation is linked.
+- **Cross-references.** A "(See BANQUET ; MEALS .)" note in a definition becomes one link per entry; clicking a link opens that dictionary entry in the same panel.
 - **Bookmarks.** Click a verse number to bookmark it (click again to remove). The Bookmarks tab lists them in Bible order; click one to jump to it.
 - **Notes.** Highlight any passage (even across several verses), click **Add note**, and write a private note in Markdown. Highlighted passages stay marked in the text; click one to edit its note. The Notes tab lists every note with its passage, and **Export all as .md** downloads them in one file.
 - **Shareable positions.** The URL hash (`#<bookId>:<line>`) is bookmarkable in your browser.

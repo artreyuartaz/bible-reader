@@ -474,9 +474,28 @@ function selectedWord() {
   const w = sel.toString().trim().replace(/^[^\p{L}]+|[^\p{L}]+$/gu, '').replace(/[’`]s$/, "'s");
   return w.length > 1 && w.length <= 40 && /^[\p{L}'’`-]+( [\p{L}'’`-]+){0,2}$/u.test(w) ? w : '';
 }
-async function lookup() {
+// "(See BANQUET ; MEALS .)" → each upper-case item becomes a link that opens that dictionary entry
+const SEE_RE = /\((See|see)\s+([^()<]*)\)/g;
+const SEE_ITEM_RE = /^(\s*)([A-Z][A-Z0-9 -]*[A-Z0-9])(\s*\.?\s*)$/;
+function linkSee(escaped) {
+  return escaped.replace(SEE_RE, (all, see, list) => {
+    const parts = list.split(';').map(s => SEE_ITEM_RE.exec(s));
+    if (parts.some(m => !m)) return all;
+    return `(${see} ` + parts.map(m => `${m[1]}<a class="see" href="#" data-w="${m[2]}">${m[2]}</a>${m[3]}`).join(';') + ')';
+  });
+}
+$('dictBody').addEventListener('click', e => {
+  const a = e.target.closest('a.see');
+  if (!a) return;
+  e.preventDefault();
+  showDefinition(a.dataset.w);
+});
+function lookup() {
   const w = selectedWord();
   if (!w || w.toLowerCase() === lastWord) return;
+  showDefinition(w);
+}
+async function showDefinition(w) {
   lastWord = w.toLowerCase();
   const id = ++defId;
   const data = await (await fetch('/api/define?w=' + encodeURIComponent(w))).json();
@@ -486,7 +505,7 @@ async function lookup() {
   if (!data.total) body.innerHTML = `<div class="status">No dictionary entry for “${esc(w)}”.</div>`;
   else {
     body.innerHTML = (data.total > data.entries.length ? `<div class="status">Showing ${data.entries.length} of ${data.total} entries</div>` : '')
-      + data.entries.map(e => `<h3>${esc(e.name)}</h3>` + e.text.split(/\n\s*\n/).map(p => `<p>${linkRefs(esc(p.trim()))}</p>`).join('')).join('');
+      + data.entries.map(e => `<h3>${esc(e.name)}</h3>` + e.text.split(/\n\s*\n/).map(p => `<p>${linkSee(linkRefs(esc(p.trim())))}</p>`).join('')).join('');
   }
   body.scrollTop = 0;
   $('dict').hidden = false;
