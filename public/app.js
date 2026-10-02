@@ -488,19 +488,25 @@ $('dictBody').addEventListener('click', e => {
   const a = e.target.closest('a.see');
   if (!a) return;
   e.preventDefault();
+  if (lastWord) defHistory.push(shownWord);
   showDefinition(a.dataset.w);
 });
+$("dictBack").onclick = () => { if (defHistory.length) showDefinition(defHistory.pop()); };
 function lookup() {
   const w = selectedWord();
   if (!w || w.toLowerCase() === lastWord) return;
+  defHistory.length = 0;
   showDefinition(w);
 }
+let defHistory = [], shownWord = "";
 async function showDefinition(w) {
   lastWord = w.toLowerCase();
+  shownWord = w;
   const id = ++defId;
   const data = await (await fetch('/api/define?w=' + encodeURIComponent(w))).json();
   if (id !== defId) return;
   $('dictTitle').textContent = w;
+  $('dictBack').hidden = !defHistory.length;
   const body = $('dictBody');
   if (!data.total) body.innerHTML = `<div class="status">No dictionary entry for “${esc(w)}”.</div>`;
   else {
@@ -513,7 +519,7 @@ async function showDefinition(w) {
 $('doc').addEventListener('mouseup', () => setTimeout(lookup, 0));
 $('doc').addEventListener('touchend', () => setTimeout(lookup, 400));
 $('doc').addEventListener('mousedown', () => { lastWord = ''; });
-$('dictClose').onclick = () => { $('dict').hidden = true; lastWord = ''; };
+$('dictClose').onclick = () => { $('dict').hidden = true; lastWord = ''; defHistory.length = 0; };
 
 // ---------- Wiring ----------
 $('q').oninput = scheduleSearch;
