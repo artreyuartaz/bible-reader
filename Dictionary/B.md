@@ -1,0 +1,1181 @@
+# B
+
+## Baal
+
+lord. (1.) The name appropriated to the principal male god of the Phoenicians. It is found in several places in the plural BAALIM (Judg. 2:11; 10:10; 1 Kings 18:18; Jer. 2:23; Hos. 2:17). Baal is identified with Molech (Jer. 19:5). It was known to the Israelites as Baal-peor (Num. 25:3; Deut. 4:3), was worshipped till the time of Samuel (1 Sam 7:4), and was afterwards the religion of the ten tribes in the time of Ahab (1 Kings 16:31-33; 18:19, 22). It prevailed also for a time in the kingdom of Judah (2 Kings 8:27; comp. 11:18; 16:3; 2 Chr. 28:2), till finally put an end to by the severe discipline of the Captivity (Zeph. 1:4-6). The priests of Baal were in great numbers (1 Kings 18:19), and of various classes (2 Kings 10:19). Their mode of offering sacrifices is described in 1 Kings 18:25-29. The sun-god, under the general title of Baal, or "lord," was the chief object of worship of the Canaanites. Each locality had its special Baal, and the various local Baals were summed up under the name of Baalim, or "lords." Each Baal had a wife, who was a colourless reflection of himself.    (2.) A Benjamite, son of Jehiel, the progenitor of the Gibeonites (1 Chr. 8:30; 9:36).    (3.) The name of a place inhabited by the Simeonites, the same probably as Baal-ath-beer (1 Chr. 4:33; Josh. 19:8).
+
+## Baalah
+
+mistress; city. (1.) A city in the south of Judah (Josh. 15:29), elsewhere called Balah (Josh. 19:3) and Bilhah (1 Chr. 4:29). Now Khurbet Zebalah.    (2.) A city on the northern border of the tribe of Judah (Josh. 15:10), called also Kirjath-jearim, q.v. (15:9; 1 Chr. 13:6), now Kuriet-el-Enab, or as some think, `Erma.    (3.) A mountain on the north-western boundary of Judah and Dan (Josh. 15:11).
+
+## Baalath
+
+a town of the tribe of Dan (Josh. 19:44). It was fortified by Solomon (1 Kings 9:18; 2 Chr. 8:6). Some have identified it with Bel`ain, in Wady Deir Balut.
+
+## Baalath-beer
+
+Baalah of the well, (Josh. 19:8, probably the same as Baal, mentioned in 1 Chr. 4:33, a city of Simeon.
+
+## Baalbec
+
+called by the Greeks Heliopolis i.e., "the city of the sun", because of its famous Temple of the Sun, has by some been supposed to be Solomon`s "house of the forest of Lebanon" (1 Kings 7:2; 10:17; 2 Chr. 9:16); by others it is identified with Baal-gad (q.v.). It was a city of Coele-Syria, on the lowest declivity of Anti-Libanus, about 42 miles north-west of Damascus. It was one of the most splendid of Syrian cities, existing from a remote antiquity. After sustaining several sieges under the Moslems and others, it was finally destroyed by an earthquake in 1759. Its ruins are of great extent.
+
+## Baal-berith
+
+covenant lord, the name of the god worshipped in Shechem after the death of Gideon (Judg. 8:33; 9:4). In 9:46 he is called simply "the god Berith." The name denotes the god of the covenant into which the Israelites entered with the Canaanites, contrary to the command of Jehovah (Ex. 34:12), when they began to fall away to the worship of idols.
+
+## Baale of Judah
+
+lords of Judah, a city in the tribe of Judah from which David brought the ark into Jerusalem (2 Sam. 6:2). Elsewhere (1 Chr. 13:6) called Kirjath-jearim. (See BAALAH .)
+
+## Baal-gad
+
+lord of fortune, or troop of Baal, a Canaanite city in the valley of Lebanon at the foot of Hermon, hence called Baal-hermon (Judge. 3:3; 1 Chr. 5:23), near the source of the Jordan (Josh. 13:5; 11:17; 12:7). It was the most northern point to which Joshua`s conquests extended. It probably derived its name from the worship of Baal. Its modern representative is Banias. Some have supposed it to be the same as Baalbec.
+
+## Baal-hamon
+
+place of a multitude, a place where Solomon had an extensive vineyard (Cant. 8:11). It has been supposed to be identical with Baal-gad, and also with Hammon in the tribe of Asher (Josh. 19:28). Others identify it with Belamon, in Central Palestine, near Dothaim.
+
+## Baal-hanan
+
+lord of grace. (1.) A king of Edom, son of Achbor (Gen. 36:38, 39; 1 Chr. 1:49, 50).    (2.) An overseer of "the olive trees and sycomore trees in the low plains" (the Shephelah) under David (1 Chr. 27:28).
+
+## Baal-hazor
+
+having a courtyard, or Baal`s village, the place on the borders of Ephraim and Benjamin where Absalom held the feast of sheep-shearing when Amnon was assassinated (2 Sam. 13:23). Probably it is the same with Hazor (Neh. 11:33), now Tell` Asur, 5 miles north-east of Bethel.
+
+## Baal-hermon
+
+lord of Hermon. (1.) A city near Mount Hermon inhabited by the Ephraimites (1 Chr. 5:23). Probably identical with Baal-gad (Josh. 11:17).    (2.) A mountain east of Lebanon (Judg. 3:3). Probably it may be the same as Mount Hermon, or one of its three peaks.
+
+## Baali
+
+my lord, a title the prophet (Hos. 2:16) reproaches the Jewish church for applying to Jehovah, instead of the more endearing title Ishi, meaning "my husband."
+
+## Baalim
+
+plural of Baal; images of the god Baal (Judg. 2:11; 1 Sam. 7:4).
+
+## Baalis
+
+king of the Ammonites at the time of the Babylonian captivity (Jer. 40:14). He hired Ishmael to slay Gedaliah who had been appointed governor over the cities of Judah.
+
+## Baal-meon
+
+lord of dwelling, a town of Reuben (Num. 32:38), called also Beth-meon (Jer. 48:23) and Beth-baal-meon (Josh. 13:17). It is supposed to have been the birth-place of Elisha. It is identified with the modern M`ain, about 3 miles south-east of Heshbon.
+
+## Baal-peor
+
+lord of the opening, a god of the Moabites (Num. 25:3; 31:16; Josh. 22:17), worshipped by obscene rites. So called from Mount Peor, where this worship was celebrated, the Baal of Peor. The Israelites fell into the worship of this idol (Num. 25:3, 5, 18; Deut. 4:3; Ps. 106:28; Hos. 9:10).
+
+## Baal-perazim
+
+Baal having rents, bursts, or destructions, the scene of a victory gained by David over the Philistines (2 Sam. 5:20; 1 Chr. 14:11). Called Mount Perazim (Isa. 28:21). It was near the valley of Rephaim, west of Jerusalem. Identified with the modern Jebel Aly.
+
+## Baal-shalisha
+
+lord of Shalisha, a place from which a man came with provisions for Elisha, apparently not far from Gilgal (2 Kings 4:42). It has been identified with Sirisia, 13 miles north of Lydda.
+
+## Baal-tamar
+
+lord of palm trees, a place in the tribe of Benjamin near Gibeah of Saul (Judg. 20:33). It was one of the sanctuaries or groves of Baal. Probably the palm tree of Deborah (Judg. 4:5) is alluded to in the name.
+
+## Baal-zebub
+
+fly-lord, the god of the Philistines at Ekron (2 Kings 1:2, 3, 16). This name was given to the god because he was supposed to be able to avert the plague of flies which in that region was to be feared. He was consulted by Ahaziah as to his recovery.
+
+## Baal-zephon
+
+Baal of the north, an Egyptian town on the shores of the Gulf of Suez (Ex. 14:2; Num. 33:7), over against which the children of Israel encamped before they crossed the Red Sea. It is probably to be identified with the modern Jebel Deraj or Kulalah, on the western shore of the Gulf of Suez. Baal-zapuna of the Egyptians was a place of worship.
+
+## Baana
+
+son of affliction. (1.) One of Solomon`s purveyors (1 Kings 4:12).    (2.) Son of Hushai, another of Solomon`s purveyors (1 Kings 4:16).    (3.) Father of Zadok (Neh. 3:4).
+
+## Baanah
+
+son of affliction. (1.) One of the two sons of Rimmon the Beerothite, a captain in Saul`s army. He and his brother Rechab assassinated Ishbosheth (2 Sam. 4:2), and were on this account slain by David, and their mutilated bodies suspended over the pool at Hebron (5, 6, 12).    (2.) The father of Heled, who was one of David`s thirty heroes (2 Sam. 23:29; 1 Chr. 11:30).
+
+## Baasha
+
+bravery, the third king of the separate kingdom of Israel, and founder of its second dynasty (1 Kings 15; 16; 2 Chr. 16:1-6). He was the son of Ahijah of the tribe of Issachar. The city of Tirzah he made the capital of his kingdom, and there he was buried, after an eventful reign of twenty-four years (1 Kings 15:33). On account of his idolatries his family was exterminated, according to the word of the prophet Jehu (1 Kings 16:3, 4, 10-13).
+
+## Babe
+
+used of children generally (Matt. 11:25; 21:16; Luke 10:21; Rom. 2:20). It is used also of those who are weak in Christian faith and knowledge (1 Cor. 3:1; Heb. 5:13; 1 Pet. 2:2). In Isa. 3:4 the word "babes" refers to a succession of weak and wicked princes who reigned over Judah from the death of Josiah downward to the destruction of Jerusalem.
+
+## Babel, tower of
+
+the name given to the tower which the primitive fathers of our race built in the land of Shinar after the Deluge (Gen. 11:1-9). Their object in building this tower was probably that it might be seen as a rallying-point in the extensive plain of Shinar, to which they had emigrated from the uplands of Armenia, and so prevent their being scattered abroad. But God interposed and defeated their design by condounding their language, and hence the name Babel, meaning "confusion." In the Babylonian tablets there is an account of this event, and also of the creation and the deluge. (See CHALDEA .)    The Temple of Belus, which is supposed to occupy its site, is described by the Greek historian Herodotus as a temple of great extent and magnificence, erected by the Babylonians for their god Belus. The treasures Nebuchadnezzar brought from Jerusalem were laid up in this temple (2 Chr. 36:7).    The Birs Nimrud, at ancient Borsippa, about 7 miles south-west of Hillah, the modern town which occupies a part of the site of ancient Babylon, and 6 miles from the Euphrates, is an immense mass of broken and fire-blasted fragments, of about 2,300 feet in circumference, rising suddenly to the height of 235 feet above the desert-plain, and is with probability regarded as the ruins of the tower of Babel. This is "one of the most imposing ruins in the country." Others think it to be the ruins of the Temple of Belus.
+
+## Babylon
+
+the Greek form of BABEL; Semitic form Babilu, meaning "The Gate of God." In the Assyrian tablets it means "The city of the dispersion of the tribes." The monumental list of its kings reaches back to B.C. 2300, and includes Khammurabi, or Amraphel (q.v.), the contemporary of Abraham. It stood on the Euphrates, about 200 miles above its junction with the Tigris, which flowed through its midst and divided it into two almost equal parts. The Elamites invaded Chaldea (i.e., Lower Mesopotamia, or Shinar, and Upper Mesopotamia, or Accad, now combined into one) and held it in subjection. At length Khammu-rabi delivered it from the foreign yoke, and founded the new empire of Chaldea (q.v.), making Babylon the capital of the united kingdom. This city gradually grew in extent and grandeur, but in process of time it became subject to Assyria. On the fall of Nineveh (B.C. 606) it threw off the Assyrian yoke, and became the capital of the growing Babylonian empire. Under Nebuchadnezzar it became one of the most splendid cities of the ancient world.    After passing through various vicissitudes the city was occupied by Cyrus, "king of Elam," B.C. 538, who issued a decree permitting the Jews to return to their own land (Ezra 1). It then ceased to be the capital of an empire. It was again and again visited by hostile armies, till its inhabitants were all driven from their homes, and the city became a complete desolation, its very site being forgotten from among men.    On the west bank of the Euphrates, about 50 miles south of Bagdad, there is found a series of artificial mounds of vast extent. These are the ruins of this once famous proud city. These ruins are principally (1) the great mound called Babil by the Arabs. This was probably the noted Temple of Belus, which was a pyramid about 480 feet high. (2) The Kasr (i.e., "the palace"). This was the great palace of Nebuchadnezzar. It is almost a square, each side of which is about 700 feet long. The little town of Hillah, near the site of Babylon, is built almost wholly of bricks taken from this single mound. (3) A lofty mound, on the summit of which stands a modern tomb called Amran ibn-Ali. This is probably the most ancient portion of the remains of the city, and represents the ruins of the famous hanging-gardens, or perhaps of some royal palace. The utter desolation of the city once called "The glory of kingdoms" (Isa.13:19) was foretold by the prophets (Isa.13:4-22; Jer. 25:12; 50:2, 3; Dan. 2:31-38).    The Babylon mentioned in 1 Pet. 5:13 was not Rome, as some have thought, but the literal city of Babylon, which was inhabited by many Jews at the time Peter wrote.    In Rev. 14:8; 16:19; 17:5; and 18:2, "Babylon" is supposed to mean Rome, not considered as pagan, but as the prolongation of the ancient power in the papal form. Rome, pagan and papal, is regarded as one power. "The literal Babylon was the beginner and supporter of tyranny and idolatry...This city and its whole empire were taken by the Persians under Cyrus; the Persians were subdued by the Macedonians, and the Macedonians by the Romans; so that Rome succeeded to the power of old Babylon. And it was her method to adopt the worship of the false deities she had conquered; so that by her own act she became the heiress and successor of all the Babylonian idolatry, and of all that was introduced into it by the immediate successors of Babylon, and consequently of all the idolatry of the earth." Rome, or "mystical Babylon," is "that great city which reigneth over the kings of the earth" (17:18).
+
+## Babylonish garment
+
+a robe of rich colours fabricated at Babylon, and hence of great value (Josh.7:21).
+
+## Babylon, kingdom of
+
+called "the land of the Chaldeans" (Jer. 24:5; Ezek, 12:13), was an extensive province in Central Asia along the valley of the Tigris from the Persian Gulf northward for some 300 miles. It was famed for its fertility and its riches. Its capital was the city of Babylon, a great commercial centre (Ezek. 17:4; Isa. 43:14). Babylonia was divided into the two districts of Accad in the north, and Summer (probably the Shinar of the Old Testament) in the south. Among its chief cities may be mentioned Ur (now Mugheir or Mugayyar), on the western bank of the Euphrates; Uruk, or Erech (Gen. 10:10) (now Warka), between Ur and Babylon; Larsa (now Senkereh), the Ellasar of Gen. 14:1, a little to the east of Erech; Nipur (now Niffer), south-east of Babylon; Sepharvaim (2 Kings 17:24), "the two Sipparas" (now Abu-Habba), considerably to the north of Babylon; and Eridu, "the good city" (now Abu-Shahrein), which lay originally on the shore of the Persian Gulf, but is now, owing to the silting up of the sand, about 100 miles distant from it. Another city was Kulunu, or Calneh (Gen. 10:10).    The salt-marshes at the mouths of the Euphrates and Tigris were called Marratu, "the bitter" or "salt", the Merathaim of Jer. 50:21. They were the original home of the Kalda, or Chaldeans.    The most famous of the early kings of Babylonia were Sargon of Accad (B.C.3800) and his son, Naram-Sin, who conquered a large part of Western Asia, establishing their power in Palestine, and even carrying their arms to the Sinaitic peninsula. A great Babylonian library was founded in the reign of Sargon. Babylonia was subsequently again broken up into more than one state, and at one time fell under the domination of Elam. This was put an end to by Khammu-rabi (Amraphel), who drove the Elamites out of the country, and overcame Arioch, the son of an Elamite prince. From this time forward Babylonia was a united monarchy. About B.C. 1750 it was conquered by the Kassi, or Kosseans, from the mountains of Elam, and a Kassite dynasty ruled over it for 576 years and 9 months.    In the time of Khammu-rabi, Syria and Palestine were subject to Babylonia and its Elamite suzerain; and after the overthrow of the Elamite supremacy, the Babylonian kings continued to exercise their influence and power in what was called "the land of the Amorites." In the epoch of the Kassite dynasty, however, Canaan passed into the hands of Egypt.    In B.C. 729, Babylonia was conquered by the Assyrian king Tiglath-pileser III.; but on the death of Shalmaneser IV. it was seized by the Kalda or "Chaldean" prince Merodach-baladan (2 Kings 20:12-19), who held it till B.C. 709, when he was driven out by Sargon.    Under Sennacherib, Babylonia revolted from Assyria several times, with the help of the Elamites, and after one of these revolts Babylon was destroyed by Sennacherib, B.C. 689. It was rebuilt by Esarhaddon, who made it his residence during part of the year, and it was to Babylon that Manasseh was brought a prisoner (2 Chr. 33:11). After the death of Esarhaddon, Saul-sumyukin, the viceroy of Babylonia, revolted against his brother the Assyrian king, and the revolt was suppressed with difficulty.    When Nineveh was destroyed, B.C. 606, Nabopolassar, the viceroy of Babylonia, who seems to have been of Chaldean descent, made himself independent. His son Nebuchadrezzar (Nabu-kudur-uzur), after defeating the Egyptians at Carchemish, succeeded him as king, B.C. 604, and founded the Babylonian empire. He strongly fortified Babylon, and adorned it with palaces and other buildings. His son, Evil-merodach, who succeeded him in B.C. 561, was murdered after a reign of two years. The last monarch of the Babylonian empire was Nabonidus (Nabu-nahid), B.C. 555-538, whose eldest son, Belshazzar (Bilu-sar-uzur), is mentioned in several inscriptions. Babylon was captured by Cyrus, B.C. 538, and though it revolted more than once in later years, it never succeeded in maintaining its independence.
+
+## Baca, Valley of
+
+(Ps. 84:6; R.V., "valley of weeping," marg., "or balsam trees"), probably a valley in some part of Palestine, or generally some one of the valleys through which pilgrims had to pass on their way to the sanctuary of Jehovah on Zion; or it may be figuratively "a valley of weeping."
+
+## Backbite
+
+In Ps. 15:3, the rendering of a word which means to run about tattling, calumniating; in Prov. 25:23, secret talebearing or slandering; in Rom. 1:30 and 2 Cor. 12:20, evil-speaking, maliciously defaming the absent.
+
+## Backslide
+
+to draw back or apostatize in matters of religion (Acts 21:21; 2 Thess. 2:3; 1 Tim. 4:1). This may be either partial (Prov. 14:14) or complete (Heb. 6:4-6; 10:38, 39). The apostasy may be both doctrinal and moral.
+
+## Badger
+
+this word is found in Ex. 25:5; 26:14; 35:7, 23; 36:19; 39:34; Num. 4:6, etc. The tabernacle was covered with badgers` skins; the shoes of women were also made of them (Ezek. 16:10). Our translators seem to have been misled by the similarity in sound of the Hebrew _tachash_ and the Latin _taxus_, "a badger." The revisers have correctly substituted "seal skins." The Arabs of the Sinaitic peninsula apply the name _tucash_ to the seals and dugongs which are common in the Red Sea, and the skins of which are largely used as leather and for sandals. Though the badger is common in Palestine, and might occur in the wilderness, its small hide would have been useless as a tent covering. The dugong, very plentiful in the shallow waters on the shores of the Red Sea, is a marine animal from 12 to 30 feet long, something between a whale and a seal, never leaving the water, but very easily caught. It grazes on seaweed, and is known by naturalists as Halicore tabernaculi.
+
+## Bag
+
+(1.) A pocket of a cone-like shape in which Naaman bound two pieces of silver for Gehazi (2 Kings 5:23). The same Hebrew word occurs elsewhere only in Isa. 3:22, where it is rendered "crisping-pins," but denotes the reticules (or as R.V., "satchels") carried by Hebrew women.    (2.) Another word (kees) so rendered means a bag for carrying weights (Deut. 25:13; Prov. 16:11; Micah 6:11). It also denotes a purse (Prov. 1:14) and a cup (23:31).    (3.) Another word rendered "bag" in 1 Sam. 17:40 is rendered "sack" in Gen. 42:25; and in 1 Sam. 9:7; 21:5 "vessel," or wallet for carrying food.    (4.) The word rendered in the Authorized Version "bags," in which the priests bound up the money contributed for the restoration of the temple (2 Kings 12:10), is also rendered "bundle" (Gen. 42:35; 1 Sam. 25:29). It denotes bags used by travellers for carrying money during a journey (Prov. 7:20; Hag. 1:6).    (5.) The "bag" of Judas was a small box (John 12:6; 13:29).
+
+## Bahurim
+
+young men, a place east of Jerusalem (2 Sam. 3:16; 19:16), on the road to the Jordan valley. Here Shimei resided, who poured forth vile abuse against David, and flung dust and stones at him and his party when they were making their way down the eastern slopes of Olivet toward Jordan (16:5); and here Jonathan and Ahimaaz hid themselves (17:18).    With the exception of Shimei, Azmaveth, one of David`s heroes, is the only other native of the place who is mentioned (2 Sam. 23:31; 1 Chr. 11:33).
+
+## Bajith
+
+house, probably a city of Moab, which had a celebrated idol-temple (Isa. 15:2). It has also been regarded as denoting simply the temple of the idol of Moab as opposed to the "high place."
+
+## Bake
+
+The duty of preparing bread was usually, in ancient times, committed to the females or the slaves of the family (Gen. 18:6; Lev. 26:26; 1 Sam. 8:13); but at a later period we find a class of public bakers mentioned (Hos. 7:4, 6; Jer. 37:21).    The bread was generally in the form of long or round cakes (Ex. 29:23; 1 Sam. 2:36), of a thinness that rendered them easily broken (Isa. 58:7; Matt. 14:19; 26:26; Acts 20:11). Common ovens were generally used; at other times a jar was half-filled with hot pebbles, and the dough was spread over them. Hence we read of "cakes baken on the coals" (1 Kings 19:6), and "baken in the oven" (Lev. 2:4). (See BREAD .)
+
+## Bake-meats
+
+baked provisions (Gen. 40:17), literally "works of the baker," such as biscuits and cakes.
+
+## Balaam
+
+lord of the people; foreigner or glutton, as interpreted by others, the son of Beor, was a man of some rank among the Midianites (Num. 31:8; comp. 16). He resided at Pethor (Deut. 23:4), in Mesopotamia (Num. 23:7). It is evident that though dwelling among idolaters he had some knowledge of the true God; and was held in such reputation that it was supposed that he whom he blessed was blessed, and he whom he cursed was cursed. When the Israelites were encamped on the plains of Moab, on the east of Jordan, by Jericho, Balak sent for Balaam "from Aram, out of the mountains of the east," to curse them; but by the remarkable interposition of God he was utterly unable to fulfil Balak`s wish, however desirous he was to do so. The apostle Peter refers (2 Pet. 2:15, 16) to this as an historical event. In Micah 6:5 reference also is made to the relations between Balaam and Balak. Though Balaam could not curse Israel, yet he suggested a mode by which the divine displeasure might be caused to descend upon them (Num. 25). In a battle between Israel and the Midianites (q.v.) Balaam was slain while fighting on the side of Balak (Num. 31:8).    The "doctrine of Balaam" is spoken of in Rev. 2:14, in allusion to the fact that it was through the teaching of Balaam that Balak learned the way by which the Israelites might be led into sin. (See NICOLAITANES .) Balaam was constrained to utter prophecies regarding the future of Israel of wonderful magnificence and beauty of expression (Num. 24:5-9, 17).
+
+## Baladan
+
+he has given a son, the father of the Babylonian king (2 Kings 20:12; Isa. 39:1) Merodach-baladan (q.v.).
+
+## Balah
+
+a city in the tribe of Simeon (Josh. 19:3), elsewhere called Bilhah (1 Chr. 4:29) and Baalah (Josh. 15:29).
+
+## Balak
+
+empty; spoiler, a son of Zippor, and king of the Moabites (Num. 22:2, 4). From fear of the Israelites, who were encamped near the confines of his territory, he applied to Balaam (q.v.) to curse them; but in vain (Josh. 24:9).
+
+## Balance
+
+occurs in Lev. 19:36 and Isa. 46:6, as the rendering of the Hebrew _kanch`_, which properly means "a reed" or "a cane," then a rod or beam of a balance. This same word is translated "measuring reed" in Ezek. 40:3,5; 42:16-18. There is another Hebrew word, _mozena`yim_, i.e., "two poisers", also so rendered (Dan. 5:27). The balances as represented on the most ancient Egyptian monuments resemble those now in use. A "pair of balances" is a symbol of justice and fair dealing (Job 31:6; Ps. 62:9; Prov. 11:1). The expression denotes great want and scarcity in Rev. 6:5.
+
+## Baldness
+
+from natural causes was uncommon (2 Kings 2:23; Isa. 3:24). It was included apparently under "scab" and "scurf," which disqualified for the priesthood (Lev. 21:20). The Egyptians were rarely subject to it. This probably arose from their custom of constantly shaving the head, only allowing the hair to grow as a sign of mourning. With the Jews artificial baldness was a sign of mourning (Isa. 22:12; Jer. 7:29; 16:6); it also marked the conclusion of a Nazarite`s vow (Acts 18:18; 21:24; Num. 6:9). It is often alluded to (Micah 1:16; Amos 8:10; Jer. 47:5). The Jews were forbidden to follow the customs of surrounding nations in making themselves bald (Deut. 14:1).
+
+## Balm
+
+contracted from Bal`sam, a general name for many oily or resinous substances which flow or trickle from certain trees or plants when an incision is made through the bark.    (1.) This word occurs in the Authorized Version (Gen. 37:25; 43:11; Jer. 8:22; 46:11; 51:8; Ezek. 27:17) as the rendering of the Hebrew word _tsori_ or _tseri_, which denotes the gum of a tree growing in Gilead (q.v.), which is very precious. It was celebrated for its medicinal qualities, and was circulated as an article of merchandise by Arab and Phoenician merchants. The shrub so named was highly valued, and was almost peculiar to Palestine. In the time of Josephus it was cultivated in the neighbourhood of Jericho and the Dead Sea. There is an Arab tradition that the tree yielding this balm was brought by the queen of Sheba as a present to Solomon, and that he planted it in his gardens at Jericho.    (2.) There is another Hebrew word, _basam_ or _bosem_, from which our word "balsam," as well as the corresponding Greek balsamon, is derived. It is rendered "spice" (Cant. 5:1, 13; 6:2; margin of Revised Version, "balsam;" Ex. 35:28; 1 Kings 10:10), and denotes fragrance in general. _Basam_ also denotes the true balsam-plant, a native of South Arabia (Cant. l.c.).
+
+## Bamah
+
+a height, a name used simply to denote a high place where the Jews worshipped idols (Ezek. 20:29). The plural is translated "high places" in Num. 22:41 and Ezek. 36:2.
+
+## Bamoth
+
+heights, the forty-seventh station of the Israelites (Num. 21:19,20) in the territory of the Moabites.
+
+## Bamoth-baal
+
+heights of Baal, a place on the river Arnon, or in the plains through which it flows, east of Jordan (Josh. 13:17; comp. Num. 21:28). It has been supposed to be the same place as Bamoth.
+
+## Bands
+
+(1) of love (Hos. 11:4); (2) of Christ (Ps. 2:3); (3) uniting together Christ`s body the church (Col. 2:19; 3:14; Eph. 4:3); (4) the emblem of the captivity of Israel (Ezek. 34:27; Isa. 28:22; 52:2); (5) of brotherhood (Ezek. 37:15-28); (6) no bands to the wicked in their death (Ps. 73:4; Job 21:7; Ps. 10:6). Also denotes chains (Luke 8:29); companies of soldiers (Acts 21:31); a shepherd`s staff, indicating the union between Judah and Israel (Zech. 11:7).
+
+## Bani
+
+built. (1.) 1 Chr. 6:46. (2.) One of David`s thirty-seven warriors, a Gadite (2 Sam. 23:36). (3.) Ezra 2:10; 10:29,34,38. (4.) A Levite who was prominent in the reforms on the return from Babylon (Neh. 8:7; 9:4,5). His son Rehum took part in rebuilding the wall of Jerusalem (Neh. 3:17).
+
+## Banner
+
+(1.) The flag or banner of the larger kind, serving for three tribes marching together. These standards, of which there were four, were worked with embroidery and beautifully ornamented (Num. 1:52; 2:2, 3, 10, 18, 25; Cant. 2:4; 6:4, 10).    (2.) The flag borne by each separate tribe, of a smaller form. Probably it bore on it the name of the tribe to which it belonged, or some distinguishing device (Num. 2:2,34).    (3.) A lofty signal-flag, not carried about, but stationary. It was usually erected on a mountain or other lofty place. As soon as it was seen the war-trumpets were blown (Ps. 60:4; Isa. 5:26; 11:12; 13:2; 18:3; 30:17; Jer. 4:6 21; Ezek. 27:7).    (4.) A "sign of fire" (Jer. 6:1) was sometimes used as a signal.    The banners and ensigns of the Roman army had idolatrous images upon them, and hence they are called the "abomination of desolation" (q.v.). The principal Roman standard, however, was an eagle. (See Matt. 24:28; Luke 17:37, where the Jewish nation is compared to a dead body, which the eagles gather together to devour.)    God`s setting up or giving a banner (Ps. 20:5; 60:4; Cant. 2:4) imports his presence and protection and aid extended to his people.
+
+## Banquet
+
+a feast provided for the entertainment of a company of guests (Esther 5; 7; 1 Pet. 4:3); such as was provided for our Lord by his friends in Bethany (Matt. 26:6; Mark 14:3; comp. John 12:2). These meals were in the days of Christ usually called "suppers," after the custom of the Romans, and were partaken of toward the close of the day. It was usual to send a second invitation (Matt. 22:3; Luke 14:17) to those who had been already invited. When the whole company was assembled, the master of the house shut the door with his own hands (Luke 13:25; Matt. 25:10).    The guests were first refreshed with water and fragrant oil (Luke 7:38; Mark 7:4). A less frequent custom was that of supplying each guest with a robe to be worn during the feast (Eccles. 9:8; Rev. 3:4, 5; Matt. 22:11). At private banquets the master of the house presided; but on public occasions a "governor of the feast" was chosen (John 2:8). The guests were placed in order according to seniority (Gen. 43:33), or according to the rank they held (Prov. 25:6,7; Matt. 23:6; Luke 14:7).    As spoons and knives and forks are a modern invention, and were altogether unknown in the East, the hands alone were necessarily used, and were dipped in the dish, which was common to two of the guests (John 13:26). In the days of our Lord the guests reclined at table; but the ancient Israelites sat around low tables, cross-legged, like the modern Orientals. Guests were specially honoured when extra portions were set before them (Gen. 43:34), and when their cup was filled with wine till it ran over (Ps. 23:5). The hands of the guests were usually cleaned by being rubbed on bread, the crumbs of which fell to the ground, and were the portion for dogs (Matt. 15:27; Luke 16:21).    At the time of the three annual festivals at Jerusalem family banquets were common. To these the "widow, and the fatherless, and the stranger" were welcome (Deut. 16:11). Sacrifices also included a banquet (Ex. 34:15; Judg. 16:23). Birthday banquets are mentioned (Gen. 40:20; Matt. 14:6). They were sometimes protracted, and attended with revelry and excess (Gen. 21:8; 29:22; 1 Sam. 25:2,36; 2 Sam. 13:23). Portions were sometimes sent from the table to poorer friends (Neh. 8:10; Esther 9:19, 22). (See MEALS .)
+
+## Baptism, Christian
+
+an ordinance immediately instituted by Christ (Matt. 28:19, 20), and designed to be observed in the church, like that of the Supper, "till he come." The words "baptize" and "baptism" are simply Greek words transferred into English. This was necessarily done by the translators of the Scriptures, for no literal translation could properly express all that is implied in them.    The mode of baptism can in no way be determined from the Greek word rendered "baptize." Baptists say that it means "to dip," and nothing else. That is an incorrect view of the meaning of the word. It means both (1) to dip a thing into an element or liquid, and (2) to put an element or liquid over or on it. Nothing therefore as to the mode of baptism can be concluded from the mere word used. The word has a wide latitude of meaning, not only in the New Testament, but also in the LXX. Version of the Old Testament, where it is used of the ablutions and baptisms required by the Mosaic law. These were effected by immersion, and by affusion and sprinkling; and the same word, "washings" (Heb. 9:10, 13, 19, 21) or "baptisms," designates them all. In the New Testament there cannot be found a single well-authenticated instance of the occurrence of the word where it necessarily means immersion. Moreover, none of the instances of baptism recorded in the Acts of the Apostles (2:38-41; 8:26-39; 9:17, 18; 22:12-16; 10:44-48; 16:32-34) favours the idea that it was by dipping the person baptized, or by immersion, while in some of them such a mode was highly improbable.    The gospel and its ordinances are designed for the whole world, and it cannot be supposed that a form for the administration of baptism would have been prescribed which would in any place (as in a tropical country or in polar regions) or under any circumstances be inapplicable or injurious or impossible.    Baptism and the Lord`s Supper are the two symbolical ordinances of the New Testament. The Supper represents the work of Christ, and Baptism the work of the Spirit. As in the Supper a small amount of bread and wine used in this ordinance exhibits in symbol the great work of Christ, so in Baptism the work of the Holy Spirit is fully seen in the water poured or sprinkled on the person in the name of the Father, Son, and Holy Ghost. That which is essential in baptism is only "washing with water," no mode being specified and none being necessary or essential to the symbolism of the ordinance.    The apostles of our Lord were baptized with the Holy Ghost (Matt. 3:11) by his coming upon them (Acts 1:8). The fire also with which they were baptized sat upon them. The extraordinary event of Pentecost was explained by Peter as a fulfilment of the ancient promise that the Spirit would be poured out in the last days (2:17). He uses also with the same reference the expression shed forth as descriptive of the baptism of the Spirit (33). In the Pentecostal baptism "the apostles were not dipped into the Spirit, nor plunged into the Spirit; but the Spirit was shed forth, poured out, fell on them (11:15), came upon them, sat on them." That was a real and true baptism. We are warranted from such language to conclude that in like manner when water is poured out, falls, comes upon or rests upon a person when this ordinance is administered, that person is baptized. Baptism is therefore, in view of all these arguments "rightly administered by pouring or sprinkling water upon the person."    The subjects of baptism. This raises questions of greater importance than those relating to its mode.    1. The controversy here is not about "believers` baptism," for that is common to all parties. Believers were baptized in apostolic times, and they have been baptized in all time by all the branches of the church. It is altogether a misrepresentation to allege, as is sometimes done by Baptists, that their doctrine is "believers` baptism." Every instance of adult baptism, or of "believers` baptism," recorded in the New Testament (Acts 2:41; 8:37; 9:17, 18; 10:47; 16:15; 19:5, etc.) is just such as would be dealt with in precisely the same way by all branches of the Protestant Church, a profession of faith or of their being "believers" would be required from every one of them before baptism. The point in dispute is not the baptism of believers, but whether the infant children of believers, i.e., of members of the church, ought to be baptized.    2. In support of the doctrine of infant baptism, i.e., of the baptism of the infants, or rather the "children," of believing parents, the following considerations may be adduced:    The Church of Christ exists as a divinely organized community. It is the "kingdom of God," one historic kingdom under all dispensations. The commonwealth of Israel was the "church" (Acts 7:38; Rom. 9:4) under the Mosaic dispensation. The New Testament church is not a new and different church, but one with that of the Old Testament. The terms of admission into the church have always been the same viz., a profession of faith and a promise of subjection to the laws of the kingdom. Now it is a fact beyond dispute that the children of God`s people under the old dispensation were recognized as members of the church. Circumcision was the sign and seal of their membership. It was not because of carnal descent from Abraham, but as being the children of God`s professing people, that this rite was administered (Rom. 4:11). If children were members of the church under the old dispensation, which they undoubtedly were, then they are members of the church now by the same right, unless it can be shown that they have been expressly excluded. Under the Old Testament parents acted for their children and represented them. (See Gen. 9:9; 17:10; Ex. 24:7, 8; Deut. 29:9-13.) When parents entered into covenant with God, they brought their children with them. This was a law in the Hebrew Church. When a proselyte was received into membership, he could not enter without bringing his children with him. The New Testament does not exclude the children of believers from the church. It does not deprive them of any privilege they enjoyed under the Old Testament. There is no command or statement of any kind, that can be interpreted as giving any countenance to such an idea, anywhere to be found in the New Testament. The church membership of infants has never been set aside. The ancient practice, orginally appointed by God himself, must remain a law of his kingdom till repealed by the same divine authority. There are lambs in the fold of the Good Shepherd (John 21:15; comp. Luke 1:15; Matt. 19:14; 1 Cor. 7:14).    "In a company of converts applying for admission into Christ`s house there are likely to be some heads of families. How is their case to be treated? How, for example, are Lydia and her neighbour the keeper of the city prison to be treated? Both have been converted. Both are heads of families. They desire to be received into the infant church of Philippi. What is Christ`s direction to them? Shall we say that it is to this effect: `Arise, and wash away your sins, and come into my house. But you must come in by yourselves. These babes in your arms, you must leave them outside. They cannot believe yet, and so they cannot come in. Those other little ones by your side, their hearts may perhaps have been touched with the love of God; still, they are not old enough to make a personal profession, so they too must be left outside...For the present you must leave them where they are and come in by yourselves.` One may reasonably demand very stringent proofs before accepting this as a fair representation of the sort of welcome Christ offers to parents who come to his door bringing their children with them. Surely it is more consonant with all we know about him to suppose that his welcome will be more ample in its scope, and will breathe a more gracious tone. Surely it would be more like the Good Shepherd to say, `Come in, and bring your little ones along with you. The youngest needs my salvation; and the youngest is accessible to my salvation. You may be unable as yet to deal with them about either sin or salvation, but my gracious power can find its way into their hearts even now. I can impart to them pardon and a new life. From Adam they have inherited sin and death; and I can so unite them to myself that in me they shall be heirs of righteousness and life. You may without misgiving bring them to me. And the law of my house requires that the same day which witnesses your reception into it by baptism must witness their reception also`" (The Church, by Professor Binnie, D.D.).
+
+## Baptism for the dead
+
+only mentioned in 1 Cor. 15:29. This expression as used by the apostle may be equivalent to saying, "He who goes through a baptism of blood in order to join a glorified church which has no existence [i.e., if the dead rise not] is a fool." Some also regard the statement here as an allusion to the strange practice which began, it is said, to prevail at Corinth, in which a person was baptized in the stead of others who had died before being baptized, to whom it was hoped some of the benefits of that rite would be extended. This they think may have been one of the erroneous customs which Paul went to Corinth to "set in order."
+
+## Baptism, John`s
+
+was not Christian baptism, nor was that which was practised by the disciples previous to our Lord`s crucifixion. Till then the New Testament economy did not exist. John`s baptism bound its subjects to repentance, and not to the faith of Christ. It was not administered in the name of the Trinity, and those whom John baptized were rebaptized by Paul (Acts 18:24; 19:7).
+
+## Baptism of Christ
+
+Christ had to be formally inaugurated into the public discharge of his offices. For this purpose he came to John, who was the representative of the law and the prophets, that by him he might be introduced into his offices, and thus be publicly recognized as the Messiah of whose coming the prophecies and types had for many ages borne witness.    John refused at first to confer his baptism on Christ, for he understood not what he had to do with the "baptism of repentance." But Christ said, "`Suffer it to be so now,` NOW as suited to my state of humiliation, my state as a substitute in the room of sinners." His reception of baptism was not necessary on his own account. It was a voluntary act, the same as his act of becoming incarnate. Yet if the work he had engaged to accomplish was to be completed, then it became him to take on him the likeness of a sinner, and to fulfil all righteousness (Matt. 3:15).    The official duty of Christ and the sinless person of Christ are to be distinguished. It was in his official capacity that he submitted to baptism. In coming to John our Lord virtually said, "Though sinless, and without any personal taint, yet in my public or official capacity as the Sent of God, I stand in the room of many, and bring with me the sin of the world, for which I am the propitiation." Christ was not made under the law on his own account. It was as surety of his people, a position which he spontaneously assumed. The administration of the rite of baptism was also a symbol of the baptism of suffering before him in this official capacity (Luke 12:50). In thus presenting himself he in effect dedicated or consecrated himself to the work of fulfilling all righteousness.
+
+## Bar
+
+used to denote the means by which a door is bolted (Neh. 3:3); a rock in the sea (Jonah 2:6); the shore of the sea (Job 38:10); strong fortifications and powerful impediments, etc. (Isa. 45:2; Amos 1:5); defences of a city (1 Kings 4:13). A bar for a door was of iron (Isa. 45:2), brass (Ps. 107:16), or wood (Nah. 3:13).
+
+## Barabbas
+
+i.e., son of Abba or of a father, a notorious robber whom Pilate proposed to condemn to death instead of Jesus, whom he wished to release, in accordance with the Roman custom (John 18:40; Mark 15:7; Luke 23:19). But the Jews were so bent on the death of Jesus that they demanded that Barabbas should be pardoned (Matt. 27:16-26; Acts 3:14). This Pilate did.
+
+## Barachel
+
+whom God has blessed, a Buzite, the father of Elihu, one of Job`s friends (Job 32:2, 6).
+
+## Barachias, Berechiah
+
+4 (q.v.), whom Jehovah hath blessed, father of the prophet Zechariah (Zech. 1:1,7; Matt. 23:35).
+
+## Barak
+
+lightning, the son of Abinoam (Judg. 4:6). At the summons of Deborah he made war against Jabin. She accompanied him into the battle, and gave the signal for the little army to make the attack; in which the host of Jabin was completely routed. The battle was fought (Judg. 4:16) in the plain of Jezreel (q.v.). This deliverance of Israel is commemorated in Judg. 5. Barak`s faith is commended (Heb. 11:32). "The character of Barak, though pious, does not seem to have been heroic. Like Gideon, and in a sense Samson, he is an illustration of the words in Heb. 11:34, `Out of weakness were made strong.`" (See DEBORAH .)
+
+## Barbarian
+
+a Greek word used in the New Testament (Rom. 1:14) to denote one of another nation. In Col. 3:11, the word more definitely designates those nations of the Roman empire that did not speak Greek. In 1 Cor. 14:11, it simply refers to one speaking a different language. The inhabitants of Malta are so called (Acts 28:1,2, 4). They were originally a Carthaginian colony. This word nowhere in Scripture bears the meaning it does in modern times.
+
+## Barber
+
+Found only once, in Ezek. 5:1, where reference is made to the Jewish custom of shaving the head as a sign of mourning. The Nazarites were untouched by the razor from their birth (Num. 6:5). Comp. Judg. 16:19.
+
+## Barefoot
+
+To go barefoot was a sign of great distress (Isa. 20:2, 3, 4), or of some great calamity having fallen on a person (2 Sam. 15:30).
+
+## Bariah
+
+fugitive, one of Shemaiah`s five sons. Their father is counted along with them in 1 Chr. 3:22.
+
+## Bar-jesus
+
+son of Joshua, the patronymic of Elymas the sorcerer (Acts 13:6), who met Paul and Barnabas at Paphos. Elymas is a word of Arabic origin meaning "wise."
+
+## Bar-jona
+
+son of Jonah, the patronymic of Peter (Matt. 16:17; John 1:42), because his father`s name was Jonas. (See PETER .)
+
+## Barkos
+
+painter, (Ezra 2:53; Neh. 7:55). The father of some of the Nethinim.
+
+## Barley
+
+a grain much cultivated in Egypt (Ex. 9:31) and in Palestine (Lev. 27:16; Deut. 8:8). It was usually the food of horses (1 Kings 4:28). Barley bread was used by the poorer people (Judg. 7:13; 2 Kings 4:42). Barley of the first crop was ready for the harvest by the time of the Passover, in the middle of April (Ruth 1:22; 2 Sam. 21:9). Mention is made of barley-meal (Num. 5:15). Our Lord fed five thousand with "five barley loaves and two small fishes" (John 6:9).
+
+## Barn
+
+a storehouse (Deut. 28:8; Job 39:12; Hag. 2:19) for grain, which was usually under ground, although also sometimes above ground (Luke 12:18).
+
+## Barnabas
+
+son of consolation, the surname of Joses, a Levite (Acts 4:36). His name stands first on the list of prophets and teachers of the church at Antioch (13:1). Luke speaks of him as a "good man" (11:24). He was born of Jewish parents of the tribe of Levi. He was a native of Cyprus, where he had a possession of land (Acts 4:36, 37), which he sold. His personal appearance is supposed to have been dignified and commanding (Acts 14:11, 12). When Paul returned to Jerusalem after his conversion, Barnabas took him and introduced him to the apostles (9:27). They had probably been companions as students in the school of Gamaliel.    The prosperity of the church at Antioch led the apostles and brethren at Jerusalem to send Barnabas thither to superintend the movement. He found the work so extensive and weighty that he went to Tarsus in search of Saul to assist him. Saul returned with him to Antioch and laboured with him for a whole year (Acts 11:25, 26). The two were at the end of this period sent up to Jerusalem with the contributions the church at Antioch had made for the poorer brethren there (11:28-30). Shortly after they returned, bringing John Mark with them, they were appointed as missionaries to the heathen world, and in this capacity visited Cyprus and some of the principal cities of Asia Minor (Acts 13:14). Returning from this first missionary journey to Antioch, they were again sent up to Jerusalem to consult with the church there regarding the relation of Gentiles to the church (Acts 15:2: Gal. 2:1). This matter having been settled, they returned again to Antioch, bringing the decree of the council as the rule by which Gentiles were to be admitted into the church.    When about to set forth on a second missionary journey, a dispute arose between Saul and Barnabas as to the propriety of taking John Mark with them again. The dispute ended by Saul and Barnabas taking separate routes. Saul took Silas as his companion, and journeyed through Syria and Cilicia; while Barnabas took his nephew John Mark, and visited Cyprus (Acts 15:36-41). Barnabas is not again mentioned by Luke in the Acts.
+
+## Barrel
+
+a vessel used for keeping flour (1 Kings 17:12, 14, 16). The same word (cad) so rendered is also translated "pitcher," a vessel for carrying water (Gen. 24:14; Judg. 7:16).
+
+## Barren
+
+For a woman to be barren was accounted a severe punishment among the Jews (Gen. 16:2; 30:1-23; 1 Sam. 1:6, 27; Isa. 47:9; 49:21; Luke 1:25). Instances of barrenness are noticed (Gen. 11:30; 25:21; 29:31; Judg. 13:2, 3; Luke 1:7, 36).
+
+## Barsabas
+
+son of Saba, the surname (1) of Joseph, also called Justus (Acts 1:23), some identify him with Barnabas; (2) of Judas, who was a "prophet." Nothing more is known of him than what is mentioned in Acts 15:32.
+
+## Bartholomew
+
+son of Tolmai, one of the twelve apostles (Matt. 10:3; Acts 1:13); generally supposed to have been the same as Nathanael. In the synoptic gospels Philip and Bartholomew are always mentioned together, while Nathanael is never mentioned; in the fourth gospel, on the other hand, Philip and Nathanael are similarly mentioned together, but nothing is said of Bartholomew. He was one of the disciples to whom our Lord appeared at the Sea of Tiberias after his resurrection (John 21:2). He was also a witness of the Ascension (Acts 1:4, 12, 13). He was an "Israelite indeed" (John 1:47).
+
+## Bartimaeus
+
+son of Timaeus, one of the two blind beggars of Jericho (Mark 10:46; Matt. 20:30). His blindness was miraculously cured on the ground of his faith.
+
+## Baruch
+
+blessed. (1.) The secretary of the prophet Jeremiah (32:12; 36:4). He was of the tribe of Judah (51:59). To him Jeremiah dictated his prophecies regarding the invasion of the Babylonians and the Captivity. These he read to the people from a window in the temple in the fourth year of the reign of Jehoiakim, king of Judah (Jer. 36). He afterwards read them before the counsellors of the king at a private interview; and then to the king himself, who, after hearing a part of the roll, cut it with a penknife, and threw it into the fire of his winter parlour, where he was sitting.    During the siege of Jerusalem by Nebuchadnezzar, he was the keeper of the deed of purchase Jeremiah had made of the territory of Hanameel (Jer. 32:12). Being accused by his enemies of favouring the Chaldeans, he was cast, with Jeremiah, into prison, where he remained till the capture of Jerusalem (B.C. 586). He probably died in Babylon.    (2.) Neh. 3:20; 10:6; 11:5.
+
+## Barzillai
+
+of iron. (1.) A Meholathite, the father of Adriel (2 Sam. 21:8).    (2.) A Gileadite of Rogelim who was distinguished for his loyalty to David. He liberally provided for the king`s followers (2 Sam. 17:27). David on his death-bed, remembering his kindness, commended Barzillai`s children to the care of Solomon (1 Kings 2:7).    (3.) A priest who married a daughter of the preceding (Ezra 2:61).
+
+## Bashan
+
+light soil, first mentioned in Gen. 14:5, where it is said that Chedorlaomer and his confederates "smote the Rephaim in Ashteroth," where Og the king of Bashan had his residence. At the time of Israel`s entrance into the Promised Land, Og came out against them, but was utterly routed (Num. 21:33-35; Deut. 3:1-7). This country extended from Gilead in the south to Hermon in the north, and from the Jordan on the west to Salcah on the east. Along with the half of Gilead it was given to the half-tribe of Manasseh (Josh. 13:29-31). Golan, one of its cities, became a "city of refuge" (Josh. 21:27). Argob, in Bashan, was one of Solomon`s commissariat districts (1 Kings 4:13). The cities of Bashan were taken by Hazael (2 Kings 10:33), but were soon after reconquered by Jehoash (2 Kings 13:25), who overcame the Syrians in three battles, according to the word of Elisha (19). From this time Bashan almost disappears from history, although we read of the wild cattle of its rich pastures (Ezek. 39:18; Ps. 22:12), the oaks of its forests (Isa. 2:13; Ezek. 27:6; Zech. 11:2), and the beauty of its extensive plains (Amos 4:1; Jer. 50:19). Soon after the conquest, the name "Gilead" was given to the whole country beyond Jordan. After the Exile, Bashan was divided into four districts, (1.) Gaulonitis, or Jaulan, the most western; (2.) Auranitis, the Hauran (Ezek. 47:16); (3.) Argob or Trachonitis, now the Lejah; and (4.) Batanaea, now Ard-el-Bathanyeh, on the east of the Lejah, with many deserted towns almost as perfect as when they were inhabited. (See HAURAN .)
+
+## Bashan-havoth-jair
+
+the Bashan of the villages of Jair, the general name given to Argob by Jair, the son of Manasseh (Deut. 3:14), containing sixty cities with walls and brazen gates (Josh. 13:30; 1 Kings 4:13). (See ARGOB .)
+
+## Bashan, Hill of
+
+(Ps. 68:15), probably another name for Hermon, which lies to the north of Bashan.
+
+## Bashemath
+
+sweet-smelling. (1.) The daughter of Ishmael, the last of Esau`s three wives (Gen. 36:3, 4, 13), from whose son Reuel four tribes of the Edomites sprung. She is also called Mahalath (Gen. 28:9). It is noticeable that Esau`s three wives receive different names in the genealogical table of the Edomites (Gen. 36) from those given to them in the history (Gen. 26:34; 28:9).    (2.) A daughter of Solomon, and wife of Ahimaaz, one of his officers (1 Kings 4:15).
+
+## Basilisk
+
+(in R.V., Isa. 11:8; 14:29; 59:5; Jer. 8:17), the "king serpent," as the name imports; a fabulous serpent said to be three spans long, with a spot on its head like a crown. Probably the yellow snake is intended. (See COCKATRICE .)
+
+## Basin
+
+or Bason. (1.) A trough or laver (Heb. aggan`) for washing (Ex. 24:6); rendered also "goblet" (Cant. 7:2) and "cups" (Isa. 22:24).    (2.) A covered dish or urn (Heb. k`for) among the vessels of the temple (1 Chr. 28:17; Ezra 1:10; 8:27).    (3.) A vase (Heb. mizrak) from which to sprinkle anything. A metallic vessel; sometimes rendered "bowl" (Amos 6:6; Zech. 9:15). The vessels of the tabernacle were of brass (Ex. 27:3), while those of the temple were of gold (2 Chr. 4:8).    (4.) A utensil (Heb. saph) for holding the blood of the victims (Ex. 12:22); also a basin for domestic purposes (2 Sam. 17:28).    The various vessels spoken of by the names "basin, bowl, charger, cup, and dish," cannot now be accurately distinguished.    The basin in which our Lord washed the disciples` feet (John 13:5) must have been larger and deeper than the hand-basin.
+
+## Basket
+
+There are five different Hebrew words so rendered in the Authorized Version: (1.) A basket (Heb. sal, a twig or osier) for holding bread (Gen. 40:16; Ex. 29:3, 23; Lev. 8:2, 26, 31; Num. 6:15, 17, 19). Sometimes baskets were made of twigs peeled; their manufacture was a recognized trade among the Hebrews.    (2.) That used (Heb. salsilloth`) in gathering grapes (Jer. 6:9).    (3.) That in which the first fruits of the harvest were presented, Heb. tene, (Deut. 26:2, 4). It was also used for household purposes. In form it tapered downwards like that called _corbis_ by the Romans.    (4.) A basket (Heb. kelub) having a lid, resembling a bird-cage. It was made of leaves or rushes. The name is also applied to fruit-baskets (Amos 8:1, 2).    (5.) A basket (Heb. dud) for carrying figs (Jer. 24:2), also clay to the brick-yard (R.V., Ps. 81:6), and bulky articles (2 Kings 10:7). This word is also rendered in the Authorized Version "kettle" (1 Sam. 2:14), "caldron" (2 Chr. 35:13), "seething-pot" (Job 41:20).    In the New Testament mention is made of the basket (Gr. kophinos, small "wicker-basket") for the "fragments" in the miracle recorded Mark 6:43, and in that recorded Matt. 15:37 (Gr. spuris, large "rope-basket"); also of the basket in which Paul escaped (Acts 9:25, Gr. spuris; 2 Cor. 11: 33, Gr. sargane, "basket of plaited cords").
+
+## Bastard
+
+In the Old Testament the rendering of the Hebrew word _mamzer`_, which means "polluted." In Deut. 23:2, it occurs in the ordinary sense of illegitimate offspring. In Zech. 9:6, the word is used in the sense of foreigner. From the history of Jephthah we learn that there were bastard offspring among the Jews (Judg. 11:1-7). In Heb. 12:8, the word (Gr. nothoi) is used in its ordinary sense, and denotes those who do not share the privileges of God`s children.
+
+## Bastinado
+
+beating, a mode of punishment common in the East. It is referred to by "the rod of correction" (Prov. 22:15), "scourging" (Lev. 19:20), "chastising" (Deut. 22:18). The number of blows could not exceed forty (Deut. 25:2, 3).
+
+## Bat
+
+The Hebrew word (atalleph`) so rendered (Lev. 11:19; Deut. 14:18) implies "flying in the dark." The bat is reckoned among the birds in the list of unclean animals. To cast idols to the "moles and to the bats" means to carry them into dark caverns or desolate places to which these animals resort (Isa. 2:20), i.e., to consign them to desolation or ruin.
+
+## Bath
+
+a Hebrew liquid measure, the tenth part of an homer (1 Kings 7:26, 38; Ezek. 45:10, 14). It contained 8 gallons 3 quarts of our measure. "Ten acres of vineyard shall yield one bath" (Isa. 5:10) denotes great unproductiveness.
+
+## Bath-rabbim
+
+daughter of many, the name of one of the gates of the city of Heshbon, near which were pools (Cant.7:4).
+
+## Baths
+
+The use of the bath was very frequent among the Hebrews (Lev. 14:8; Num. 19:19, ect.). The high priest at his inauguration (Lev. 8:6), and on the day of atonement, was required to bathe himself (16:4, 24). The "pools" mentioned in Neh. 3:15, 16, 2 Kings 20:20, Isa. 22:11, John 9:7, were public bathing-places.
+
+## Bath-sheba
+
+daughter of the oath, or of seven, called also Bath-shu`a (1 Chr. 3:5), was the daughter of Eliam (2 Sam. 11:3) or Ammiel (1 Chr. 3:5), and wife of Uriah the Hittite. David committed adultery with her (2 Sam. 11:4, 5; Ps. 51:1). The child born in adultery died (2 Sam. 12:15-19). After her husband was slain (11:15) she was married to David (11:27), and became the mother of Solomon (12:24; 1 Kings 1:11; 2:13). She took a prominent part in securing the succession of Solomon to the throne (1 Kings 1:11, 16-21).
+
+## Battering-ram
+
+(Ezek. 4:2; 21:22), a military engine, consisting of a long beam of wood hung upon a frame, for making breaches in walls. The end of it which was brought against the wall was shaped like a ram`s head.
+
+## Battle-axe
+
+a mallet or heavy war-club. Applied metaphorically (Jer. 51:20) to Cyrus, God`s instrument in destroying Babylon.
+
+## Battle-bow
+
+the war-bow used in fighting (Zech. 9:10; 10:4). "Thy bow was made quite naked" (Hab. 3:9) means that it was made ready for use. By David`s order (2 Sam. 1:18) the young men were taught the use, or rather the song of the bow. (See ARMOUR , BOW .)
+
+## Battlement
+
+a parapet wall or balustrade surrounding the flat roofs of the houses, required to be built by a special law (Deut. 22:8). In Jer. 5:10, it denotes the parapet of a city wall.
+
+## Bay
+
+denotes the estuary of the Dead Sea at the mouth of the Jordan (Josh. 15:5; 18:19), also the southern extremity of the same sea (15:2). The same Hebrew word is rendered "tongue" in Isa. 11:15, where it is used with reference to the forked mouths of the Nile.    Bay in Zech. 6:3, 7 denotes the colour of horses, but the original Hebrew means strong, and is here used rather to describe the horses as fleet or spirited.
+
+## Bay tree
+
+named only in Ps. 37:35, Authorized Version. The Hebrew word so rendered is _ereh_, which simply means "native born", i.e., a tree not transplanted, but growing on its native soil, and therefore luxuriantly. If the psalmist intended by this word to denote any particular tree, it may have been the evergreen bay laurel (Laurus nobilis), which is a native of Palestine. Instead of "like a green bay tree" in the Authorized Version, the Revised Version has, "like a green tree in its native soil."
+
+## Bdellium
+
+occurs only in Gen. 2:12, where it designates a product of the land of Havilah; and in Num. 11:7, where the manna is likened to it in colour. It was probably an aromatic gum like balsam which exuded from a particular tree (Borassus flabelliformis) still found in Arabia, Media, and India. It bears a resemblance in colour to myrrh. Others think the word denotes "pearls," or some precious stone.
+
+## Beacon
+
+a pole (Heb. to`ren) used as a standard or ensign set on the tops of mountains as a call to the people to assemble themselves for some great national purpose (Isa. 30:17). In Isa. 33:23 and Ezek. 27:5, the same word is rendered "mast." (See Banner .)
+
+## Bealiah
+
+whose Lord is Jehovah, a Benjamite, one of David`s thirty heroes of the sling and bow (1 Chr. 12:5).
+
+## Bealoth
+
+citizens, a town in the extreme south of Judah (Josh. 15:24); probably the same as Baalath-beer (19:8). In 1 Kings 4:16, the Authorized Version has "in Aloth," the Revised Version "Bealoth."
+
+## Beam
+
+occurs in the Authorized Version as the rendering of various Hebrew words. In 1 Sam. 17:7, it means a weaver`s frame or principal beam; in Hab. 2:11, a crossbeam or girder; 2 Kings 6:2, 5, a cross-piece or rafter of a house; 1 Kings 7:6, an architectural ornament as a projecting step or moulding; Ezek. 41:25, a thick plank. In the New Testament the word occurs only in Matt. 7:3, 4, 5, and Luke 6:41, 42, where it means (Gr. dokos) a large piece of wood used for building purposes, as contrasted with "mote" (Gr. karphos), a small piece or mere splinter. "Mote" and "beam" became proverbial for little and great faults.
+
+## Beans
+
+mentioned in 2 Sam. 17:28 as having been brought to David when flying from Absalom. They formed a constituent in the bread Ezekiel (4:9) was commanded to make, as they were in general much used as an article of diet. They are extensively cultivated in Egypt and Arabia and Syria.
+
+## Bear
+
+a native of the mountain regions of Western Asia, frequently mentioned in Scripture. David defended his flocks against the attacks of a bear (1 Sam. 17:34-37). Bears came out of the wood and destroyed the children who mocked the prophet Elisha (2 Kings 2:24). Their habits are referred to in Isa. 59:11; Prov. 28:15; Lam. 3:10. The fury of the female bear when robbed of her young is spoken of (2 Sam. 17:8; Prov. 17:12; Hos. 13:8). In Daniel`s vision of the four great monarchies, the Medo-Persian empire is represented by a bear (7:5).
+
+## Beard
+
+The mode of wearing it was definitely prescribed to the Jews (Lev. 19:27; 21:5). Hence the import of Ezekiel`s (5:1-4) description of the "razor" i.e., the agents of an angry providence being used against the guilty nation of the Jews. It was a part of a Jew`s daily toilet to anoint his beard with oil and perfume (Ps. 133:2). Beards were trimmed with the most fastidious care (2 Sam. 19:24), and their neglet was an indication of deep sorrow (Isa. 15:2; Jer. 41:5). The custom was to shave or pluck off the hair as a sign of mourning (Isa. 50:6; Jer. 48:37; Ezra 9:3). The beards of David`s ambassadors were cut off by hanun (2 Sam. 10:4) as a mark of indignity.    On the other hand, the Egyptians carefully shaved the hair off their faces, and they compelled their slaves to do so also (Gen. 41:14).
+
+## Beast
+
+This word is used of flocks or herds of grazing animals (Ex. 22:5; Num. 20:4, 8, 11; Ps. 78:48); of beasts of burden (Gen. 45:17); of eatable beasts (Prov. 9:2); and of swift beasts or dromedaries (Isa. 60:6). In the New Testament it is used of a domestic animal as property (Rev. 18:13); as used for food (1 Cor. 15:39), for service (Luke 10:34; Acts 23:24), and for sacrifice (Acts 7:42).    When used in contradistinction to man (Ps. 36:6), it denotes a brute creature generally, and when in contradistinction to creeping things (Lev. 11:2-7; 27:26), a four-footed animal.    The Mosaic law required that beasts of labour should have rest on the Sabbath (Ex. 20:10; 23:12), and in the Sabbatical year all cattle were allowed to roam about freely, and eat whatever grew in the fields (Ex. 23:11; Lev. 25:7). No animal could be castrated (Lev. 22:24). Animals of different kinds were to be always kept separate (Lev. 19:19; Deut. 22:10). Oxen when used in threshing were not to be prevented from eating what was within their reach (Deut. 25:4; 1 Cor.9:9).    This word is used figuratively of an infuriated multitude (1 Cor. 15:32; Acts 19:29; comp. Ps. 22:12, 16; Eccl. 3:18; Isa. 11:6-8), and of wicked men (2 Pet. 2:12). The four beasts of Daniel 7:3, 17, 23 represent four kingdoms or kings.
+
+## Beaten gold
+
+in Num. 8:4, means "turned" or rounded work in gold. The Greek Version, however, renders the word "solid gold;" the Revised Version, "beaten work of gold." In 1 Kings 10:16, 17, it probably means "mixed" gold, as the word ought to be rendered, i.e., not pure gold. Others render the word in these places "thin plates of gold."
+
+## Beaten oil
+
+(Ex. 27:20; 29:40), obtained by pounding olives in a mortar, not by crushing them in a mill. It was reckoned the best. (See OLIVE .)
+
+## Beautiful gate
+
+the name of one of the gates of the temple (Acts 3:2). It is supposed to have been the door which led from the court of the Gentiles to the court of the women. It was of massive structure, and covered with plates of Corinthian brass.
+
+## Becher
+
+first-born; a youth, the second son of Benjamin (Gen. 46:21), who came down to Egypt with Jacob. It is probable that he married an Ephraimitish heiress, and that his descendants were consequently reckoned among the tribe of Ephraim (Num. 26:35; 1 Chr. 7:20, 21). They are not reckoned among the descendants of Benjamin (Num. 26:38).
+
+## Bed
+
+(Heb. mittah), for rest at night (Ex. 8:3; 1 Sam. 19:13, 15, 16, etc.); during sickness (Gen. 47:31; 48:2; 49:33, etc.); as a sofa for rest (1 Sam. 28:23; Amos 3:12). Another Hebrew word (er`es) so rendered denotes a canopied bed, or a bed with curtains (Deut. 3:11; Ps. 132:3), for sickness (Ps. 6:6; 41:3).    In the New Testament it denotes sometimes a litter with a coverlet (Matt. 9:2, 6; Luke 5:18; Acts 5:15).    The Jewish bedstead was frequently merely the divan or platform along the sides of the house, sometimes a very slight portable frame, sometimes only a mat or one or more quilts. The only material for bed-clothes is mentioned in 1 Sam. 19:13. Sleeping in the open air was not uncommon, the sleeper wrapping himself in his outer garment (Ex. 22:26,27; Deut. 24:12,13).
+
+## Bedan
+
+one of the judges of Israel (1 Sam. 12:11). It is uncertain who he was. Some suppose that Barak is meant, others Samson, but most probably this is a contracted form of Abdon (Judg. 12:13).
+
+## Bed-chamber
+
+an apartment in Eastern houses, furnished with a slightly elevated platform at the upper end and sometimes along the sides, on which were laid mattresses. This was the general arrangement of the public sleeping-room for the males of the family and for guests, but there were usually besides distinct bed-chambers of a more private character (2 Kings 4:10; Ex. 8:3; 2 Kings 6:12). In 2 Kings 11:2 this word denotes, as in the margin of the Revised Version, a store-room in which mattresses were kept.
+
+## Bedstead
+
+used in Deut. 3:11, but elsewhere rendered "couch," "bed." In 2 Kings 1:4; 16:2; Ps. 132:3; Amos 3:12, the divan is meant by this word.
+
+## Bee
+
+First mentioned in Deut. 1:44. Swarms of bees, and the danger of their attacks, are mentioned in Ps. 118:12. Samson found a "swarm of bees" in the carcass of a lion he had slain (Judg. 14:8). Wild bees are described as laying up honey in woods and in clefts of rocks (Deut. 32:13; Ps. 81:16). In Isa. 7:18 the "fly" and the "bee" are personifications of the Egyptians and Assyrians, the inveterate enemies of Israel.
+
+## Beelzebub
+
+(Gr. form Beel`zebul), the name given to Satan, and found only in the New Testament (Matt. 10:25; 12:24, 27; Mark 3:22). It is probably the same as Baalzebub (q.v.), the god of Ekron, meaning "the lord of flies," or, as others think, "the lord of dung," or "the dung-god."
+
+## Beer
+
+well. (1.) A place where a well was dug by the direction of Moses, at the forty-fourth station of the Hebrews in their wanderings (Num. 21:16-18) in the wilderness of Moab. (See WELL .)    (2.) A town in the tribe of Judah to which Jotham fled for fear of Abimelech (Judg. 9:21). Some have identified this place with Beeroth.
+
+## Beer-elim
+
+well of heroes, probably the name given to Beer, the place where the chiefs of Israel dug a well (Num. 21:16; Isa. 15:8).
+
+## Beeri
+
+illustrious, or the well-man. (1.) The father of Judith, one of the wives of Esau (Gen. 26:34), the same as Adah (Gen. 36:2). (2.) The father of the prophet Hosea (1:1).
+
+## Beer-lahai-roi
+
+i.e., "the well of him that liveth and seeth me," or, as some render it, "the well of the vision of life", the well where the Lord met with Hagar (Gen. 16:7-14). Isaac dwelt beside this well (24:62; 25:11). It has been identified with `Ain Muweileh, or Moilahhi, south-west of Beersheba, and about 12 miles W. from Kadesh-barnea.
+
+## Beeroth
+
+wells, one of the four cities of the Hivites which entered by fraud into a league with Joshua. It belonged to Benjamin (Josh. 18:25). It has by some been identified with el-Bireh on the way to Nablus, 10 miles north of Jerusalem.
+
+## Beeroth of the children of Jaakan
+
+(Deut. 10:6). The same as Bene-jaakan (Num. 33:31).
+
+## Beersheba
+
+well of the oath, or well of seven, a well dug by Abraham, and so named because he and Abimelech here entered into a compact (Gen. 21:31). On re-opening it, Isaac gave it the same name (Gen. 26:31-33). It was a favourite place of abode of both of these patriarchs (21:33-22:1, 19; 26:33; 28:10). It is mentioned among the "cities" given to the tribe of Simeon (Josh. 19:2; 1 Chr. 4:28). From Dan to Beersheba, a distance of about 144 miles (Judg. 20:1; 1 Chr. 21:2; 2 Sam. 24:2), became the usual way of designating the whole Promised Land, and passed into a proverb. After the return from the Captivity the phrase is narrowed into "from Beersheba unto the valley of Hinnom" (Neh. 11:30). The kingdom of the ten tribes extended from Beersheba to Mount Ephraim (2 Chr. 19:4). The name is not found in the New Testament. It is still called by the Arabs Bir es-Seba, i.e., "well of the seven", where there are to the present day two principal wells and five smaller ones. It is nearly midway between the southern end of the Dead Sea and the Mediterranean.
+
+## Beetle
+
+(Heb. hargol, meaning "leaper"). Mention of it is made only in Lev. 11:22, where it is obvious the word cannot mean properly the beetle. It denotes some winged creeper with at least four feet, "which has legs above its feet, to leap withal." The description plainly points to the locust (q.v.). This has been an article of food from the earliest times in the East to the present day. The word is rendered "cricket" in the Revised Version.
+
+## Beeves
+
+(an old English plural of the word beef), a name applicable to all ruminating animals except camels, and especially to the Bovidce, or horned cattle (Lev. 22:19, 21; Num. 31:28, 30, 33, 38, 44).
+
+## Beg
+
+That the poor existed among the Hebrews we have abundant evidence (Ex. 23:11; Deut. 15:11), but there is no mention of beggars properly so called in the Old Testament. The poor were provided for by the law of Moses (Lev. 19:10; Deut. 12:12; 14:29). It is predicted of the seed of the wicked that they shall be beggars (Ps. 37:25; 109:10).    In the New Testament we find not seldom mention made of beggars (Mark 10:46; Luke 16:20, 21; Acts 3:2), yet there is no mention of such a class as vagrant beggars, so numerous in the East. "Beggarly," in Gal. 4:9, means worthless.
+
+## Behead
+
+a method of taking away life practised among the Egyptians (Gen. 40:17-19). There are instances of this mode of punishment also among the Hebrews (2 Sam. 4:8; 20:21,22; 2 Kings 10:6-8). It is also mentioned in the New Testament (Matt. 14:8-12; Acts 12:2).
+
+## Behemoth
+
+(Job 40:15-24). Some have supposed this to be an Egyptian word meaning a "water-ox." The Revised Version has here in the margin "hippopotamus," which is probably the correct rendering of the word. The word occurs frequently in Scripture, but, except here, always as a common name, and translated "beast" or "cattle."
+
+## Bekah
+
+Both the name and its explanation, "a half shekel," are given in Ex. 38:26. The word properly means a "division," a "part." (R.V., "beka.")
+
+## Bel
+
+the Aramaic form of Baal, the national god of the Babylonians (Isa. 46:1; Jer. 50:2; 51:44). It signifies "lord." (See BAAL .)
+
+## Bela
+
+a thing swallowed. (1.) A city on the shore of the Dead Sea, not far from Sodom, called also Zoar. It was the only one of the five cities that was spared at Lot`s intercession (Gen. 19:20,23). It is first mentioned in Gen. 14:2,8.    (2.) The eldest son of Benjamin (Num. 26:38; "Belah," Gen. 46:21).    (3.) The son of Beor, and a king of Edom (Gen. 36:32, 33; 1 Chr. 1:43).    (4.) A son of Azaz (1 Chr. 5:8).
+
+## Belial
+
+worthlessness, frequently used in the Old Testament as a proper name. It is first used in Deut. 13:13. In the New Testament it is found only in 2 Cor. 6:15, where it is used as a name of Satan, the personification of all that is evil. It is translated "wicked" in Deut. 15:9; Ps. 41:8 (R.V. marg.); 101:3; Prov. 6:12, etc. The expression "son" or "man of Belial" means simply a worthless, lawless person (Judg. 19:22; 20:13; 1 Sam. 1:16; 2:12).
+
+## Bell
+
+The bells first mentioned in Scripture are the small golden bells attached to the hem of the high priest`s ephod (Ex. 28:33, 34, 35). The "bells of the horses" mentioned by Zechariah (14:20) were attached to the bridles or belts round the necks of horses trained for war, so as to accustom them to noise and tumult.
+
+## Bellows
+
+occurs only in Jer. 6:29, in relation to the casting of metal. Probably they consisted of leather bags similar to those common in Egypt.
+
+## Belly
+
+the seat of the carnal affections (Titus 1:12; Phil. 3:19; Rom. 16:18). The word is used symbolically for the heart (Prov. 18:8; 20:27; 22:18, marg.). The "belly of hell" signifies the grave or underworld (Jonah 2:2).
+
+## Belshazzar
+
+Bel protect the king!, the last of the kings of Babylon (Dan. 5:1). He was the son of Nabonidus by Nitocris, who was the daughter of Nebuchadnezzar and the widow of Nergal-sharezer. When still young he made a great feast to a thousand of his lords, and when heated with wine sent for the sacred vessels his "father" (Dan. 5:2), or grandfather, Nebuchadnezzar had carried away from the temple in Jerusalem, and he and his princes drank out of them. In the midst of their mad revelry a hand was seen by the king tracing on the wall the announcement of God`s judgment, which that night fell upon him. At the instance of the queen (i.e., his mother) Daniel was brought in, and he interpreted the writing. That night the kingdom of the Chaldeans came to an end, and the king was slain (Dan. 5:30). (See NERGAL-SHAREZER .)    The absence of the name of Belshazzar on the monuments was long regarded as an argument against the genuineness of the Book of Daniel. In 1854 Sir Henry Rawlinson found an inscription of Nabonidus which referred to his eldest son. Quite recently, however, the side of a ravine undermined by heavy rains fell at Hillah, a suburb of Babylon. A number of huge, coarse earthenware vases were laid bare. These were filled with tablets, the receipts and contracts of a firm of Babylonian bankers, which showed that Belshazzar had a household, with secretaries and stewards. One was dated in the third year of the king Marduk-sar-uzur. As Marduk-sar-uzar was another name for Baal, this Marduk-sar-uzur was found to be the Belshazzar of Scripture. In one of these contract tablets, dated in the July after the defeat of the army of Nabonidus, we find him paying tithes for his sister to the temple of the sun-god at Sippara.
+
+## Belteshazzar
+
+Beltis protect the king!, the Chaldee name given to Daniel by Nebuchadnezzar (Dan. 1:7).
+
+## Benaiah
+
+built up by Jehovah. (1.) The son of Jehoiada, chief priest (1 Chr. 27:5). He was set by David over his body-guard of Cherethites and Pelethites (2 Sam. 8:18; 1 Kings 1:32; 1 Chr. 18:17). His exploits are enumerated in 2 Sam. 23:20, 21, 22; 1 Chr. 11:22. He remained faithful to Solomon (1 Kings 1:8, 10, 26), by whom he was raised to the rank of commander-in-chief (1 Kings 2:25, 29, 30, 34, 35; 4:4).    (2.) 2 Sam. 23:30; 1 Chr. 11:31.    (3.) A musical Levite (1 Chr. 15:18, 20).    (4.) A priest (1 Chr. 15:24; 16:6).    (5.) The son of Jeiel (2 Chr. 20:14).
+
+## Ben-ammi
+
+son of my kindred; i.e., "born of incest", the son of Lot by his youngest daughter (Gen. 19:38).
+
+## Bench
+
+deck of a Tyrian ship, described by Ezekiel (27:6) as overlaid with box-wood.
+
+## Bene-jaakan
+
+children of Jaakan (Num. 33:31, 32), the same as Beeroth.
+
+## Ben-hadad
+
+the standing title of the Syrian kings, meaning "the son of Hadad." (See HADADEZER .)    (1.) The king of Syria whom Asa, king of Judah, employed to invade Israel (1 Kings 15:18).    (2.) Son of the preceding, also king of Syria. He was long engaged in war against Israel. He was murdered probably by Hazael, by whom he was succeeded (2 Kings 8:7-15), after a reign of some thirty years.    (3.) King of Damascus, and successor of his father Hazael on the throne of Syria (2 Kings 13:3, 4). His misfortunes in war are noticed by Amos (1:4).
+
+## Benjamin
+
+son of my right hand. (1.) The younger son of Jacob by Rachel (Gen. 35:18). His birth took place at Ephrath, on the road between Bethel and Bethlehem, at a short distance from the latter place. His mother died in giving him birth, and with her last breath named him Ben-oni, son of my pain, a name which was changed by his father into Benjamin. His posterity are called Benjamites (Gen. 49:27; Deut. 33:12; Josh. 18:21).    The tribe of Benjamin at the Exodus was the smallest but one (Num. 1:36, 37; Ps. 68:27). During the march its place was along with Manasseh and Ephraim on the west of the tabernacle. At the entrance into Canaan it counted 45,600 warriors. It has been inferred by some from the words of Jacob (Gen. 49:27) that the figure of a wolf was on the tribal standard. This tribe is mentioned in Rom. 11:1; Phil. 3:5.    The inheritance of this tribe lay immediately to the south of that of Ephraim, and was about 26 miles in length and 12 in breadth. Its eastern boundary was the Jordan. Dan intervened between it and the Philistines. Its chief towns are named in Josh. 18:21-28.    The history of the tribe contains a sad record of a desolating civil war in which they were engaged with the other eleven tribes. By it they were almost exterminated (Judg. 20:20, 21; 21:10). (See GIBEAH .)    The first king of the Jews was Saul, a Benjamite. A close alliance was formed between this tribe and that of Judah in the time of David (2 Sam. 19:16, 17), which continued after his death (1 Kings 11:13; 12:20). After the Exile these two tribes formed the great body of the Jewish nation (Ezra 1:5; 10:9).    The tribe of Benjamin was famous for its archers (1 Sam. 20:20, 36; 2 Sam. 1:22; 1 Chr. 8:40; 12:2) and slingers (Judge. 20:6).    The gate of Benjamin, on the north side of Jerusalem (Jer. 37:13; 38:7; Zech. 14:10), was so called because it led in the direction of the territory of the tribe of Benjamin. It is called by Jeremiah (20:2) "the high gate of Benjamin;" also "the gate of the children of the people" (17:19). (Comp. 2 Kings 14:13.)
+
+## Beor
+
+a torch. (1.) The father of Bela, one of the kings of Edom (Gen. 36:32).    (2.) The father of Balaam (Num. 22:5; 24:3, 15; 31:8). In 2 Pet. 2:15 he is called Bosor.
+
+## Bera
+
+gift, or son of evil, king of Sodom at the time of the invasion of the four kings under Chedorlaomer (Gen. 14:2, 8, 17, 21).
+
+## Berachah
+
+blessing. (1.) A valley not far from Engedi, where Jehoshaphat overthrew the Moabites and Ammonites (2 Chr. 20:26). It has been identified with the valley of Bereikut. (R.V., "Beracah.")    (2.) One of the Benjamite warriors, Saul`s brethren, who joined David when at Ziklag (1 Chr. 12:3).
+
+## Berea
+
+a city of Macedonia to which Paul with Silas and Timotheus went when persecuted at Thessalonica (Acts 17:10, 13), and from which also he was compelled to withdraw, when he fled to the sea-coast and thence sailed to Athens (14, 15). Sopater, one of Paul`s companions belonged to this city, and his conversion probably took place at this time (Acts 20:4). It is now called Verria.
+
+## Berechiah
+
+blessed by Jehovah. (1.) Son of Shimea, and father of Asaph the musician (1 Chr. 6:39; 15:17).    (2.) One of the seven Ephraimite chieftains, son of Meshillemoth (2 Chr. 28:12).    (3.) The fourth of the five sons of Zerubbabel, of the royal family of Judah (1 Chr. 3:20).    (4.) The father of the prophet Zechariah (1:1,7).
+
+## Bered
+
+hail. (1.) A town in the south of Palestine (Gen. 16:14), in the desert of Shur, near Lahai-roi.    (2.) A son of Shuthelah, and grandson of Ephraim (1 Chr. 7:20).
+
+## Beriah
+
+a gift, or in evil. (1.) One of Asher`s four sons, and father of Heber (Gen. 46:17).    (2.) A son of Ephraim (1 Chr. 7:20-23), born after the slaughter of his brothers, and so called by his father "because it went evil with his house" at that time.    (3.) A Benjamite who with his brother Shema founded Ajalon and expelled the Gittites (1 Chr. 8:13).
+
+## Bernice
+
+bearer of victory, the eldest daughter of Agrippa I., the Herod Agrippa of Acts 12:20. After the early death of her first husband she was married to her uncle Herod, king of Chalcis. After his death (A.D. 40) she lived in incestuous connection with her brother Agrippa II. (Acts 25:13, 23; 26:30). They joined the Romans at the outbreak of the final war between them and the Jews, and lived afterwards at Rome.
+
+## Berodach-baladan
+
+the king of Babylon who sent a friendly deputation to Hezekiah (2 Kings 20:12). In Isa. 39:1 he is called Merodach-baladan (q.v.).
+
+## Beryl
+
+the rendering in the Authorized Version of the Hebrew word _tarshish_, a precious stone; probably so called as being brought from Tarshish. It was one of the stones on the breastplate of the high priest (Ex. 28:20; R.V. marg., "chalcedony;" 39:13). The colour of the wheels in Ezekiel`s vision was as the colour of a beryl stone (1:16; 10:9; R.V., "stone of Tarshish"). It is mentioned in Cant. 5:14; Dan. 10:6; Rev. 21:20. In Ezek. 28:13 the LXX. render the word by "chrysolite," which the Jewish historian Josephus regards as its proper translation. This also is the rendering given in the Authorized Version in the margin. That was a gold-coloured gem, the topaz of ancient authors.
+
+## Besom
+
+the rendering of a Hebrew word meaning sweeper, occurs only in Isa. 14:23, of the sweeping away, the utter ruin, of Babylon.
+
+## Besor
+
+cold, a ravine or brook in the extreme south-west of Judah, where 200 of David`s men stayed behind because they were faint, while the other 400 pursued the Amalekites (1 Sam. 30:9, 10, 21). Probably the Wadyes Sheriah, south of Gaza.
+
+## Bestead
+
+the rendering in Isa. 8:21, where alone it occurs, of a Hebrew word meaning to oppress, or be in circumstances of hardship.
+
+## Betah
+
+confidence, a city belonging to Hadadezer, king of Zobah, which yielded much spoil of brass to David (2 Sam. 8:8). In 1 Chr. 18:8 it is called Tibhath.
+
+## Beth
+
+occurs frequently as the appellation for a house, or dwelling-place, in such compounds as the words immediately following:
+
+## Bethabara
+
+house of the ford, a place on the east bank of the Jordan, where John was baptizing (John 1:28). It may be identical with Bethbarah, the ancient ford of Jordan of which the men of Ephraim took possession (Judg. 7:24). The Revised Version reads "Bethany beyond Jordan." It was the great ford, and still bears the name of "the ford," Makhadhet `Abarah, "the ford of crossing over," about 25 miles from Nazareth. (See BETHBARAH .)
+
+## Beth-anath
+
+house of response, one of the fenced cities of Naphtali (Josh. 19:38). It is perhaps identical with the modern village `Ainata, 6 miles west of Kedesh.
+
+## Beth-anoth
+
+house of answers, a city in the mountainous district of Judah (Josh. 15:59). It has been identified with the modern Beit-`Anun, about 3 miles northeast of Hebron.
+
+## Bethany
+
+house of dates. (1.) The Revised Version in John 1:28 has this word instead of Bethabara, on the authority of the oldest manuscripts. It appears to have been the name of a place on the east of Jordan.    (2.) A village on the south-eastern slope of the Mount of Olives (Mark 11:1), about 2 miles east of Jerusalem, on the road to Jericho. It derived its name from the number of palm-trees which grew there. It was the residence of Lazarus and his sisters. It is frequently mentioned in connection with memorable incidents in the life of our Lord (Matt. 21:17; 26:6; Mark 11:11, 12; 14:3; Luke 24:50; John 11:1; 12:1). It is now known by the name of el-Azariyeh, i.e., "place of Lazarus," or simply Lazariyeh. Seen from a distance, the village has been described as "remarkably beautiful, the perfection of retirement and repose, of seclusion and lovely peace." Now a mean village, containing about twenty families.
+
+## Beth-arabah
+
+house of the desert, one of the six cities of Judah, situated in the sunk valley of the Jordan and Dead Sea (Josh. 18:22). In Josh. 15:61 it is said to have been "in the wilderness." It was afterwards included in the towns of Benjamin. It is called Arabah (Josh. 18:18).
+
+## Beth-aram
+
+house of the height; i.e., "mountain-house", one of the towns of Gad, 3 miles east of Jordan, opposite Jericho (Josh. 13:27). Probably the same as Beth-haran in Num. 32:36. It was called by king Herod, Julias, or Livias, after Livia, the wife of Augustus. It is now called Beit-haran.
+
+## Beth-arbel
+
+house of God`s court, a place alluded to by Hosea (10:14) as the scene of some great military exploit, but not otherwise mentioned in Scripture. The Shalman here named was probably Shalmaneser, the king of Assyria (2 Kings 17:3).
+
+## Beth-aven
+
+house of nothingness; i.e., "of idols", a place in the mountains of Benjamin, east of Bethel (Josh. 7:2; 18:12; 1 Sam. 13:5). In Hos. 4:15; 5:8; 10:5 it stands for "Bethel" (q.v.), and it is so called because it was no longer the "house of God," but "the house of idols," referring to the calves there worshipped.
+
+## Beth-barah
+
+house of crossing, a place south of the scene of Gideon`s victory (Judg. 7:24). It was probably the chief ford of the Jordan in that district, and may have been that by which Jacob crossed when he returned from Mesopotamia, near the Jabbok (Gen. 32:22), and at which Jephthah slew the Ephraimites (Judg. 12:4). Nothing, however, is certainly known of it. (See BETHABARA .)
+
+## Beth-car
+
+sheep-house, a place to which the Israelites pursued the Philistines west from Mizpeh (1 Sam. 7:11).
+
+## Beth-dagon
+
+house of Dagon. (1.) A city in the low country or plain of Judah, near Philistia (Josh. 15:41); the modern Beit Degan, about 5 miles from Lydda.    (2.) A city near the south-east border of Asher (Josh. 19:27). It was a Philistine colony. It is identical with the modern ruined village of Tell D`auk.
+
+## Beth-diblathaim
+
+house of two cakes of figs, a city of Moab, upon which Jeremiah (48:22) denounced destruction. It is called also Almon-diblathaim (Num. 33:46) and Diblath (Ezek. 6:14). (R.V., "Diblah.")
+
+## Bethel
+
+house of God. (1.) A place in Central Palestine, about 10 miles north of Jerusalem, at the head of the pass of Michmash and Ai. It was originally the royal Canaanite city of Luz (Gen. 28:19). The name Bethel was at first apparently given to the sanctuary in the neighbourhood of Luz, and was not given to the city itself till after its conquest by the tribe of Ephraim. When Abram entered Canaan he formed his second encampment between Bethel and Hai (Gen. 12:8); and on his return from Egypt he came back to it, and again "called upon the name of the Lord" (13:4). Here Jacob, on his way from Beersheba to Haran, had a vision of the angels of God ascending and descending on the ladder whose top reached unto heaven (28:10, 19); and on his return he again visited this place, "where God talked with him" (35:1-15), and there he "built an altar, and called the place El-beth-el" (q.v.). To this second occasion of God`s speaking with Jacob at Bethel, Hosea (12:4,5) makes reference.    In troublous times the people went to Bethel to ask counsel of God (Judg. 20:18, 31; 21:2). Here the ark of the covenant was kept for a long time under the care of Phinehas, the grandson of Aaron (20:26-28). Here also Samuel held in rotation his court of justice (1 Sam. 7:16). It was included in Israel after the kingdom was divided, and it became one of the seats of the worship of the golden calf (1 Kings 12:28-33; 13:1). Hence the prophet Hosea (Hos. 4:15; 5:8; 10:5, 8) calls it in contempt Beth-aven, i.e., "house of idols." Bethel remained an abode of priests even after the kingdom of Israel was desolated by the king of Assyria (2 Kings 17:28, 29). At length all traces of the idolatries were extirpated by Josiah, king of Judah (2 Kings 23:15-18); and the place was still in existence after the Captivity (Ezra 2:28; Neh. 7:32). It has been identified with the ruins of Beitin, a small village amid extensive ruins some 9 miles south of Shiloh.    (2.) Mount Bethel was a hilly district near Bethel (Josh. 16:1; 1 Sam. 13:2).    (3.) A town in the south of Judah (Josh. 8:17; 12:16).
+
+## Bethelite
+
+a designation of Hiel (q.v.), who rebuilt Jericho and experienced the curse pronounced long before (1 Kings 16:34).
+
+## Bether
+
+dissection or separation, certain mountains mentioned in Cant. 2:17; probably near Lebanon.
+
+## Bethesda
+
+house of mercy, a reservoir (Gr. kolumbethra, "a swimming bath") with five porches, close to the sheep-gate or market (Neh. 3:1; John 5:2). Eusebius the historian (A.D. 330) calls it "the sheep-pool." It is also called "Bethsaida" and "Beth-zatha" (John 5:2, R.V. marg.). Under these "porches" or colonnades were usually a large number of infirm people waiting for the "troubling of the water." It is usually identified with the modern so-called Fountain of the Virgin, in the valley of the Kidron, and not far from the Pool of Siloam (q.v.); and also with the Birket Israel, a pool near the mouth of the valley which runs into the Kidron south of "St. Stephen`s Gate." Others again identify it with the twin pools called the "Souterrains," under the convent of the Sisters of Zion, situated in what must have been the rock-hewn ditch between Bezetha and the fortress of Antonia. But quite recently Schick has discovered a large tank, as sketched here, situated about 100 feet north-west of St. Anne`s Church, which is, as he contends, very probably the Pool of Bethesda. No certainty as to its identification, however, has as yet been arrived at. (See FOUNTAIN ; GIHON .)
+
+## Beth-gamul
+
+camel-house, a city in the "plain country" of Moab denounced by the prophet (Jer. 48:23); probably the modern Um-el-Jemal, near Bozrah, one of the deserted cities of the Hauran.
+
+## Beth-gilgal
+
+house of Gilgal, a place from which the inhabitants gathered for the purpose of celebrating the rebuilding of the walls on the return exile (Neh. 12:29). (See GILGAL .)
+
+## Beth-haccerem
+
+house of a vineyard, a place in the tribe of Judah (Neh. 3:14) where the Benjamites were to set up a beacon when they heard the trumpet against the invading army of the Babylonians (Jer. 6:1). It is probable that this place is the modern `Ain Karim, or "well of the vineyards," near which there is a ridge on which are cairns which may have served as beacons of old, one of which is 40 feet high and 130 in diameter.
+
+## Beth-horon
+
+house of the hollow, or of the cavern, the name of two towns or villages (2 Chr. 8:5; 1 Chr. 7:24) in the territory of Ephraim, on the way from Jerusalem to Joppa. They are distinguished as Beth-horon "the upper" and Beth-horon "the nether." They are about 2 miles apart, the former being about 10 miles north-west of Jerusalem. Between the two places was the ascent and descent of Beth-horon, leading from Gibeon down to the western plain (Josh. 10:10, 11; 18:13, 14), down which the five kings of the Amorites were driven by Joshua in that great battle, the most important in which the Hebrews had been as yet engaged, being their first conflict with their enemies in the open field. Jehovah interposed in behalf of Israel by a terrific hailstorm, which caused more deaths among the Canaanites than did the swords of the Israelites. Beth-horon is mentioned as having been taken by Shishak, B.C. 945, in the list of his conquests, and the pass was the scene of a victory of Judas Maccabeus. (Comp. Ex. 9:19, 25; Job 38:22, 23; Ps. 18:12-14; Isa. 30:30.) The modern name of these places is Beit-ur, distinguished by el-Foka, "the upper," and el-Tahta, "the nether." The lower was at the foot of the pass, and the upper, 500 feet higher, at the top, west of Gibeon. (See GIBEON .)
+
+## Beth-jeshimoth
+
+house of wastes, or deserts, a town near Abel-shittim, east of Jordan, in the desert of Moab, where the Israelites encamped not long before crossing the Jordan (Num. 33:49; A.V., "Bethjesimoth"). It was within the territory of Sihon, king of the Amorites (Josh. 12:3).
+
+## Beth-le-Aphrah
+
+(R.V. Micah 1:10), house of dust. The Authorized Version reads "in the house of Aphrah." This is probably the name of a town in the Shephelah, or "low country," between Joppa and Gaza.
+
+## Bethlehem
+
+house of bread. (1.) A city in the "hill country" of Judah. It was originally called Ephrath (Gen. 35:16, 19; 48:7; Ruth 4:11). It was also called Beth-lehem Ephratah (Micah 5:2), Beth-lehem-judah (1 Sam. 17:12), and "the city of David" (Luke 2:4). It is first noticed in Scripture as the place where Rachel died and was buried "by the wayside," directly to the north of the city (Gen. 48:7). The valley to the east was the scene of the story of Ruth the Moabitess. There are the fields in which she gleaned, and the path by which she and Naomi returned to the town. Here was David`s birth-place, and here also, in after years, he was anointed as king by Samuel (1 Sam. 16:4-13); and it was from the well of Bethlehem that three of his heroes brought water for him at the risk of their lives when he was in the cave of Adullam (2 Sam. 23:13-17). But it was distinguished above every other city as the birth-place of "Him whose goings forth have been of old" (Matt. 2:6; comp. Micah 5:2). Afterwards Herod, "when he saw that he was mocked of the wise men," sent and slew "all the children that were in Bethlehem, and in all the coasts thereof, from two years old and under" (Matt. 2:16, 18; Jer. 31:15).    Bethlehem bears the modern name of Beit-Lahm, i.e., "house of flesh." It is about 5 miles south of Jerusalem, standing at an elevation of about 2,550 feet above the sea, thus 100 feet higher than Jerusalem.    There is a church still existing, built by Constantine the Great (A.D. 330), called the "Church of the Nativity," over a grotto or cave called the "holy crypt," and said to be the "stable" in which Jesus was born. This is perhaps the oldest existing Christian church in the world. Close to it is another grotto, where Jerome the Latin father is said to have spent thirty years of his life in translating the Scriptures into Latin. (See VERSION .)    (2.) A city of Zebulun, mentioned only in Josh. 19:15. Now Beit-Lahm, a ruined village about 6 miles west-north-west of Nazareth.
+
+## Beth-peor
+
+house of Peor; i.e., "temple of Baal-peor", a place in Moab, on the east of Jordan, opposite Jericho. It was in the tribe of Reuben (Josh. 13:20; Deut. 3:29; 4:46). In the "ravine" or valley over against Beth-peor Moses was probably buried (Deut. 34:6).
+
+## Beth-phage
+
+house of the unripe fig, a village on the Mount of Olives, on the road from Jerusalem to Jericho (Matt. 21:1; Mark 11:1; Luke 19:29), and very close to Bethany. It was the limit of a Sabbath-day`s journey from Jerusalem, i.e., 2,000 cubits. It has been identified with the modern Kefr-et-Tur.
+
+## Bethsaida
+
+house of fish. (1.) A town in Galilee, on the west side of the sea of Tiberias, in the "land of Gennesaret." It was the native place of Peter, Andrew, and Philip, and was frequently resorted to by Jesus (Mark 6:45; John 1:44; 12:21). It is supposed to have been at the modern `Ain Tabighah, a bay to the north of Gennesaret.    (2.) A city near which Christ fed 5,000 (Luke 9:10; comp. John 6:17; Matt. 14:15-21), and where the blind man had his sight restored (Mark 8:22), on the east side of the lake, two miles up the Jordan. It stood within the region of Gaulonitis, and was enlarged by Philip the tetrarch, who called it "Julias," after the emperor`s daughter. Or, as some have supposed, there may have been but one Bethsaida built on both sides of the lake, near where the Jordan enters it. Now the ruins et-Tel.
+
+## Beth-shean
+
+house of security or rest, a city which belonged to Manasseh (1 Chr. 7:29), on the west of Jordan. The bodies of Saul and his sons were fastened to its walls. In Solomon`s time it gave its name to a district (1 Kings 4:12). The name is found in an abridged form, Bethshan, in 1 Sam. 31:10, 12 and 2 Sam. 21:12. It is on the road from Jerusalem to Damascus, about 5 miles from the Jordan, and 14 from the south end of the Lake of Gennesaret. After the Captivity it was called Scythopolis, i.e., "the city of the Scythians," who about B.C. 640 came down from the steppes of Southern Russia and settled in different places in Syria. It is now called Beisan.
+
+## Beth-shemesh
+
+house of the sun. (1.) A sacerdotal city in the tribe of Dan (Josh. 21:16; 1 Sam. 6:15), on the north border of Judah (Josh. 15:10). It was the scene of an encounter between Jehoash, king of Israel, and Amaziah, king of Judah, in which the latter was made prisoner (2 Kings 14:11, 13). It was afterwards taken by the Philistines (2 Chr. 28:18). It is the modern ruined Arabic village `Ain-shems, on the north-west slopes of the mountains of Judah, 14 miles west of Jerusalem.    (2.) A city between Dothan and the Jordan, near the southern border of Issachar (Josh. 19:22), 7 1/2 miles south of Beth-shean. It is the modern Ain-esh-Shemsiyeh.    (3.) One of the fenced cities of Naphtali (Josh. 19:38), between Mount Tabor and the Jordan. Now Khurbet Shema, 3 miles west of Safed. But perhaps the same as No. 2.    (4.) An idol sanctuary in Egypt (Jer. 43:13); called by the Greeks Heliopolis, and by the Egyptians On (q.v.), Gen. 41:45.
+
+## Beth-tappuah
+
+house of apples, a town of Judah, now Tuffuh, 5 miles west of Hebron (Josh. 15:53).
+
+## Bethuel
+
+man of God, or virgin of God, or house of God. (1.) The son of Nahor by Milcah; nephew of Abraham, and father of Rebekah (Gen. 22:22, 23; 24:15, 24, 47). He appears in person only once (24:50).    (2.) A southern city of Judah (1 Chr. 4:30); called also Bethul (Josh. 19:4) and Bethel (12:16; 1 Sam. 30:27).
+
+## Bethzur
+
+house of rock, a town in the mountains of Judah (Josh. 15:58), about 4 miles to the north of Hebron. It was built by Rehoboam for the defence of his kingdom (2 Chr. 11:7). It stood near the modern ed-Dirweh. Its ruins are still seen on a hill which bears the name of Beit-Sur, and which commands the road from Beer-sheba and Hebron to Jerusalem from the south.
+
+## Betroth
+
+to promise "by one`s truth." Men and women were betrothed when they were engaged to be married. This usually took place a year or more before marriage. From the time of betrothal the woman was regarded as the lawful wife of the man to whom she was betrothed (Deut. 28:30; Judg. 14:2, 8; Matt. 1:18-21). The term is figuratively employed of the spiritual connection between God and his people (Hos. 2:19, 20).
+
+## Beulah
+
+married, is used in Isa. 62:4 metaphorically as the name of Judea: "Thy land shall be married," i.e., favoured and blessed of the Lord.
+
+## Bewray
+
+to reveal or disclose; an old English word equivalent to "betray" (Prov. 27:16; 29:24, R.V., "uttereth;" Isa. 16:3; Matt. 26:73).
+
+## Beyond
+
+when used with reference to Jordan, signifies in the writings of Moses the west side of the river, as he wrote on the east bank (Gen. 50:10, 11; Deut. 1:1, 5; 3:8, 20; 4:46); but in the writings of Joshua, after he had crossed the river, it means the east side (Josh. 5:1; 12:7; 22:7).
+
+## Bezaleel
+
+in the shadow of God; i.e., "under his protection", the artificer who executed the work of art in connection with the tabernacle in the wilderness (Ex. 31:2; 35:30). He was engaged principally in works of metal, wood, and stone; while Aholiab, who was associated with him and subordinate to him, had the charge of the textile fabrics (36:1, 2; 38:22). He was of the tribe of Judah, the son of Uri, and grandson of Hur (31:2). Mention is made in Ezra 10:30 of another of the same name.
+
+## Bezek
+
+lightning. (1.) The residence of Adoni-bezek, in the lot of Judah (Judg. 1:5). It was in the mountains, not far from Jerusalem. Probably the modern Bezkah, 6 miles south-east of Lydda.    (2.) The place where Saul numbered the forces of Israel and Judah (1 Sam. 11:8); somewhere in the centre of the country, near the Jordan valley. Probably the modern Ibzik, 13 miles north-east of Shechem.
+
+## Bezer
+
+ore of gold or silver. (1.) A city of the Reubenites; one of the three cities of refuge on the east of Jordan (Deut. 4: 43; Josh. 20:8). It has been identified with the modern ruined village of Burazin, some 12 miles north of Heshbon; also with Kasur-el-Besheir, 2 miles south-west of Dibon.    (2.) A descendant of Asher (1 Chr. 7:37).
+
+## Bible
+
+Bible, the English form of the Greek name _Biblia_, meaning "books," the name which in the fifth century began to be given to the entire collection of sacred books, the "Library of Divine Revelation." The name Bible was adopted by Wickliffe, and came gradually into use in our English language. The Bible consists of sixty-six different books, composed by many different writers, in three different languages, under different circumstances; writers of almost every social rank, statesmen and peasants, kings, herdsmen, fishermen, priests, tax-gatherers, tentmakers; educated and uneducated, Jews and Gentiles; most of them unknown to each other, and writing at various periods during the space of about 1600 years: and yet, after all, it is only one book dealing with only one subject in its numberless aspects and relations, the subject of man`s redemption.    It is divided into the Old Testament, containing thirty-nine books, and the New Testament, containing twenty-seven books. The names given to the Old in the writings of the New are "the scriptures" (Matt. 21:42), "scripture" (2 Pet. 1:20), "the holy scriptures" (Rom. 1:2), "the law" (John 12:34), "the law of Moses, the prophets, and the psalms" (Luke 24:44), "the law and the prophets" (Matt. 5:17), "the old covenant" (2 Cor. 3:14, R.V.). There is a break of 400 years between the Old Testament and the New. (See APOCRYPHA .)    The Old Testament is divided into three parts:, 1. The Law (Torah), consisting of the Pentateuch, or five books of Moses. 2. The Prophets, consisting of (1) the former, namely, Joshua, Judges, the Books of Samuel, and the Books of Kings; (2) the latter, namely, the greater prophets, Isaiah, Jeremiah, and Ezekiel, and the twelve minor prophets. 3. The Hagiographa, or holy writings, including the rest of the books. These were ranked in three divisions:, (1) The Psalms, Proverbs, and Job, distinguished by the Hebrew name, a word formed of the initial letters of these books, _emeth_, meaning truth. (2) Canticles, Ruth, Lamentations, Ecclesiastes, and Esther, called the five rolls, as being written for the synagogue use on five separate rolls. (3) Daniel, Ezra, Nehemiah, and 1 and 2 Chronicles. Between the Old and the New Testament no addition was made to the revelation God had already given. The period of New Testament revelation, extending over a century, began with the appearance of John the Baptist.    The New Testament consists of (1) the historical books, viz., the Gospels, and the Acts of the Apostles; (2) the Epistles; and (3) the book of prophecy, the Revelation.    The division of the Bible into chapters and verses is altogether of human invention, designed to facilitate reference to it. The ancient Jews divided the Old Testament into certain sections for use in the synagogue service, and then at a later period, in the ninth century A.D., into verses. Our modern system of chapters for all the books of the Bible was introduced by Cardinal Hugo about the middle of the thirteenth century (he died 1263). The system of verses for the New Testament was introduced by Stephens in 1551, and generally adopted, although neither Tyndale`s nor Coverdale`s English translation of the Bible has verses. The division is not always wisely made, yet it is very useful. (See VERSION .)
+
+## Bier
+
+the frame on which dead bodies were conveyed to the grave (Luke 7:14).
+
+## Bigtha
+
+garden, or gift of fortune, one of the seven eunuchs or chamberlains who had charge of the harem of Ahasuerus (Esther 1:10).
+
+## Bigthan
+
+one of the eunuchs who "kept the door" in the court of Ahasuerus. With Teresh he conspired against the king`s life. Mordecai detected the conspiracy, and the culprits were hanged (Esther 2:21-23; 6:1-3).
+
+## Bildad
+
+son of contention, one of Job`s friends. He is called "the Shuhite," probably as belonging to Shuah, a district in Arabia, in which Shuah, the sixth son of Abraham by Keturah, settled (Gen. 25:2). He took part in each of the three controversies into which Job`s friends entered with him (Job 8:1; 18:1; 25:1), and delivered three speeches, very severe and stern in their tone, although less violent than those of Zophar, but more so than those of Eliphaz.
+
+## Bilgah
+
+cheerful. (1.) The head of the fifteenth sacerdotal course for the temple service (1 Chr. 24:14). (2.) A priest who returned from Babylon with Zerubbabel (Neh. 12:5, 18).
+
+## Bilhah
+
+faltering; bashful, Rachel`s handmaid, whom she gave to Jacob (Gen. 29:29). She was the mother of Dan and Naphtali (Gen. 30:3-8). Reuben was cursed by his father for committing adultry with her (35:22; 49:4). He was deprived of the birth-right, which was given to the sons of Joseph.
+
+## Bilshan
+
+son of the tongue; i.e., "eloquent", a man of some note who returned from the Captivity with Zerubbabel (Ezra 2:2; Neh. 7:7).
+
+## Bird
+
+Birds are divided in the Mosaic law into two classes, (1) the clean (Lev. 1:14-17; 5:7-10; 14:4-7), which were offered in sacrifice; and (2) the unclean (Lev. 11:13-20). When offered in sacrifice, they were not divided as other victims were (Gen. 15:10). They are mentioned also as an article of food (Deut. 14:11). The art of snaring wild birds is referred to (Ps. 124:7; Prov. 1:17; 7:23; Jer. 5:27). Singing birds are mentioned in Ps. 104:12; Eccl. 12:4. Their timidity is alluded to (Hos. 11:11). The reference in Ps. 84:3 to the swallow and the sparrow may be only a comparison equivalent to, "What her house is to the sparrow, and her nest to the swallow, that thine altars are to my soul."
+
+## Birsha
+
+son of wickedness, a king of Gomorrah whom Abraham succoured in the invasion of Chedorlaomer (Gen. 14:2).
+
+## Birth
+
+As soon as a child was born it was washed, and rubbed with salt (Ezek. 16:4), and then swathed with bandages (Job 38:9; Luke 2:7, 12). A Hebrew mother remained forty days in seclusion after the birth of a son, and after the birth of a daughter double that number of days. At the close of that period she entered into the tabernacle or temple and offered up a sacrifice of purification (Lev. 12:1-8; Luke 2:22). A son was circumcised on the eighth day after his birth, being thereby consecrated to God (Gen. 17:10-12; comp. Rom. 4:11). Seasons of misfortune are likened to the pains of a woman in travail, and seasons of prosperity to the joy that succeeds child-birth (Isa. 13:8; Jer. 4:31; John 16:21, 22). The natural birth is referred to as the emblem of the new birth (John 3:3-8; Gal. 6:15; Titus 3:5, etc.).
+
+## Birth-day
+
+The observance of birth-days was common in early times (Job 1:4, 13, 18). They were specially celebrated in the land of Egypt (Gen. 40:20). There is no recorded instance in Scripture of the celebration of birth-days among the Jews. On the occasion of Herod`s birth-day John the Baptist was beheaded (Matt. 14:6).
+
+## Birthright
+
+(1.) This word denotes the special privileges and advantages belonging to the first-born son among the Jews. He became the priest of the family. Thus Reuben was the first-born of the patriarchs, and so the priesthood of the tribes belonged to him. That honour was, however, transferred by God from Reuben to Levi (Num. 3:12, 13; 8:18).    (2.) The first-born son had allotted to him also a double portion of the paternal inheritance (Deut. 21:15-17). Reuben was, because of his undutiful conduct, deprived of his birth-right (Gen. 49:4; 1 Chr. 5:1). Esau transferred his birth-right to Jacob (Gen. 25:33).    (3.) The first-born inherited the judicial authority of his father, whatever it might be (2 Chr. 21:3). By divine appointment, however, David excluded Adonijah in favour of Solomon.    (4.) The Jews attached a sacred importance to the rank of "first-born" and "first-begotten" as applied to the Messiah (Rom. 8:29; Col. 1:18; Heb. 1:4-6). As first-born he has an inheritance superior to his brethren, and is the alone true priest.
+
+## Bishop
+
+an overseer. In apostolic times, it is quite manifest that there was no difference as to order between bishops and elders or presbyters (Acts 20:17-28; 1 Pet. 5:1, 2; Phil. 1:1; 1 Tim. 3). The term bishop is never once used to denote a different office from that of elder or presbyter. These different names are simply titles of the same office, "bishop" designating the function, namely, that of oversight, and "presbyter" the dignity appertaining to the office. Christ is figuratively called "the bishop [episcopos] of souls" (1 Pet. 2:25).
+
+## Bit
+
+the curb put into the mouths of horses to restrain them. The Hebrew word (metheg) so rendered in Ps. 32:9 is elsewhere translated "bridle" (2 Kings 19:28; Prov. 26:3; Isa. 37:29). Bits were generally made of bronze or iron, but sometimes also of gold or silver. In James 3:3 the Authorized Version translates the Greek word by "bits," but the Revised Version by "bridles."
+
+## Bith-ron
+
+the broken or divided place, a district in the Arabah or Jordan valley, on the east of the river (2 Sam. 2:29). It was probably the designation of the region in general, which is broken and intersected by ravines.
+
+## Bithynia
+
+a province in Asia Minor, to the south of the Euxine and Propontis. Christian congregations were here formed at an early time (1 Pet. 1:1). Paul was prevented by the Spirit from entering this province (Acts 16:7). It is noted in church history as the province ruled over by Pliny as Roman proconsul, who was perplexed as to the course he should take with the numerous Christians brought before his tribunal on account of their profession of Christianity and their conduct, and wrote to Trajan, the emperor, for instructions (A.D. 107).
+
+## Bitter
+
+Bitterness is symbolical of affliction, misery, and servitude (Ex. 1:14; Ruth 1:20; Jer. 9:15). The Chaldeans are called the "bitter and hasty nation" (Hab. 1:6). The "gall of bitterness" expresses a state of great wickedness (Acts 8:23). A "root of bitterness" is a wicked person or a dangerous sin (Heb. 12:15).    The Passover was to be eaten with "bitter herbs" (Ex. 12:8; Num. 9:11). The kind of herbs so designated is not known. Probably they were any bitter herbs obtainable at the place and time when the Passover was celebrated. They represented the severity of the servitude under which the people groaned; and have been regarded also as typical of the sufferings of Christ.
+
+## Bittern
+
+is found three times in connection with the desolations to come upon Babylon, Idumea, and Nineveh (Isa. 14:23; 34:11; Zeph. 2:14). This bird belongs to the class of cranes. Its scientific name is Botaurus stellaris. It is a solitary bird, frequenting marshy ground. The Hebrew word (kippod) thus rendered in the Authorized Version is rendered "porcupine" in the Revised Version. But in the passages noted the kippod is associated with birds, with pools of water, and with solitude and desolation. This favours the idea that not the "porcupine" but the "bittern" is really intended by the word.
+
+## Bitumen
+
+Gen. 11:3, R.V., margin, rendered in the A.V. "slime"), a mineral pitch. With this the ark was pitched (6:14. See also Ex. 2:3.) (See SLIME .)
+
+## Black
+
+properly the absence of all colour. In Prov. 7:9 the Hebrew word means, as in the margin of the Revised Version, "the pupil of the eye." It is translated "apple" of the eye in Deut. 32:10; Ps. 17:8; Prov. 7:2. It is a different word which is rendered "black" in Lev. 13:31,37; Cant. 1:5; 5:11; and Zech. 6:2, 6. It is uncertain what the "black marble" of Esther 1:6 was which formed a part of the mosaic pavement.
+
+## Blade
+
+applied to the glittering point of a spear (Job 39:23) or sword (Nah. 3:3), the blade of a dagger (Judg. 3:22); the "shoulder blade" (Job 31:22); the "blade" of cereals (Matt. 13:26).
+
+## Blains
+
+occurs only in connection with the sixth plague of Egypt (Ex. 9:9, 10). In Deut. 28:27, 35, it is called "the botch of Egypt." It seems to have been the fearful disease of black leprosy, a kind of elephantiasis, producing burning ulcers.
+
+## Blasphemy
+
+In the sense of speaking evil of God this word is found in Ps. 74:18; Isa. 52:5; Rom. 2:24; Rev. 13:1, 6; 16:9, 11, 21. It denotes also any kind of calumny, or evil-speaking, or abuse (1 Kings 21:10; Acts 13:45; 18:6, etc.). Our Lord was accused of blasphemy when he claimed to be the Son of God (Matt. 26:65; comp. Matt. 9:3; Mark 2:7). They who deny his Messiahship blaspheme Jesus (Luke 22:65; John 10:36).    Blasphemy against the Holy Ghost (Matt. 12:31, 32; Mark 3:28, 29; Luke 12:10) is regarded by some as a continued and obstinate rejection of the gospel, and hence is an unpardonable sin, simply because as long as a sinner remains in unbelief he voluntarily excludes himself from pardon. Others regard the expression as designating the sin of attributing to the power of Satan those miracles which Christ performed, or generally those works which are the result of the Spirit`s agency.
+
+## Blastus
+
+chamberlain to king Herod Agrippa I. (Acts 12:20). Such persons generally had great influence with their masters.
+
+## Blemish
+
+imperfection or bodily deformity excluding men from the priesthood, and rendering animals unfit to be offered in sacrifice (Lev. 21:17-23; 22:19-25). The Christian church, as justified in Christ, is "without blemish" (Eph. 5:27). Christ offered himself a sacrifice "without blemish," acceptable to God (1 Pet. 1:19).
+
+## Bless
+
+(1.) God blesses his people when he bestows on them some gift temporal or spiritual (Gen. 1:22; 24:35; Job 42:12; Ps. 45:2; 104:24, 35).    (2.) We bless God when we thank him for his mercies (Ps. 103:1, 2; 145:1, 2).    (3.) A man blesses himself when he invokes God`s blessing (Isa. 65:16), or rejoices in God`s goodness to him (Deut. 29:19; Ps. 49:18).    (4.) One blesses another when he expresses good wishes or offers prayer to God for his welfare (Gen. 24:60; 31:55; 1 Sam. 2:20). Sometimes blessings were uttered under divine inspiration, as in the case of Noah, Isaac, Jacob, and Moses (Gen. 9:26, 27; 27:28, 29, 40; 48:15-20; 49:1-28; Deut. 33). The priests were divinely authorized to bless the people (Deut. 10:8; Num. 6:22-27). We have many examples of apostolic benediction (2 Cor. 13:14; Eph. 6:23, 24; 2 Thess. 3:16, 18; Heb. 13:20, 21; 1 Pet. 5:10, 11).    (5.) Among the Jews in their thank-offerings the master of the feast took a cup of wine in his hand, and after having blessed God for it and for other mercies then enjoyed, handed it to his guests, who all partook of it. Ps. 116:13 refers to this custom. It is also alluded to in 1 Cor. 10:16, where the apostle speaks of the "cup of blessing."
+
+## Blind
+
+Blind beggars are frequently mentioned (Matt. 9:27; 12:22; 20:30; John 5:3). The blind are to be treated with compassion (Lev. 19:14; Deut. 27:18). Blindness was sometimes a punishment for disobedience (1 Sam. 11:2; Jer. 39:7), sometimes the effect of old age (Gen. 27:1; 1 Kings 14:4; 1 Sam. 4:15). Conquerors sometimes blinded their captives (2 Kings 25:7; 1 Sam. 11:2). Blindness denotes ignorance as to spiritual things (Isa. 6:10; 42:18, 19; Matt. 15:14; Eph. 4:18). The opening of the eyes of the blind is peculiar to the Messiah (Isa. 29:18). Elymas was smitten with blindness at Paul`s word (Acts 13:11).
+
+## Blood
+
+(1.) As food, prohibited in Gen. 9:4, where the use of animal food is first allowed. Comp. Deut. 12:23; Lev. 3:17; 7:26; 17:10-14. The injunction to abstain from blood is renewed in the decree of the council of Jerusalem (Acts 15:29). It has been held by some, and we think correctly, that this law of prohibition was only ceremonial and temporary; while others regard it as still binding on all. Blood was eaten by the Israelites after the battle of Gilboa (1 Sam. 14:32-34).    (2.) The blood of sacrifices was caught by the priest in a basin, and then sprinkled seven times on the altar; that of the passover on the doorposts and lintels of the houses (Ex. 12; Lev. 4:5-7; 16:14-19). At the giving of the law (Ex. 24:8) the blood of the sacrifices was sprinkled on the people as well as on the altar, and thus the people were consecrated to God, or entered into covenant with him, hence the blood of the covenant (Matt. 26:28; Heb. 9:19, 20; 10:29; 13:20).    (3.) Human blood. The murderer was to be punished (Gen. 9:5). The blood of the murdered "crieth for vengeance" (Gen. 4:10). The "avenger of blood" was the nearest relative of the murdered, and he was required to avenge his death (Num. 35:24, 27). No satisfaction could be made for the guilt of murder (Num. 35:31).    (4.) Blood used metaphorically to denote race (Acts 17:26), and as a symbol of slaughter (Isa. 34:3). To "wash the feet in blood" means to gain a great victory (Ps. 58:10). Wine, from its red colour, is called "the blood of the grape" (Gen. 49:11). Blood and water issued from our Saviour`s side when it was pierced by the Roman soldier (John 19:34). This has led pathologists to the conclusion that the proper cause of Christ`s death was rupture of the heart. (Comp. Ps. 69:20.)
+
+## Bloody sweat
+
+the sign and token of our Lord`s great agony (Luke 22:44).
+
+## Blot
+
+a stain or reproach (Job 31:7; Prov. 9:7). To blot out sin is to forgive it (Ps. 51:1, 9; Isa. 44:22; Acts 3:19). Christ`s blotting out the handwriting of ordinances was his fulfilling the law in our behalf (Col. 2:14).
+
+## Blue
+
+generally associated with purple (Ex. 25:4; 26:1, 31, 36, etc.). It is supposed to have been obtained from a shellfish of the Mediterranean, the Helix ianthina of Linnaeus. The robe of the high priest`s ephod was to be all of this colour (Ex. 28:31), also the loops of the curtains (26:4) and the ribbon of the breastplate (28:28). Blue cloths were also made for various sacred purposes (Num. 4:6, 7, 9, 11, 12). (See COLOUR .)
+
+## Boanerges
+
+sons of thunder, a surname given by our Lord to James and John (Mark 3:17) on account of their fervid and impetuous temper (Luke 9:54).
+
+## Boar
+
+occurs only in Ps. 80:13. The same Hebrew word is elsewhere rendered "swine" (Lev. 11:7; Deut. 14:8; Prov. 11:22; Isa. 65:4; 66:3, 17). The Hebrews abhorred swine`s flesh, and accordingly none of these animals were reared, except in the district beyond the Sea of Galilee. In the psalm quoted above the powers that destroyed the Jewish nation are compared to wild boars and wild beasts of the field.
+
+## Boaz
+
+alacrity. (1.) The husband of Ruth, a wealthy Bethlehemite. By the "levirate law" the duty devolved on him of marrying Ruth the Moabitess (Ruth 4:1-13). He was a kinsman of Mahlon, her first husband.    (2.) The name given (for what reason is unknown) to one of the two (the other was called Jachin) brazen pillars which Solomon erected in the court of the temple (1 Kings 7:21; 2 Chr. 3:17). These pillars were broken up and carried to Babylon by Nebuchadnezzar.
+
+## Bochim
+
+weepers, a place where the angel of the Lord reproved the Israelites for entering into a league with the people of the land. This caused them bitterly to weep, and hence the name of the place (Judg. 2:1, 5). It lay probably at the head of one of the valleys between Gilgal and Shiloh.
+
+## Boil
+
+(rendered "botch" in Deut. 28:27, 35), an aggravated ulcer, as in the case of Hezekiah (2 Kings 20:7; Isa. 38:21) or of the Egyptians (Ex. 9:9, 10, 11; Deut. 28:27, 35). It designates the disease of Job (2:7), which was probably the black leprosy.
+
+## Bolled
+
+(Ex. 9:31), meaning "swollen or podded for seed," was adopted in the Authorized Version from the version of Coverdale (1535). The Revised Version has in the margin "was in bloom," which is the more probable rendering of the Hebrew word. It is the fact that in Egypt when barley is in ear (about February) flax is blossoming.
+
+## Bolster
+
+The Hebrew word _kebir_, rendered "pillow" in 1 Sam. 19:13, 16, but in Revised Version marg. "quilt" or "network," probably means some counterpane or veil intended to protect the head of the sleeper. A different Hebrew word (meraashoth`) is used for "bolster" (1 Sam. 26:7, 11, 16). It is rightly rendered in Revised Version "at his head." In Gen. 28:11, 18 the Authorized Version renders it "for his pillows," and the Revised Version "under his head." In Ezek. 13:18, 20 another Hebrew word (kesathoth) is used, properly denoting "cushions" or "pillows," as so rendered both in the Authorized and the Revised Version.
+
+## Bond
+
+an obligation of any kind (Num. 30:2, 4, 12). The word means also oppression or affliction (Ps. 116:16; Phil. 1:7). Christian love is the "bond of perfectness" (Col. 3:14), and the influences of the Spirit are the "bond of peace" (Eph. 4:3).
+
+## Bondage
+
+of Israel in Egypt (Ex. 2:23, 25; 5), which is called the "house of bondage" (13:3; 20:2). This word is used also with reference to the captivity in Babylon (Isa. 14:3), and the oppression of the Persian king (Ezra 9:8, 9).
+
+## Bonnet
+
+(Heb. peer), Ex. 39:28 (R.V., "head-tires"); Ezek. 44:18 (R.V., "tires"), denotes properly a turban worn by priests, and in Isa. 3:20 (R.V., "head-tires") a head-dress or tiara worn by females. The Hebrew word so rendered literally means an ornament, as in Isa. 61:10 (R.V., "garland"), and in Ezek. 24:17, 23 "tire" (R.V., "head-tire"). It consisted of a piece of cloth twisted about the head. In Ex. 28:40; 29:9 it is the translation of a different Hebrew word (migba`ah), which denotes the turban (R.V., "head-tire") of the common priest as distinguished from the mitre of the high priest. (See MITRE .)
+
+## Book
+
+This word has a comprehensive meaning in Scripture. In the Old Testament it is the rendering of the Hebrew word _sepher_, which properly means a "writing," and then a "volume" (Ex. 17:14; Deut. 28:58; 29:20; Job 19:23) or "roll of a book" (Jer. 36:2, 4).    Books were originally written on skins, on linen or cotton cloth, and on Egyptian papyrus, whence our word "paper." The leaves of the book were generally written in columns, designated by a Hebrew word properly meaning "doors" and "valves" (Jer. 36:23, R.V., marg. "columns").    Among the Hebrews books were generally rolled up like our maps, or if very long they were rolled from both ends, forming two rolls (Luke 4:17-20). Thus they were arranged when the writing was on flexible materials; but if the writing was on tablets of wood or brass or lead, then the several tablets were bound together by rings through which a rod was passed.    A sealed book is one whose contents are secret (Isa. 29:11; Rev. 5:1-3). To "eat" a book (Jer. 15:16; Ezek. 2:8-10; 3:1-3; Rev. 10:9) is to study its contents carefully.    The book of judgment (Dan. 7:10) refers to the method of human courts of justice as illustrating the proceedings which will take place at the day of God`s final judgment.  The book of the wars of the Lord (Num. 21:14), the book of Jasher (Josh. 10:13), and the book of the chronicles of the kings of Judah and Israel (2 Chr. 25:26), were probably ancient documents known to the Hebrews, but not forming a part of the canon.    The book of life (Ps. 69:28) suggests the idea that as the redeemed form a community or citizenship (Phil. 3:20; 4:3), a catalogue of the citizens` names is preserved (Luke 10:20; Rev. 20:15). Their names are registered in heaven (Luke 10:20; Rev. 3:5).    The book of the covenant (Ex. 24:7), containing Ex. 20:22-23:33, is the first book actually mentioned as a part of the written word. It contains a series of laws, civil, social, and religious, given to Moses at Sinai immediately after the delivery of the decalogue. These were written in this "book."
+
+## Booth
+
+a hut made of the branches of a tree. In such tabernacles Jacob sojourned for a season at a place named from this circumstance Succoth (Gen. 33:17). Booths were erected also at the feast of Tabernacles (q.v.), Lev. 23:42, 43, which commemorated the abode of the Israelites in the wilderness.
+
+## Booty
+
+captives or cattle or objects of value taken in war. In Canaan all that breathed were to be destroyed (Deut. 20: 16). The "pictures and images" of the Canaanites were to be destroyed also (Num. 33:52). The law of booty as to its division is laid down in Num. 31:26-47. David afterwards introduced a regulation that the baggage-guard should share the booty equally with the soldiers engaged in battle. He also devoted of the spoils of war for the temple (1 Sam. 30:24-26; 2 Sam. 8:11; 1 Chr. 26:27).
+
+## Borrow
+
+The Israelites "borrowed" from the Egyptians (Ex. 12:35, R.V., "asked") in accordance with a divine command (3:22; 11:2). But the word (sha`al) so rendered here means simply and always to "request" or "demand." The Hebrew had another word which is properly translated "borrow" in Deut. 28:12; Ps. 37:21. It was well known that the parting was final. The Egyptians were so anxious to get the Israelites away out of their land that "they let them have what they asked" (Ex. 12:36, R.V.), or literally "made them to ask," urged them to take whatever they desired and depart. (See LOAN .)
+
+## Bosom
+
+In the East objects are carried in the bosom which Europeans carry in the pocket. To have in one`s bosom indicates kindness, secrecy, or intimacy (Gen. 16:5; 2 Sam. 12:8). Christ is said to have been in "the bosom of the Father," i.e., he had the most perfect knowledge of the Father, had the closest intimacy with him (John 1:18). John (13:23) was "leaning on Jesus` bosom" at the last supper. Our Lord carries his lambs in his bosom, i.e., has a tender, watchful care over them (Isa. 40:11).
+
+## Bosor
+
+the Chaldee or Aramaic form of the name Beor, the father of Balaam (2 Pet. 2:15).
+
+## Bosses
+
+the projecting parts of a shield (Job 15:26). The Hebrew word thus rendered means anything convex or arched, and hence the back, as of animals.
+
+## Botch
+
+the name given in Deut. 28:27, 35 to one of the Egyptian plagues (Ex. 9:9). The word so translated is usually rendered "boil" (q.v.).
+
+## Bottle
+
+a vessel made of skins for holding wine (Josh. 9:4. 13; 1 Sam. 16:20; Matt. 9:17; Mark 2:22; Luke 5:37, 38), or milk (Judg. 4:19), or water (Gen. 21:14, 15, 19), or strong drink (Hab. 2:15).    Earthenware vessels were also similarly used (Jer. 19:1-10; 1 Kings 14:3; Isa. 30:14). In Job 32:19 (comp. Matt. 9:17; Luke 5:37, 38; Mark 2:22) the reference is to a wine-skin ready to burst through the fermentation of the wine. "Bottles of wine" in the Authorized Version of Hos. 7:5 is properly rendered in the Revised Version by "the heat of wine," i.e., the fever of wine, its intoxicating strength.    The clouds are figuratively called the "bottles of heaven" (Job 38:37). A bottle blackened or shrivelled by smoke is referred to in Ps. 119:83 as an image to which the psalmist likens himself.
+
+## Bow
+
+The bow was in use in early times both in war and in the chase (Gen. 21:20; 27:3; 48:22). The tribe of Benjamin were famous for the use of the bow (1 Chr. 8:40; 12:2; 2 Chr. 14:8; 17:17); so also were the Elamites (Isa. 22:6) and the Lydians (Jer. 46:9). The Hebrew word commonly used for bow means properly to tread (1 Chr. 5:18; 8:40), and hence it is concluded that the foot was employed in bending the bow. Bows of steel (correctly "copper") are mentioned (2 Sam. 22:35; Ps. 18:34).    The arrows were carried in a quiver (Gen. 27:3; Isa. 22:6; 49:2; Ps. 127:5). They were apparently sometimes shot with some burning material attached to them (Ps. 120:4).    The bow is a symbol of victory (Ps. 7:12). It denotes also falsehood, deceit (Ps. 64:3, 4; Hos. 7:16; Jer. 9:3).    "The use of the bow" in 2 Sam. 1:18 (A.V.) ought to be "the song of the bow," as in the Revised Version.
+
+## Bowels
+
+(Phil. 1:8; 2:1; Col. 3:12), compassionate feelings; R.V., "tender mercies."
+
+## Bowing
+
+a mode of showing respect. Abraham "bowed himself to the people of the land" (Gen. 23:7); so Jacob to Esau (Gen. 33:3); and the brethren of Joseph before him as the governor of the land (Gen. 43:28). Bowing is also frequently mentioned as an act of adoration to idols (Josh. 23:7; 2 Kings 5:18; Judg. 2:19; Isa. 44:15), and to God (Josh. 5:14; Ps. 22:29; 72:9; Micah 6:6; Ps. 95:6; Eph. 3:14).
+
+## Bowl
+
+The sockets of the lamps of the golden candlestick of the tabernacle are called bowls (Ex. 25:31, 33, 34; 37:17, 19, 20); the same word so rendered being elsewhere rendered "cup" (Gen. 44:2, 12, 16), and wine "pot" (Jer. 35:5). The reservoir for oil, from which pipes led to each lamp in Zechariah`s vision of the candlestick, is called also by this name (Zech. 4:2, 3); so also are the vessels used for libations (Ex. 25:29; 37:16).
+
+## Box
+
+for holding oil or perfumery (Mark 14:3). It was of the form of a flask or bottle. The Hebrew word (pak) used for it is more appropriately rendered "vial" in 1 Sam. 10:1, and should also be so rendered in 2 Kings 9:1, where alone else it occurs.
+
+## Box-tree
+
+(Heb. teashshur), mentioned in Isa. 60:13; 41:19, was, according to some, a species of cedar growing in Lebanon. The words of Ezek. 27:6 literally translated are, "Thy benches they have made of ivory, the daughter of the ashur tree," i.e., inlaid with ashur wood. The ashur is the box-tree, and accordingly the Revised Version rightly reads "inlaid in box wood." This is the Buxus sempervirens of botanists. It is remarkable for the beauty of its evergreen foliage and for the utility of its hard and durable wood.
+
+## Bozrah
+
+enclosure; fortress. (1.) The city of Jobab, one of the early Edomite kings (Gen. 36:33). This place is mentioned by the prophets in later times (Isa. 34:6; Jer. 49:13; Amos 1:12; Micah 2:12). Its modern representative is el-Busseireh. It lies in the mountain district of Petra, 20 miles to the south-east of the Dead Sea.    (2.) A Moabite city in the "plain country" (Jer. 48:24), i.e., on the high level down on the east of the Dead Sea. It is probably the modern Buzrah.
+
+## Bracelet
+
+(1.) Anklets (Num. 31:50; 2 Sam. 1:10), and with reference to men.    (2.) The rendering of a Hebrew word meaning fasteners, found in Gen. 24:22, 30, 47.    (3.) In Isa. 3:19, the rendering of a Hebrew word meaning chains, i.e., twisted or chain-like bracelets.    (4.) In Ex. 35:22 it designates properly a clasp for fastening the dress of females. Some interpret it as a nose-ring.    (5.) In Gen. 38:18, 25, the rendering of a Hebrew word meaning "thread," and may denote the ornamental cord with which the signet was suspended from the neck of the wearer.    Bracelets were worn by men as well as by women (Cant. 5:14, R.V.). They were of many various forms. The weight of those presented by Eliezer to Rebekah was ten shekels (Gen. 24:22).
+
+## Bramble
+
+(1.) Hebrew _atad_, Judg. 9:14; rendered "thorn," Ps. 58:9. The LXX. and Vulgate render by rhamnus, a thorny shrub common in Palestine, resembling the hawthorn.    (2.) Hebrew _hoah_, Isa. 34:13 (R.V. "thistles"); "thickets" in 1 Sam. 13:6; "thistles" in 2 Kings 14:9, 2 Chr. 25:18, Job 31:40; "thorns" in 2 Chr. 33:11, Cant. 2:2, Hos. 9:6. The word may be regarded as denoting the common thistle, of which there are many species which encumber the corn-fields of Palestine. (See THORNS .)
+
+## Branch
+
+a symbol of kings descended from royal ancestors (Ezek. 17:3, 10; Dan. 11:7); of prosperity (Job 8:16); of the Messiah, a branch out of the root of the stem of Jesse (Isa. 11:1), the "beautiful branch" (4:2), a "righteous branch" (Jer. 23:5), "the Branch" (Zech. 3:8; 6:12).    Disciples are branches of the true vine (John 15:5, 6). "The branch of the terrible ones" (Isa. 25:5) is rightly translated in the Revised Version "the song of the terrible ones," i.e., the song of victory shall be brought low by the destruction of Babylon and the return of the Jews from captivity.    The "abominable branch" is a tree on which a malefactor has been hanged (Isa. 14:19). The "highest branch" in Ezek. 17:3 represents Jehoiakim the king.
+
+## Brass
+
+which is an alloy of copper and zinc, was not known till the thirteenth century. What is designated by this word in Scripture is properly copper (Deut. 8:9). It was used for fetters (Judg. 16:21; 2 Kings 25:7), for pieces of armour (1 Sam. 17:5, 6), for musical instruments (1 Chr. 15:19; 1 Cor. 13:1), and for money (Matt. 10:9).    It is a symbol of insensibility and obstinacy in sin (Isa. 48:4; Jer. 6:28; Ezek. 22:18), and of strength (Ps. 107:16; Micah 4:13).    The Macedonian empire is described as a kingdom of brass (Dan. 2:39). The "mountains of brass" Zechariah (6:1) speaks of have been supposed to represent the immutable decrees of God.    The serpent of brass was made by Moses at the command of God (Num. 21:4-9), and elevated on a pole, so that it might be seen by all the people when wounded by the bite of the serpents that were sent to them as a punishment for their murmurings against God and against Moses. It was afterwards carried by the Jews into Canaan, and preserved by them till the time of Hezekiah, who caused it to be at length destroyed because it began to be viewed by the people with superstitious reverence (2 Kings 18:4). (See NEHUSHTAN .)    The brazen serpent is alluded to by our Lord in John 3:14, 15. (See SERPENT .)
+
+## Bravery
+
+(Isa. 3:18), an old English word meaning comeliness or beauty.
+
+## Breach
+
+an opening in a wall (1 Kings 11:27; 2 Kings 12:5); the fracture of a limb (Lev. 24:20), and hence the expression, "Heal, etc." (Ps. 60:2). Judg. 5:17, a bay or harbour; R.V., "by his creeks."
+
+## Bread
+
+among the Jews was generally made of wheat (Ex. 29:2; Judg. 6:19), though also sometimes of other grains (Gen. 14:18; Judg. 7:13). Parched grain was sometimes used for food without any other preparation (Ruth 2:14).    Bread was prepared by kneading in wooden bowls or "kneading troughs" (Gen. 18:6; Ex. 12:34; Jer. 7:18). The dough was mixed with leaven and made into thin cakes, round or oval, and then baked. The bread eaten at the Passover was always unleavened (Ex. 12:15-20; Deut. 16:3). In the towns there were public ovens, which were much made use of for baking bread; there were also bakers by trade (Hos. 7:4; Jer. 37:21). Their ovens were not unlike those of modern times. But sometimes the bread was baked by being placed on the ground that had been heated by a fire, and by covering it with the embers (1 Kings 19:6). This was probably the mode in which Sarah prepared bread on the occasion referred to in Gen. 18:6.    In Lev. 2 there is an account of the different kinds of bread and cakes used by the Jews. (See BAKE .)    The shew-bread (q.v.) consisted of twelve loaves of unleavened bread prepared and presented hot on the golden table every Sabbath. They were square or oblong, and represented the twelve tribes of Israel. The old loaves were removed every Sabbath, and were to be eaten only by the priests in the court of the sanctuary (Ex. 25:30; Lev. 24:8; 1 Sam. 21:1-6; Matt. 12:4).    The word bread is used figuratively in such expressions as "bread of sorrows" (Ps. 127:2), "bread of tears" (80:5), i.e., sorrow and tears are like one`s daily bread, they form so great a part in life. The bread of "wickedness" (Prov. 4:17) and "of deceit" (20:17) denote in like manner that wickedness and deceit are a part of the daily life.
+
+## Breastplate
+
+(1.) That piece of ancient armour that protected the breast. This word is used figuratively in Eph. 6:14 and Isa. 59:17. (See ARMOUR .)    (2.) An ornament covering the breast of the high priest, first mentioned in Ex. 25:7. It was made of embroidered cloth, set with four rows of precious stones, three in each row. On each stone was engraved the name of one of the twelve tribes (Ex. 28:15-29; 39:8-21). It was in size about ten inches square. The two upper corners were fastened to the ephod by blue ribbons. It was not to be "loosed from the ephod" (Ex. 28:28). The lower corners were fastened to the girdle of the priest. As it reminded the priest of his representative character, it was called the memorial (28:29). It was also called the breastplate of judgment (28:15). (See PRIEST .)
+
+## Breeches
+
+(Ex. 28:42), rather linen drawers, reaching from the waist to a little above the knee, worn by the priests (Ezek. 44:17, 18).
+
+## Bribe
+
+None to be taken; "for the gift maketh open eyes blind, and perverteth the cause of the righteous" (Ex. 23:8, literally rendered).
+
+## Bricks
+
+the making of, formed the chief labour of the Israelites in Egypt (Ex. 1:13, 14). Those found among the ruins of Babylon and Nineveh are about a foot square and four inches thick. They were usually dried in the sun, though also sometimes in kilns (2 Sam. 12:31; Jer. 43:9; Nah. 3:14). (See NEBUCHADNEZZAR .)    The bricks used in the tower of Babel were burnt bricks, cemented in the building by bitumen (Gen. 11:3).
+
+## Bride
+
+frequently used in the ordinary sense (Isa. 49:18; 61:10, etc.). The relation between Christ and his church is set forth under the figure of that between a bridegroom and bride (John 3:29). The church is called "the bride" (Rev. 21:9; 22:17). Compare parable of the Ten Virgins (Matt. 25:1-13).
+
+## Bridle
+
+Three Hebrew words are thus rendered in the Authorized Version. (1.) Heb. _mahsom`_ signifies a muzzle or halter or bridle, by which the rider governs his horse (Ps.39:1).    (2.) _Me`theg_, rendered also "bit" in Ps. 32:9, which is its proper meaning. Found in 2 Kings 19:28, where the restraints of God`s providence are metaphorically styled his "bridle" and "hook." God`s placing a "bridle in the jaws of the people" (Isa. 30:28; 37:29) signifies his preventing the Assyrians from carrying out their purpose against Jerusalem.    (3.) Another word, _re`sen_, was employed to represent a halter or bridle-rein, as used Ps. 32:9; Isa. 30:28. In Job 30:11 the restraints of law and humanity are called a bridle.
+
+## Brier
+
+This word occurs frequently, and is the translation of several different terms. (1.) Micah 7:4, it denotes a species of thorn shrub used for hedges. In Prov. 15:19 the word is rendered "thorn" (Heb. _hedek_, "stinging"), supposed by some to be what is called the "apple of Sodom" (q.v.).    (2.) Ezek. 28:24, _sallon`_, properly a "prickle," such as is found on the shoots of the palm tree.    (3.) Isa. 55:13, probably simply a thorny bush. Some, following the Vulgate Version, regard it as the "nettle."    (4.) Isa. 5:6; 7:23-25, etc., frequently used to denote thorny shrubs in general. In 10:17; 27:4, it means troublesome men.    (5.) In Heb. 6:8 the Greek word (tribolos) so rendered means "three-pronged," and denotes the land caltrop, a low throny shrub resembling in its spikes the military "crow-foot." Comp. Matt. 7:16, "thistle."
+
+## Brigandine
+
+(Jer. 46:4; 51:3), an obsolete English word denoting a scale coat of armour, or habergeon, worn by light-armed "brigands." The Revised Version has "coat of mail."
+
+## Brimstone
+
+an inflammable mineral substance found in quantities on the shores of the Dead Sea. The cities of the plain were destroyed by a rain of fire and brimstone (Gen. 19:24, 25). In Isa. 34:9 allusion is made to the destruction of these cities. This word figuratively denotes destruction or punishment (Job 18:15; Isa. 30:33; 34:9; Ps. 11:6; Ezek. 38:22). It is used to express the idea of excruciating torment in Rev. 14:10; 19:20; 20:10.
+
+## Brook
+
+a torrent. (1.) Applied to small streams, as the Arnon, Jabbok, etc. Isaiah (15:7) speaks of the "book of the willows," probably the Wady-el-Asha. (2.) It is also applied to winter torrents (Job 6:15; Num. 34:5; Josh. 15:4, 47), and to the torrent-bed or wady as well as to the torrent itself (Num. 13:23; 1 Kings 17:3). (3.) In Isa. 19:7 the river Nile is meant, as rendered in the Revised Version.
+
+## Brother
+
+(1.) In the natural and common sense (Matt. 1:2; Luke 3:1, 19).    (2.) A near relation, a cousin (Gen. 13:8; 14:16; Matt. 12:46; John 7:3; Acts 1:14; Gal. 1:19).    (3.) Simply a fellow-countryman (Matt. 5:47; Acts 3:22; Heb. 7:5).    (4.) A disciple or follower (Matt. 25:40; Heb. 2:11, 12).    (5.) One of the same faith (Amos 1:9; Acts 9:30; 11:29; 1 Cor. 5:11); whence the early disciples of our Lord were known to each other as brethren.    (6.) A colleague in office (Ezra 3:2; 1 Cor. 1:1; 2 Cor. 1:1).    (7.) A fellow-man (Gen. 9:5; 19:7; Matt. 5:22, 23, 24; 7:5; Heb. 2:17).    (8.) One beloved or closely united with another in affection (2 Sam. 1:26; Acts 6:3; 1 Thess. 5:1). Brethren of Jesus (Matt. 1:25; 12:46, 50: Mark 3:31, 32; Gal. 1:19; 1 Cor. 9:5, etc.) were probably the younger children of Joseph and Mary. Some have supposed that they may have been the children of Joseph by a former marriage, and others that they were the children of Mary, the Virgin`s sister, and wife of Cleophas. The first interpretation, however, is the most natural.
+
+## Bruit
+
+a rumour or report (Jer. 10:22, R.V. "rumour;" Nah. 3:19).
+
+## Bucket
+
+a vessel to draw water with (Isa. 40:15); used figuratively, probably, of a numerous issue (Num. 24:7).
+
+## Buckler
+
+(1.) A portable shield (2 Sam. 22:31; 1 Chr. 5:18).    (2.) A shield surrounding the person; the targe or round form; used once figuratively (Ps. 91:4).    (3.) A large shield protecting the whole body (Ps. 35:2; Ezek. 23:24; 26:8).    (4.) A lance or spear; improperly rendered "buckler" in the Authorized Version (1 Chr. 12:8), but correctly in the Revised Version "spear."    The leather of shields required oiling (2 Sam. 1:21; Isa. 21:5), so as to prevent its being injured by moisture. Copper (= "brass") shields were also in use (1 Sam. 17:6; 1 Kings 14:27). Those spoken of in 1 Kings 10:16, etc.; 14:26, were probably of massive metal.    The shields David had taken from his enemies were suspended in the temple as mementoes (2 Kings 11:10). (See ARMOUR , SHIELD .)
+
+## Building
+
+among the Jews was suited to the climate and conditions of the country. They probably adopted the kind of architecture for their dwellings which they found already existing when they entered Canaan (Deut. 6:10; Num. 13:19). Phoenician artists (2 Sam. 5:11; 1 Kings 5:6, 18) assisted at the erection of the royal palace and the temple at Jerusalem. Foreigners also assisted at the restoration of the temple after the Exile (Ezra 3:7).    In Gen. 11:3, 9, we have the first recorded instance of the erection of buildings. The cities of the plain of Shinar were founded by the descendants of Shem (10:11, 12, 22).    The Israelites were by occupation shepherds and dwellers in tents (Gen. 47:3); but from the time of their entering Canaan they became dwellers in towns, and in houses built of the native limestone of Palestine. Much building was carried on in Solomon`s time. Besides the buildings he completed at Jerusalem, he also built Baalath and Tadmor (1 Kings 9:15, 24). Many of the kings of Israel and Judah were engaged in erecting various buildings.    Herod and his sons and successors restored the temple, and built fortifications and other structures of great magnificence in Jerusalem (Luke 21:5).    The instruments used in building are mentioned as the plumb-line (Amos 7:7), the measuring-reed (Ezek. 40:3), and the saw (1 Kings 7:9).    Believers are "God`s building" (1 Cor. 3:9); and heaven is called "a building of God" (2 Cor. 5:1). Christ is the only foundation of his church (1 Cor. 3:10-12), of which he also is the builder (Matt. 16:18).
+
+## Bul
+
+rainy, the eighth ecclesiastical month of the year (1 Kings 6:38), and the second month of the civil year; later called Marchesvan (q.v.). (See MONTH .)
+
+## Bullock
+
+(1.) The translation of a word which is a generic name for horned cattle (Isa. 65:25). It is also rendered "cow" (Ezek. 4:15), "ox" (Gen. 12:16).    (2.) The translation of a word always meaning an animal of the ox kind, without distinction of age or sex (Hos. 12:11). It is rendered "cow" (Num. 18:17) and "ox" (Lev. 17:3).    (3.) Another word is rendered in the same way (Jer. 31:18). It is also translated "calf" (Lev. 9:3; Micah 6:6). It is the same word used of the "molten calf" (Ex. 32:4, 8) and "the golden calf" (1 Kings 12:28).    (4.) In Judg. 6:25; Isa. 34:7, the Hebrew word is different. It is the customary word for bulls offered in sacrifice. In Hos. 14:2, the Authorized Version has "calves," the Revised Version "bullocks."
+
+## Bulrush
+
+(1.) In Isa. 58:5 the rendering of a word which denotes "belonging to a marsh," from the nature of the soil in which it grows (Isa. 18:2). It was sometimes platted into ropes (Job. 41:2; A.V., "hook," R.V., "rope," lit. "cord of rushes").    (2.) In Ex. 2:3, Isa. 18:2 (R.V., "papyrus") this word is the translation of the Hebrew _gome_, which designates the plant as absorbing moisture. In Isa. 35:7 and Job 8:11 it is rendered "rush." This was the Egyptian papyrus (papyrus Nilotica). It was anciently very abundant in Egypt. The Egyptians made garments and shoes and various utensils of it. It was used for the construction of the ark of Moses (Ex. 2:3, 5). The root portions of the stem were used for food. The inside bark was cut into strips, which were sewed together and dried in the sun, forming the papyrus used for writing. It is no longer found in Egypt, but grows luxuriantly in Palestine, in the marshes of the Huleh, and in the swamps at the north end of the Lake of Gennesaret. (See CANE .)
+
+## Bulwarks
+
+mural towers, bastions, were introduced by king Uzziah (2 Chr. 26:15; Zeph. 1:16; Ps. 48:13; Isa. 26:1). There are five Hebrew words so rendered in the Authorized Version, but the same word is also variously rendered.
+
+## Bunch
+
+(1.) A bundle of twigs (Ex. 12:22). (2.) Bunch or cake of raisins (2 Sam. 16:1). (3.) The "bunch of a camel" (Isa. 30:6).
+
+## Burden
+
+(1.) A load of any kind (Ex. 23:5). (2.) A severe task (Ex. 2:11). (3.) A difficult duty, requiring effort (Ex. 18:22). (4.) A prophecy of a calamitous or disastrous nature (Isa. 13:1; 17:1; Hab. 1:1, etc.).
+
+## Burial
+
+The first burial we have an account of is that of Sarah (Gen. 23). The first commercial transaction recorded is that of the purchase of a burial-place, for which Abraham weighed to Ephron "four hundred shekels of silver current money with the merchants." Thus the patriarch became the owner of a part of the land of Canaan, the only part he ever possessed. When he himself died, "his sons Isaac and Ishmael buried him in the cave of Machpelah," beside Sarah his wife (Gen. 25:9).    Deborah, Rebekah`s nurse, was buried under Allon-bachuth, "the oak of weeping" (Gen. 35:8), near to Bethel. Rachel died, and was buried near Ephrath; "and Jacob set a pillar upon her grave" (16-20). Isaac was buried at Hebron, where he had died (27, 29). Jacob, when charging his sons to bury him in the cave of Machpelah, said, "There they buried Abraham and Sarah his wife; there they buried Isaac and Rebekah his wife; and there I buried Leah" (49:31). In compliance with the oath which he made him swear unto him (47:29-31), Joseph, assisted by his brethren, buried Jacob in the cave of Machpelah (50:2, 13). At the Exodus, Moses "took the bones of Joseph with him," and they were buried in the "parcel of ground" which Jacob had bought of the sons of Hamor (Josh. 24:32), which became Joseph`s inheritance (Gen. 48:22; 1 Chr. 5:1; John 4:5). Two burials are mentioned as having taken place in the wilderness. That of Miriam (Num. 20:1), and that of Moses, "in the land of Moab" (Deut. 34:5, 6, 8). There is no account of the actual burial of Aaron, which probably, however, took place on the summit of Mount Hor (Num. 20:28, 29).    Joshua was buried "in the border of his inheritance in Timnath-serah" (Josh. 24: 30).    In Job we find a reference to burying-places, which were probably the Pyramids (3:14, 15). The Hebrew word for "waste places" here resembles in sound the Egyptian word for "pyramids."    Samuel, like Moses, was honoured with a national burial (1 Sam. 25:1). Joab (1 Kings 2:34) "was buried in his own house in the wilderness."    In connection with the burial of Saul and his three sons we meet for the first time with the practice of burning the dead (1 Sam. 31:11-13). The same practice is again referred to by Amos (6:10).    Absalom was buried "in the wood" where he was slain (2 Sam. 18:17, 18). The raising of the heap of stones over his grave was intended to mark abhorrence of the person buried (comp. Josh. 7:26 and 8:29). There was no fixed royal burying-place for the Hebrew kings. We find several royal burials taking place, however, "in the city of David" (1 Kings 2:10; 11:43; 15:8; 2 Kings 14:19, 20; 15:38; 1 Kings 14:31; 22:50; 2 Chr. 21:19, 20; 2 Chr. 24:25, etc.). Hezekiah was buried in the mount of the sepulchres of the sons of David; "and all Judah and the inhabitants of Jerusalem did him honour at his death" (2 Chr. 32:33).    Little is said regarding the burial of the kings of Israel. Some of them were buried in Samaria, the capital of their kingdom (2 Kings 10:35; 13:9; 14:16).    Our Lord was buried in a new tomb, hewn out of the rock, which Joseph of Arimathea had prepared for himself (Matt. 27:57-60; Mark 15:46; John 19:41, 42).    The grave of Lazarus was "a cave, and a stone lay on it" (John 11:38). Graves were frequently either natural caverns or artificial excavations formed in the sides of rocks (Gen. 23:9; Matt. 27:60); and coffins were seldom used, unless when the body was brought from a distance.
+
+## Burnt offering
+
+Hebrew _olah_; i.e., "ascending," the whole being consumed by fire, and regarded as ascending to God while being consumed. Part of every offering was burnt in the sacred fire, but this was wholly burnt, a "whole burnt offering." It was the most frequent form of sacrifice, and apparently the only one mentioned in the book of Genesis. Such were the sacrifices offered by Abel (Gen. 4:3, 4, here called _minhah_; i.e., "a gift"), Noah (Gen. 8:20), Abraham (Gen. 22:2, 7, 8, 13), and by the Hebrews in Egypt (Ex. 10:25).    The law of Moses afterwards prescribed the occasions and the manner in which burnt sacrifices were to be offered. There were "the continual burnt offering" (Ex. 29:38-42; Lev. 6:9-13), "the burnt offering of every sabbath," which was double the daily one (Num. 28:9, 10), "the burnt offering of every month" (28:11-15), the offerings at the Passover (19-23), at Pentecost (Lev. 23:16), the feast of Trumpets (23:23-25), and on the day of Atonement (Lev. 16).    On other occasions special sacrifices were offered, as at the consecration of Aaron (Ex. 29) and the dedication of the temple (1 Kings 8:5, 62-64).    Free-will burnt offerings were also permitted (Lev. 1:13), and were offered at the accession of Solomon to the throne (1 Chr. 29:21), and at the reformation brought about by Hezekiah (2 Chr. 29: 31-35).    These offerings signified the complete dedication of the offerers unto God. This is referred to in Rom. 12:1. (See ALTAR , SACRIFICE .)
+
+## Bush
+
+in which Jehovah appeared to Moses in the wilderness (Ex. 3:2; Acts 7:30). It is difficult to say what particular kind of plant or bush is here meant. Probably it was the mimosa or acacia. The words "in the bush" in Mark 12:26; Luke 20:37, mean "in the passage or paragraph on the bush;" i.e., in Ex. 3.
+
+## Butler
+
+properly a servant in charge of the wine (Gen. 40:1-13; 41:9). The Hebrew word, _mashkeh_, thus translated is rendered also (plural) "cup-bearers" (1 Kings 10:5; 2 Chr. 9:4). Nehemiah (1:11) was cup-bearer to king Artaxerxes. It was a position of great responsibility and honour in royal households.
+
+## Butter
+
+(Heb. hemah), curdled milk (Gen. 18:8; Judg. 5:25; 2 Sam. 17:29), or butter in the form of the skim of hot milk or cream, called by the Arabs kaimak, a semi-fluid (Job 20:17; 29:6; Deut. 32:14). The words of Prov. 30:33 have been rendered by some "the pressure [not churning] of milk bringeth forth cheese."
+
+## Buz
+
+contempt. (1.) The second son of Nahor and Milcah, and brother of Huz (Gen. 22:21). Elihu was one of his descendants (Job 32:2).    (2.) One of the chiefs of the tribe of Gad (1 Chr. 5:14).    (3.) A district in Arabia Petrea (Jer. 25:23).
+
+## Buzi
+
+the father of the prophet Ezekiel (1:3).
+
+## By
+
+in the expression "by myself" (A.V., 1 Cor. 4:4), means, as rendered in the Revised Version, "against myself."
+
+## By and by
+
+immediately (Matt. 13:21; R.V., "straightway;" Luke 21:9).
+
+## By-ways
+
+only in Judg. 5:6 and Ps. 125:5; literally "winding or twisted roads." The margin has "crooked ways."
+
+## By-word
+
+Hebrew _millah_ (Job 30:9), a word or speech, and hence object of talk; Hebrew _mashal_ (Ps. 44:14), a proverb or parable. When it denotes a sharp word of derision, as in Deut. 28:37, 1 Kings 9:7, 2 Chr. 7:20, the Hebrew _sheninah_ is used. In Jer. 24:9 it is rendered "taunt."

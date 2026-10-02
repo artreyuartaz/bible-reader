@@ -1,0 +1,253 @@
+# W
+
+## Wafers
+
+thin cakes (Ex. 16:31; 29:2, 23; Lev. 2:4; 7:12; 8:26; Num. 6:15, 19) used in various offerings.
+
+## Wages
+
+Rate of (mention only in Matt. 20:2); to be punctually paid (Lev. 19:13; Deut. 24:14, 15); judgements threatened against the withholding of (Jer. 22:13; Mal. 3:5; comp. James 5:4); paid in money (Matt. 20:1-14); to Jacob in kind (Gen. 29:15, 20; 30:28; 31:7, 8, 41).
+
+## Wagon
+
+Heb. aghalah; so rendered in Gen. 45:19, 21, 27; 46:5; Num. 7:3, 7,8, but elsewhere rendered "cart" (1 Sam. 6:7, etc.). This vehicle was used for peaceful purposes. In Ezek. 23:24, however, it is the rendering of a different Hebrew word, and denotes a war-chariot.
+
+## Wailing-place, Jews`
+
+a section of the western wall of the temple area, where the Jews assemble every Friday afternoon to bewail their desolate condition (Ps. 79:1, 4, 5). The stones in this part of the wall are of great size, and were placed, as is generally believed, in the position in which they are now found in the time of Solomon. "The congregation at the wailing-place is one of the most solemn gatherings left to the Jewish Church, and as the writer gazed at the motley concourse he experienced a feeling of sorrow that the remnants of the chosen race should be heartlessly thrust outside the sacred enclosure of their fathers` holy temple by men of an alien race and an alien creed. Many of the elders, seated on the ground, with their backs against the wall, on the west side of the area, and with their faces turned toward the eternal house, read out of their well-thumbed Hebrew books passages from the prophetic writings, such as Isa. 64:9-12" (King`s Recent Discoveries, etc.). The wailing-place of the Jews, viewed in its past spiritual and historic relations, is indeed "the saddest nook in this vale of tears." (See LAMENTATIONS, BOOK OF .)
+
+## Wall
+
+Cities were surrounded by walls, as distinguished from "unwalled villages" (Ezek. 38:11; Lev. 25:29-34). They were made thick and strong (Num. 13:28; Deut. 3:5). Among the Jews walls were built of stone, some of those in the temple being of great size (1 Kings 6:7; 7:9-12; 20:30; Mark 13:1, 2). The term is used metaphorically of security and safety (Isa. 26:1; 60:18; Rev. 21:12-20). (See FENCE .)
+
+## Wandering
+
+of the Israelites in the wilderness in consequence of their rebellious fears to enter the Promised Land (Num. 14:26-35). They wandered for forty years before they were permitted to cross the Jordan (Josh. 4:19; 5:6).    The record of these wanderings is given in Num. 33:1-49. Many of the stations at which they camped cannot now be identified.    Questions of an intricate nature have been discussed regarding the "Wanderings," but it is enough for us to take the sacred narrative as it stands, and rest assured that "He led them forth by the right way" (Ps. 107:1-7, 33-35). (See WILDERNESS .)
+
+## War
+
+The Israelites had to take possession of the Promised Land by conquest. They had to engage in a long and bloody war before the Canaanitish tribes were finally subdued. Except in the case of Jericho and Ai, the war did not become aggressive till after the death of Joshua. Till then the attack was always first made by the Canaanites. Now the measure of the iniquity of the Canaanites was full, and Israel was employed by God to sweep them away from off the face of the earth. In entering on this new stage of the war, the tribe of Judah, according to divine direction, took the lead.    In the days of Saul and David the people of Israel engaged in many wars with the nations around, and after the division of the kingdom into two they often warred with each other. They had to defend themselves also against the inroads of the Egyptians, the Assyrians, and the Babylonians. The whole history of Israel from first to last presents but few periods of peace.    The Christian life is represented as a warfare, and the Christian graces are also represented under the figure of pieces of armour (Eph. 6:11-17; 1 Thess. 5:8; 2 Tim. 2:3, 4). The final blessedness of believers is attained as the fruit of victory (Rev. 3:21).
+
+## Ward
+
+a prison (Gen. 40:3, 4); a watch-station (Isa. 21:8); a guard (Neh. 13:30).
+
+## Wars of the Lord, The Book of the
+
+(Num. 21:14, 15), some unknown book so called (comp. Gen. 14:14-16; Ex. 17:8-16; Num. 14:40-45; 21:1-3, 21-25, 33-35; 31. The wars here recorded might be thus designated).
+
+## Washing
+
+(Mark 7:1-9). The Jews, like other Orientals, used their fingers when taking food, and therefore washed their hands before doing so, for the sake of cleanliness. Here the reference is to the ablutions prescribed by tradition, according to which "the disciples ought to have gone down to the side of the lake, washed their hands thoroughly, `rubbing the fist of one hand in the hollow of the other, then placed the ten finger-tips together, holding the hands up, so that any surplus water might flow down to the elbow, and thence to the ground.`" To neglect to do this had come to be regarded as a great sin, a sin equal to the breach of any of the ten commandments. Moses had commanded washings oft, but always for some definite cause; but the Jews multiplied the legal observance till they formed a large body of precepts. To such precepts about ceremonial washing Mark here refers. (See ABLUTION .)
+
+## Watches
+
+the periods into which the time between sunset and sunrise was divided. They are so called because watchmen relieved each other at each of these periods. There are frequent references in Scripture to the duties of watchmen who were appointed to give notice of the approach of an enemy (2 Sam. 18:24-27; 2 Kings 9:17-20; Isa. 21:5-9). They were sometimes placed for this purpose on watch-towers (2 Kings 17:9; 18:8). Ministers or teachers are also spoken of under this title (Jer. 6:17; Ezek. 33:2-9; Heb. 13:17).    The watches of the night were originally three in number, (1) "the beginning of the watches" (Lam. 2:19); (2) "the middle watch" (Judg. 7:19); and (3) "the morning watch" (Ex. 14:24; 1 Sam. 11:11), which extended from two o`clock to sunrise. But in the New Testament we read of four watches, a division probably introduced by the Romans (Matt. 14:25; Mark 6:48; Luke 12:38). (See DAY .)
+
+## Watchings
+
+(2 Cor. 6:5), lit. "sleeplessnesses," the result of "manual labour, teaching, travelling, meditating, praying, cares, and the like" (Meyer`s Com.).
+
+## Water of jealousy
+
+a phrase employed (not, however, in Scripture) to denote the water used in the solemn ordeal prescribed by the law of Moses (Num. 5:11-31) in cases of "jealousy."
+
+## Water of purification
+
+used in cases of ceremonial cleansings at the consecration of the Levites (Num. 8:7). It signified, figuratively, that purifying of the heart which must characterize the servants of God.
+
+## Water of separation
+
+used along with the ashes of a red heifer for the ceremonial cleansing of persons defiled by contact with a dead body (Num. 19).
+
+## Waterspouts
+
+(Ps. 42:7; marg. R.V., "cataracts"). If we regard this psalm as descriptive of David`s feelings when banished from Jerusalem by the revolt of Absalom, this word may denote "waterfalls," inasmuch as Mahanaim, where he abode, was near the Jabbok, and the region abounded with rapids and falls.
+
+## Wave offerings
+
+parts of peace-offerings were so called, because they were waved by the priests (Ex. 29:24, 26, 27; Lev. 7:20-34; 8:27; 9:21; 10:14, 15, etc.), in token of a solemn special presentation to God. They then became the property of the priests. The first-fruits, a sheaf of barley, offered at the feast of Pentecost (Lev. 23:17-20), and wheat-bread, the first-fruits of the second harvest, offered at the Passover (10-14), were wave-offerings.
+
+## Wax
+
+Made by melting the combs of bees. Mentioned (Ps. 22:14; 68:2; 97:5; Micah 1:4) in illustration.
+
+## Wean
+
+Among the Hebrews children (whom it was customary for the mothers to nurse, Ex. 2:7-9; 1 Sam. 1:23; Cant. 8:1) were not generally weaned till they were three or four years old.
+
+## Weasel
+
+(Heb. holedh), enumerated among unclean animals (Lev. 11:29). Some think that this Hebrew word rather denotes the mole (Spalax typhlus) common in Palestine. There is no sufficient reason, however, to depart from the usual translation. The weasel tribe are common also in Palestine.
+
+## Weaving, weavers
+
+Weaving was an art practised in very early times (Ex. 35:35). The Egyptians were specially skilled in it (Isa. 19:9; Ezek. 27:7), and some have regarded them as its inventors.    In the wilderness, the Hebrews practised it (Ex. 26:1, 8; 28:4, 39; Lev. 13:47). It is referred to in subsequent times as specially the women`s work (2 Kings 23:7; Prov. 31:13, 24). No mention of the loom is found in Scripture, but we read of the "shuttle" (Job 7:6), "the pin" of the beam (Judg. 16:14), "the web" (13, 14), and "the beam" (1 Sam. 17:7; 2 Sam. 21:19). The rendering, "with pining sickness," in Isa. 38:12 (A.V.) should be, as in the Revised Version, "from the loom," or, as in the margin, "from the thrum." We read also of the "warp" and "woof" (Lev. 13:48, 49, 51-53, 58, 59), but the Revised Version margin has, instead of "warp," "woven or knitted stuff."
+
+## Week
+
+From the beginning, time was divided into weeks, each consisting of six days of working and one of rest (Gen. 2:2, 3; 7:10; 8:10, 12; 29:28). The references to this division of days becomes afterwards more frequent (Ex. 34:22; Lev. 12:5; Num. 28:26; Deut. 16:16; 2 Chr. 8:13; Jer. 5:24; Dan. 9:24-27; 10:2, 3). It has been found to exist among almost all nations.
+
+## Weeks, Feast of
+
+See PENTECOST .
+
+## Weights
+
+Reduced to English troy-weight, the Hebrew weights were: (1.) The gerah (Lev. 27:25; Num. 3:47), a Hebrew word, meaning a grain or kernel, and hence a small weight. It was the twentieth part of a shekel, and equal to 12 grains.    (2.) Bekah (Ex. 38:26), meaning "a half" i.e., "half a shekel," equal to 5 pennyweight.    (3.) Shekel, "a weight," only in the Old Testament, and frequently in its original form (Gen. 23:15, 16; Ex. 21:32; 30:13, 15; 38:24-29, etc.). It was equal to 10 pennyweight.    (4.) Ma`neh, "a part" or "portion" (Ezek. 45:12), equal to 60 shekels, i.e., to 2 lbs. 6 oz.    (5.) Talent of silver (2 Kings 5:22), equal to 3,000 shekels, i.e., 125 lbs.    (6.) Talent of gold (Ex. 25:39), double the preceding, i.e., 250 lbs.
+
+## Well
+
+(Heb. beer), to be distinguished from a fountain (Heb. `ain). A "beer" was a deep shaft, bored far under the rocky surface by the art of man, which contained water which percolated through the strata in its sides. Such wells were those of Jacob and Beersheba, etc. (see Gen. 21:19, 25, 30, 31; 24:11; 26:15, 18-25, 32, etc.). In the Pentateuch this word beer, so rendered, occurs twenty-five times.
+
+## Westward
+
+sea-ward, i.e., toward the Mediterranean (Deut. 3:27).
+
+## Whale
+
+The Hebrew word _tan_ (plural, tannin) is so rendered in Job 7:12 (A.V.; but R.V., "sea-monster"). It is rendered by "dragons" in Deut. 32:33; Ps. 91:13; Jer. 51:34; Ps. 74:13 (marg., "whales;" and marg. of R.V., "sea-monsters"); Isa. 27:1; and "serpent" in Ex. 7:9 (R.V. marg., "any large reptile," and so in ver. 10, 12). The words of Job (7:12), uttered in bitter irony, where he asks, "Am I a sea or a whale?" simply mean, "Have I a wild, untamable nature, like the waves of the sea, which must be confined and held within bounds, that they cannot pass?" "The serpent of the sea, which was but the wild, stormy sea itself, wound itself around the land, and threatened to swallow it up...Job inquires if he must be watched and plagued like this monster, lest he throw the world into disorder" (Davidson`s Job).    The whale tribe are included under the general Hebrew name _tannin_ (Gen. 1:21; Lam. 4:3). "Even the sea-monsters [tanninim] draw out the breast." The whale brings forth its young alive, and suckles them.    It is to be noticed of the story of Jonah`s being "three days and three nights in the whale`s belly," as recorded in Matt. 12:40, that here the Gr. ketos means properly any kind of sea-monster of the shark or the whale tribe, and that in the book of Jonah (1:17) it is only said that "a great fish" was prepared to swallow Jonah. This fish may have been, therefore, some great shark. The white shark is known to frequent the Mediterranean Sea, and is sometimes found 30 feet in length.
+
+## Wheat
+
+one of the earliest cultivated grains. It bore the Hebrew name _hittah_, and was extensively cultivated in Palestine. There are various species of wheat. That which Pharaoh saw in his dream was the Triticum compositum, which bears several ears upon one stalk (Gen. 41:5). The "fat of the kidneys of wheat" (Deut. 32:14), and the "finest of the wheat" (Ps. 81:16; 147:14), denote the best of the kind. It was exported from Palestine in great quantities (1 Kings 5:11; Ezek. 27:17; Acts 12:20).    Parched grains of wheat were used for food in Palestine (Ruth 2:14; 1 Sam. 17:17; 2 Sam. 17:28). The disciples, under the sanction of the Mosaic law (Deut. 23:25), plucked ears of corn, and rubbing them in their hands, ate the grain unroasted (Matt. 12:1; Mark 2:23; Luke 6:1). Before any of the wheat-harvest, however, could be eaten, the first-fruits had to be presented before the Lord (Lev. 23:14).
+
+## Wheel
+
+(Heb. galgal; rendered "wheel" in Ps. 83:13, and "a rolling thing" in Isa. 17:13; R.V. in both, "whirling dust"). This word has been supposed to mean the wild artichoke, which assumes the form of a globe, and in autumn breaks away from its roots, and is rolled about by the wind in some places in great numbers.
+
+## White
+
+a symbol of purity (2 Chr. 5:12; Ps. 51:7; Isa. 1:18; Rev. 3:18; 7:14). Our Lord, at his transfiguration, appeared in raiment "white as the light" (Matt. 17:2, etc.).
+
+## Widows
+
+to be treated with kindness (Ex. 22:22; Deut. 14:29; 16:11, 14; 24:17, 19-21; 26:12; 27:19, etc.). In the New Testament the same tender regard for them is inculcated (Acts 6:1-6; 1 Tim. 5:3-16) and exhibited.
+
+## Wife
+
+The ordinance of marriage was sanctioned in Paradise (Gen. 2:24; Matt. 19:4-6). Monogamy was the original law under which man lived, but polygamy early commenced (Gen. 4:19), and continued to prevail all down through Jewish history. The law of Moses regulated but did not prohibit polygamy. A man might have a plurality of wives, but a wife could have only one husband. A wife`s legal rights (Ex. 21:10) and her duties (Prov. 31:10-31; 1 Tim. 5:14) are specified. She could be divorced in special cases (Deut. 22:13-21), but could not divorce her husband. Divorce was restricted by our Lord to the single case of adultery (Matt. 19:3-9). The duties of husbands and wives in their relations to each other are distinctly set forth in the New Testament (1 Cor. 7:2-5; Eph. 5:22-33; Col. 3:18, 19; 1 Pet. 3:1-7).
+
+## Wilderness
+
+(1.) Heb. midhbar, denoting not a barren desert but a district or region suitable for pasturing sheep and cattle (Ps. 65:12; Isa. 42:11; Jer. 23:10; Joel 1:19; 2:22); an uncultivated place. This word is used of the wilderness of Beersheba (Gen. 21:14), on the southern border of Palestine; the wilderness of the Red Sea (Ex. 13:18); of Shur (15:22), a portion of the Sinaitic peninsula; of Sin (17:1), Sinai (Lev. 7:38), Moab (Deut. 2:8), Judah (Judg. 1:16), Ziph, Maon, En-gedi (1 Sam. 23:14, 24; 24:1), Jeruel and Tekoa (2 Chr. 20:16, 20), Kadesh (Ps. 29:8).    "The wilderness of the sea" (Isa. 21:1). Principal Douglas, referring to this expression, says: "A mysterious name, which must be meant to describe Babylon (see especially ver. 9), perhaps because it became the place of discipline to God`s people, as the wilderness of the Red Sea had been (comp. Ezek. 20:35). Otherwise it is in contrast with the symbolic title in Isa. 22:1. Jerusalem is the "valley of vision," rich in spiritual husbandry; whereas Babylon, the rival centre of influence, is spiritually barren and as restless as the sea (comp. 57:20)." A Short Analysis of the O.T.    (2.) Jeshimon, a desert waste (Deut. 32:10; Ps. 68:7).    (3.) `Arabah, the name given to the valley from the Dead Sea to the eastern branch of the Red Sea. In Deut. 1:1; 2:8, it is rendered "plain" (R.V., "Arabah").    (4.) Tziyyah, a "dry place" (Ps. 78:17; 105:41).    (5.) Tohu, a "desolate" place, a place "waste" or "unoccupied" (Deut. 32:10; Job 12:24; comp. Gen. 1:2, "without form"). The wilderness region in the Sinaitic peninsula through which for forty years the Hebrews wandered is generally styled "the wilderness of the wanderings." This entire region is in the form of a triangle, having its base toward the north and its apex toward the south. Its extent from north to south is about 250 miles, and at its widest point it is about 150 miles broad. Throughout this vast region of some 1,500 square miles there is not a single river. The northern part of this triangular peninsula is properly the "wilderness of the wanderings" (et-Tih). The western portion of it is called the "wilderness of Shur" (Ex. 15:22), and the eastern the "wilderness of Paran."    The "wilderness of Judea" (Matt. 3:1) is a wild, barren region, lying between the Dead Sea and the Hebron Mountains. It is the "Jeshimon" mentioned in 1 Sam. 23:19.
+
+## Willows
+
+(1.) Heb. `arabim (Lev. 23:40; Job 40:22; Isa. 15:7; 44:3, 4; Ps. 137:1, 2). This was supposed to be the weeping willow, called by Linnaeus Salix Babylonica, from the reference in Ps. 137. This tree is frequently found "on the coast, overhanging wells and pools. There is a conspicuous tree of this species over a pond in the plain of Acre, and others on the Phoenician plain." There are several species of the salix in Palestine, but it is not indigenous to Babylonia, nor was it cultivated there. Some are of opinion that the tree intended is the tamarisk or poplar.    (2.) Heb. tzaphtzaphah (Ezek. 17:5), called by the Arabs the safsaf, the general name for the willow. This may be the Salix AEgyptica of naturalists.    Tristram thinks that by the "willow by the water-courses," the Nerium oleander, the rose-bay oleander, is meant. He says, "It fringes the Upper Jordan, dipping its wavy crown of red into the spray in the rapids under Hermon, and is nutured by the oozy marshes in the Lower Jordan nearly as far as to Jericho...On the Arnon, on the Jabbok, and the Yarmuk it forms a continuous fringe. In many of the streams of Moab it forms a complete screen, which the sun`s rays can never penetrate to evaporate the precious moisture. The wild boar lies safely ensconced under its impervious cover."
+
+## Wimple
+
+Isa. 3:22, (R.V., "shawls"), a wrap or veil. The same Hebrew word is rendered "vail" (R.V., "mantle") in Ruth 3:15.
+
+## Window
+
+properly only an opening in a house for the admission of light and air, covered with lattice-work, which might be opened or closed (2 Kings 1:2; Acts 20:9). The spies in Jericho and Paul at Damascus were let down from the windows of houses abutting on the town wall (Josh. 2:15; 2 Cor. 11:33). The clouds are metaphorically called the "windows of heaven" (Gen. 7:11; Mal. 3:10). The word thus rendered in Isa. 54:12 ought rather to be rendered "battlements" (LXX., "bulwarks;" R.V., "pinnacles"), or as Gesenius renders it, "notched battlements, i.e., suns or rays of the sun"= having a radiated appearance like the sun.
+
+## Winds
+
+blowing from the four quarters of heaven (Jer. 49:36; Ezek. 37:9; Dan. 8:8; Zech. 2:6). The east wind was parching (Ezek. 17:10; 19:12), and is sometimes mentioned as simply denoting a strong wind (Job 27:21; Isa. 27:8). This wind prevails in Palestine from February to June, as the west wind (Luke 12:54) does from November to February. The south was a hot wind (Job 37:17; Luke 12:55). It swept over the Arabian peninsula. The rush of invaders is figuratively spoken of as a whirlwind (Isa. 21:1); a commotion among the nations of the world as a striving of the four winds (Dan. 7:2). The winds are subject to the divine power (Ps. 18:10; 135:7).
+
+## Wine
+
+The common Hebrew word for wine is _yayin_, from a root meaning "to boil up," "to be in a ferment." Others derive it from a root meaning "to tread out," and hence the juice of the grape trodden out. The Greek word for wine is _oinos_, and the Latin _vinun_. But besides this common Hebrew word, there are several others which are thus rendered.    (1.) Ashishah (2 Sam. 6:19; 1 Chr. 16:3; Cant. 2:5; Hos. 3:1), which, however, rather denotes a solid cake of pressed grapes, or, as in the Revised Version, a cake of raisins.    (2.) `Asis, "sweet wine," or "new wine," the product of the same year (Cant. 8:2; Isa. 49:26; Joel 1:5; 3:18; Amos 9:13), from a root meaning "to tread," hence juice trodden out or pressed out, thus referring to the method by which the juice is obtained. The power of intoxication is ascribed to it.    (3.) Hometz. See VINEGAR .    (4.) Hemer, Deut. 32:14 (rendered "blood of the grape") Isa. 27:2 ("red wine"), Ezra 6:9; 7:22; Dan. 5:1, 2, 4. This word conveys the idea of "foaming," as in the process of fermentation, or when poured out. It is derived from the root _hamar_, meaning "to boil up," and also "to be red," from the idea of boiling or becoming inflamed.    (5.) `Enabh, a grape (Deut. 32:14). The last clause of this verse should be rendered as in the Revised Version, "and of the blood of the grape [`enabh] thou drankest wine [hemer]." In Hos. 3:1 the phrase in Authorized Version, "flagons of wine," is in the Revised Version correctly "cakes of raisins." (Comp. Gen. 49:11; Num. 6:3; Deut. 23:24, etc., where this Hebrew word is rendered in the plural "grapes.")    (6.) Mesekh, properly a mixture of wine and water with spices that increase its stimulating properties (Isa. 5:22). Ps. 75:8, "The wine [yayin] is red; it is full of mixture [mesekh];" Prov. 23:30, "mixed wine;" Isa. 65:11, "drink offering" (R.V., "mingled wine").    (7.) Tirosh, properly "must," translated "wine" (Deut. 28:51); "new wine" (Prov. 3:10); "sweet wine" (Micah 6:15; R.V., "vintage"). This Hebrew word has been traced to a root meaning "to take possession of" and hence it is supposed that tirosh is so designated because in intoxicating it takes possession of the brain. Among the blessings promised to Esau (Gen. 27:28) mention is made of "plenty of corn and tirosh." Palestine is called "a land of corn and tirosh" (Deut. 33:28; comp. Isa. 36:17). See also Deut. 28:51; 2 Chr. 32:28; Joel 2:19; Hos. 4:11, ("wine [yayin] and new wine [tirosh] take away the heart").    (8.) Sobhe (root meaning "to drink to excess," "to suck up," "absorb"), found only in Isa. 1:22, Hos. 4:18 ("their drink;" Gesen. and marg. of R.V., "their carouse"), and Nah. 1:10 ("drunken as drunkards;" lit., "soaked according to their drink;" R.V., "drenched, as it were, in their drink", i.e., according to their sobhe).    (9.) Shekar, "strong drink," any intoxicating liquor; from a root meaning "to drink deeply," "to be drunken", a generic term applied to all fermented liquors, however obtained. Num. 28:7, "strong wine" (R.V., "strong drink"). It is sometimes distinguished from wine, c.g., Lev. 10:9, "Do not drink wine [yayin] nor strong drink [shekar];" Num. 6:3; Judg. 13:4, 7; Isa. 28:7 (in all these places rendered "strong drink"). Translated "strong drink" also in Isa. 5:11; 24:9; 29:9; 56:12; Prov. 20:1; 31:6; Micah 2:11.    (10.) Yekebh (Deut. 16:13, but in R.V. correctly "wine-press"), a vat into which the new wine flowed from the press. Joel 2:24, "their vats;" 3:13, "the fats;" Prov. 3:10, "Thy presses shall burst out with new wine [tirosh];" Hag. 2:16; Jer. 48:33, "wine-presses;" 2 Kings 6:27; Job. 24:11.    (11.) Shemarim (only in plural), "lees" or "dregs" of wine. In Isa. 25:6 it is rendered "wines on the lees", i.e., wine that has been kept on the lees, and therefore old wine.    (12.) Mesek, "a mixture," mixed or spiced wine, not diluted with water, but mixed with drugs and spices to increase its strength, or, as some think, mingled with the lees by being shaken (Ps. 75:8; Prov. 23:30).    In Acts 2:13 the word _gleukos_, rendered "new wine," denotes properly "sweet wine." It must have been intoxicating.    In addition to wine the Hebrews also made use of what they called _debash_, which was obtained by boiling down must to one-half or one-third of its original bulk. In Gen. 43:11 this word is rendered "honey." It was a kind of syrup, and is called by the Arabs at the present day dibs. This word occurs in the phrase "a land flowing with milk and honey" (debash), Ex. 3:8, 17; 13:5; 33:3; Lev. 20:24; Num. 13: 27. (See HONEY .)    Our Lord miraculously supplied wine at the marriage feast in Cana of Galilee (John 2:1-11). The Rechabites were forbidden the use of wine (Jer. 35). The Nazarites also were to abstain from its use during the period of their vow (Num. 6:1-4); and those who were dedicated as Nazarites from their birth were perpetually to abstain from it (Judg. 13:4, 5; Luke 1:15; 7:33). The priests, too, were forbidden the use of wine and strong drink when engaged in their sacred functions (Lev. 10:1, 9-11). "Wine is little used now in the East, from the fact that Mohammedans are not allowed to taste it, and very few of other creeds touch it. When it is drunk, water is generally mixed with it, and this was the custom in the days of Christ also. The people indeed are everywhere very sober in hot climates; a drunken person, in fact, is never seen", (Geikie`s Life of Christ). The sin of drunkenness, however, must have been not uncommon in the olden times, for it is mentioned either metaphorically or literally more than seventy times in the Bible.    A drink-offering of wine was presented with the daily sacrifice (Ex. 29:40, 41), and also with the offering of the first-fruits (Lev. 23:13), and with various other sacrifices (Num. 15:5, 7, 10). Wine was used at the celebration of the Passover. And when the Lord`s Supper was instituted, the wine and the unleavened bread then on the paschal table were by our Lord set apart as memorials of his body and blood.    Several emphatic warnings are given in the New Testament against excess in the use of wine (Luke 21:34; Rom. 13:13; Eph. 5:18; 1 Tim. 3:8; Titus 1:7).
+
+## Winefat
+
+(Mark 12:1). The original word (hypolenion) so rendered occurs only here in the New Testament. It properly denotes the trough or lake (lacus), as it was called by the Romans, into which the juice of the grapes ran from the trough above it. It is here used, however, of the whole apparatus. In the parallel passage in Matt. 21:33 the Greek word _lenos_ is used. This properly denotes the upper one of the two vats. (See WINE-PRESS .)
+
+## Wine-press
+
+Consisted of two vats or receptacles, (1) a trough (Heb. gath, Gr. lenos) into which the grapes were thrown and where they were trodden upon and bruised (Isa. 16:10; Lam. 1:15; Joel 3:13); and (2) a trough or vat (Heb. yekebh, Gr. hypolenion) into which the juice ran from the trough above, the gath (Neh. 13:15; Job 24:11; Isa. 63:2, 3; Hag. 2:16; Joel 2:24). Wine-presses are found in almost every part of Palestine. They are "the only sure relics we have of the old days of Israel before the Captivity. Between Hebron and Beersheba they are found on all the hill slopes; they abound in southern Judea; they are no less common in the many valleys of Carmel; and they are numerous in Galilee." The "treading of the wine-press" is emblematic of divine judgment (Isa. 63:2; Lam. 1:15; Rev. 14:19, 20).
+
+## Winnow
+
+Corn was winnowed, (1.) By being thrown up by a shovel against the wind. As a rule this was done in the evening or during the night, when the west wind from the sea was blowing, which was a moderate breeze and fitted for the purpose. The north wind was too strong, and the east wind came in gusts. (2.) By the use of a fan or van, by which the chaff was blown away (Ruth 3:2; Isa. 30:24; Jer. 4:11, 12; Matt. 3:12).
+
+## Wise men
+
+mentioned in Dan. 2:12 included three classes, (1) astrologers, (2) Chaldeans, and (3) soothsayers. The word in the original (hakamim) probably means "medicine men. In Chaldea medicine was only a branch of magic. The "wise men" of Matt. 2:7, who came from the East to Jerusalem, were magi from Persia or Arabia.
+
+## Wise, wisdom
+
+a moral rather than an intellectual quality. To be "foolish" is to be godless (Ps. 14:1; comp. Judg. 19:23; 2 Sam. 13:13). True wisdom is a gift from God to those who ask it (Job 28:12-28; Prov. 3:13-18; Rom. 1:22; 16:27; 1 Cor. 1:17-21; 2:6-8; James 1:5). "Wisdom" in Prov. 1:20; 8:1; 9:1-5 may be regarded not as a mere personification of the attribute of wisdom, but as a divine person, "Christ the power of God and the wisdom of God" (1 Cor. 1:24). In Matt. 11:19 it is the personified principle of wisdom that is meant.
+
+## Witch
+
+Occurs only in Ex. 22:18, as the rendering of _mekhashshepheh_, the feminine form of the word, meaning "enchantress" (R.V., "sorceress"), and in Deut. 18:10, as the rendering of _mekhashshepheth_, the masculine form of the word, meaning "enchanter."
+
+## Witchcraft
+
+(1 Sam. 15:23; 2 Kings 9:22; 2 Chr. 33:6; Micah 5:12; Nahum 3:4; Gal. 5:20). In the popular sense of the word no mention is made either of witches or of witchcraft in Scripture.    The "witch of En-dor" (1 Sam. 28) was a necromancer, i.e., one who feigned to hold converse with the dead. The damsel with "a spirit of divination" (Acts 16:16) was possessed by an evil spirit, or, as the words are literally rendered, "having a spirit, a pithon." The reference is to the heathen god Apollo, who was regarded as the god of prophecy.
+
+## Witness
+
+More than one witness was required in criminal cases (Deut. 17:6; 19:15). They were the first to execute the sentence on the condemned (Deut. 13:9; 17:7; 1 Kings 21:13; Matt. 27:1; Acts 7:57, 58). False witnesses were liable to punishment (Deut. 19:16-21). It was also an offence to refuse to bear witness (Lev. 5:1).
+
+## Witness of the Spirit
+
+(Rom. 8:16), the consciousness of the gracious operation of the Spirit on the mind, "a certitude of the Spirit`s presence and work continually asserted within us", manifested "in his comforting us, his stirring us up to prayer, his reproof of our sins, his drawing us to works of love, to bear testimony before the world," etc.
+
+## Wizard
+
+a pretender to supernatural knowledge and power, "a knowing one," as the original Hebrew word signifies. Such an one was forbidden on pain of death to practise his deceptions (Lev. 19:31; 20:6, 27; 1 Sam. 28:3; Isa. 8:19; 19:3).
+
+## Wolf
+
+Heb. zeeb, frequently referred to in Scripture as an emblem of treachery and cruelty. Jacob`s prophecy, "Benjamin shall ravin as a wolf" (Gen. 49:27), represents the warlike character of that tribe (see Judg. 19-21). Isaiah represents the peace of Messiah`s kingdom by the words, "The wolf also shall dwell with the lamb" (Isa. 11:6). The habits of the wolf are described in Jer. 5:6; Hab. 1:8; Zeph. 3:3; Ezek. 22:27; Matt. 7:15; 10:16; Acts 20:29. Wolves are still sometimes found in Palestine, and are the dread of shepherds, as of old.
+
+## Woman
+
+was "taken out of man" (Gen. 2:23), and therefore the man has the preeminence. "The head of the woman is the man;" but yet honour is to be shown to the wife, "as unto the weaker vessel" (1 Cor. 11:3, 8, 9; 1 Pet. 3:7). Several women are mentioned in Scripture as having been endowed with prophetic gifts, as Miriam (Ex. 15:20), Deborah (Judg. 4:4, 5), Huldah (2 Kings 22:14), Noadiah (Neh. 6:14), Anna (Luke 2:36, 37), and the daughters of Philip the evangelist (Acts 21:8, 9). Women are forbidden to teach publicly (1 Cor. 14:34, 35; 1 Tim. 2:11, 12). Among the Hebrews it devolved upon women to prepare the meals for the household (Gen. 18:6; 2 Sam. 13:8), to attend to the work of spinning (Ex. 35:26; Prov. 31:19), and making clothes (1 Sam. 2:19; Prov. 31:21), to bring water from the well (Gen. 24:15; 1 Sam. 9:11), and to care for the flocks (Gen. 29:6; Ex. 2:16).    The word "woman," as used in Matt. 15:28, John 2:4 and 20:13, 15, implies tenderness and courtesy and not disrespect. Only where revelation is known has woman her due place of honour assigned to her.
+
+## Wood
+
+See FOREST .
+
+## Wood-offering
+
+(Neh. 10:34; 13:31). It would seem that in the time of Nehemiah arrangements were made, probably on account of the comparative scarcity of wood, by which certain districts were required, as chosen by lot, to furnish wood to keep the altar fire perpetually burning (Lev. 6:13).
+
+## Wool
+
+one of the first material used for making woven cloth (Lev. 13:47, 48, 52, 59; 19:19). The first-fruit of wool was to be offered to the priests (Deut. 18:4). The law prohibiting the wearing of a garment "of divers sorts, as of woollen and linen together" (Deut. 22:11) may, like some other laws of a similar character, have been intended to express symbolically the separateness and simplicity of God`s covenant people. The wool of Damascus, famous for its whiteness, was of great repute in the Tyrian market (Ezek. 27:18).
+
+## Word of God
+
+(Heb. 4:12, etc.). The Bible so called because the writers of its several books were God`s organs in communicating his will to men. It is his "word," because he speaks to us in its sacred pages. Whatever the inspired writers here declare to be true and binding upon us, God declares to be true and binding. This word is infallible, because written under the guidance of the Holy Spirit, and therefore free from all error of fact or doctrine or precept. (See INSPIRATION ; BIBLE .) All saving knowledge is obtained from the word of God. In the case of adults it is an indispensable means of salvation, and is efficacious thereunto by the gracious influence of the Holy Spirit (John 17:17; 2 Tim. 3:15, 16; 1 Pet. 1:23).
+
+## Word, The
+
+(Gr. Logos), one of the titles of our Lord, found only in the writings of John (John 1:1-14; 1 John 1:1; Rev. 19:13). As such, Christ is the revealer of God. His office is to make God known. "No man hath seen God at any time; the only begotten Son, which is in the bosom of the Father, he hath declared him" (John 1:18). This title designates the divine nature of Christ. As the Word, he "was in the beginning" and "became flesh." "The Word was with God " and "was God," and was the Creator of all things (comp. Ps.33: 6; 107:20; 119:89; 147:18; Isa. 40:8).
+
+## Works, Covenant of
+
+entered into by God with Adam as the representative of the human race (comp. Gen. 9:11, 12; 17:1-21), so styled because perfect obedience was its condition, thus distinguishing it from the covenant of grace. (See COVENANT OF WORKS .)
+
+## Works, Good
+
+The old objection against the doctrine of salvation by grace, that it does away with the necessity of good works, and lowers the sense of their importance (Rom. 6), although it has been answered a thousand times, is still alleged by many. They say if men are not saved by works, then works are not necessary. If the most moral of men are saved in the same way as the very chief of sinners, then good works are of no moment. And more than this, if the grace of God is most clearly displayed in the salvation of the vilest of men, then the worse men are the better.    The objection has no validity. The gospel of salvation by grace shows that good works are necessary. It is true, unchangeably true, that without holiness no man shall see the Lord. "Neither adulterers, nor thieves, nor covetous, nor drunkards" shall inherit the kingdom of God.    Works are "good" only when, (1) they spring from the principle of love to God. The moral character of an act is determined by the moral principle that prompts it. Faith and love in the heart are the essential elements of all true obedience. Hence good works only spring from a believing heart, can only be wrought by one reconciled to God (Eph. 2:10; James 2:18:22). (2.) Good works have the glory of God as their object; and (3) they have the revealed will of God as their only rule (Deut. 12:32; Rev. 22:18, 19).    Good works are an expression of gratitude in the believer`s heart (John 14:15, 23; Gal. 5:6). They are the fruits of the Spirit (Titus 2:10-12), and thus spring from grace, which they illustrate and strengthen in the heart.    Good works of the most sincere believers are all imperfect, yet like their persons they are accepted through the mediation of Jesus Christ (Col. 3:17), and so are rewarded; they have no merit intrinsically, but are rewarded wholly of grace.
+
+## Worm
+
+(1.) Heb. sas (Isa. 51:8), denotes the caterpillar of the clothes-moth.    (2.) The manna bred worms (tola`im), but on the Sabbath there was not any worm (rimmah) therein (Ex. 16:20, 24). Here these words refer to caterpillars or larvae, which feed on corrupting matter.    These two Hebrew words appear to be interchangeable (Job 25:6; Isa. 14:11). Tola`im in some places denotes the caterpillar (Deut. 28:39; Jonah 4:7), and rimmah, the larvae, as bred from putridity (Job 17:14; 21:26; 24:20). In Micah 7:17, where it is said, "They shall move out of their holes like worms," perhaps serpents or "creeping things," or as in the Revised Version, "crawling things," are meant.    The word is used figuratively in Job 25:6; Ps. 22:6; Isa. 41:14; Mark 9:44, 46, 48; Isa. 66:24.
+
+## Wormwood
+
+Heb. la`anah, the Artemisia absinthium of botanists. It is noted for its intense bitterness (Deut. 29:18; Prov. 5:4; Jer. 9:15; Amos 5:7). It is a type of bitterness, affliction, remorse, punitive suffering. In Amos 6:12 this Hebrew word is rendered "hemlock" (R.V., "wormwood"). In the symbolical language of the Apocalypse (Rev. 8:10, 11) a star is represented as falling on the waters of the earth, causing the third part of the water to turn wormwood.    The name by which the Greeks designated it, absinthion, means "undrinkable." The absinthe of France is distilled from a species of this plant. The "southernwood" or "old man," cultivated in cottage gardens on account of its fragrance, is another species of it.
+
+## Worship
+
+homage rendered to God which it is sinful (idolatry) to render to any created being (Ex. 34:14; Isa. 2:8). Such worship was refused by Peter (Acts 10:25,26) and by an angel (Rev. 22:8,9).
+
+## Worshipper
+
+(Gr. neocoros = temple-sweeper (Acts 19:35) of the great goddess Diana). This name neocoros appears on most of the extant Ephesian coins
+
+## Wrestle
+
+(Eph. 6:12). See GAMES .
+
+## Writing
+
+The art of writing must have been known in the time of the early Pharaohs. Moses is commanded "to write for a memorial in a book" (Ex. 17:14) a record of the attack of Amalek. Frequent mention is afterwards made of writing (28:11, 21, 29, 36; 31:18; 32:15, 16; 34:1, 28; 39:6, 14, 30). The origin of this art is unknown, but there is reason to conclude that in the age of Moses it was well known. The inspired books of Moses are the most ancient extant writings, although there are written monuments as old as about B.C. 2000. The words expressive of "writing," "book," and "ink," are common to all the branches or dialects of the Semitic language, and hence it has been concluded that this art must have been known to the earliest Semites before they separated into their various tribes, and nations, and families.    "The Old Testament and the discoveries of Oriental archaeology alike tell us that the age of the Exodus was throughout the world of Western Asia an age of literature and books, of readers and writers, and that the cities of Palestine were stored with the contemporaneous records of past events inscribed on imperishable clay. They further tell us that the kinsfolk and neighbours of the Israelites were already acquainted with alphabetic writing, that the wanderers in the desert and the tribes of Edom were in contact with the cultured scribes and traders of Ma`in [Southern Arabia], and that the `house of bondage` from which Israel had escaped was a land where the art of writing was blazoned not only on the temples of the gods, but also on the dwellings of the rich and powerful.", Sayce. (See DEBIR ; PHOENICIA .)    The "Book of the Dead" was a collection of prayers and formulae, by the use of which the souls of the dead were supposed to attain to rest and peace in the next world. It was composed at various periods from the earliest time to the Persian conquest. It affords an interesting glimpse into the religious life and system of belief among the ancient Egyptians. We learn from it that they believed in the existence of one Supreme Being, the immortality of the soul, judgement after death, and the resurrection of the body. It shows, too, a high state of literary activity in Egypt in the time of Moses. It refers to extensive libraries then existing. That of Ramessium, in Thebes, e.g., built by Rameses II., contained 20,000 books.    When the Hebrews entered Canaan it is evident that the art of writing was known to the original inhabitants, as appears, e.g., from the name of the city Debir having been at first Kirjath-sepher, i.e., the "city of the book," or the "book town" (Josh. 10:38; 15:15; Judg. 1:11).    The first mention of letter-writing is in the time of David (2 Sam. 11:14, 15). Letters are afterwards frequently spoken of (1 Kings 21:8, 9, 11; 2 Kings 10:1, 3, 6, 7; 19:14; 2 Chr. 21:12-15; 30:1, 6-9, etc.).

@@ -1,9 +1,9 @@
-:root{--bg:#fbf9f4;--fg:#222;--mut:#777;--side:#f1ede3;--bd:#ddd5c4;--acc:#8a5a14;--hit:#ffe58a;--cur:#fff3c4}
-:root[data-theme=dark]{--bg:#17181b;--fg:#d8d8d4;--mut:#8b8b86;--side:#1f2024;--bd:#33353a;--acc:#e0aa5a;--hit:#6b5410;--cur:#2c2a1c}
+:root{--bg:#fbf9f4;--fg:#222;--mut:#777;--side:#f1ede3;--bd:#ddd5c4;--acc:#8a5a14;--hit:#ffe58a;--cur:#fff3c4;--nh:#f6dfa8}
+:root[data-theme=dark]{--bg:#17181b;--fg:#d8d8d4;--mut:#8b8b86;--side:#1f2024;--bd:#33353a;--acc:#e0aa5a;--hit:#6b5410;--cur:#2c2a1c;--nh:#4a3a1c}
 *{box-sizing:border-box}
 html,body{height:100%;margin:0}
 body{display:flex;background:var(--bg);color:var(--fg);font:16px/1.5 system-ui,Segoe UI,sans-serif}
-button,select,input{font:inherit;color:inherit}
+button,select,input,textarea{font:inherit;color:inherit}
 button{background:none;border:1px solid var(--bd);border-radius:6px;padding:.2rem .6rem;cursor:pointer}
 button:hover{background:var(--cur)}
 #side{width:340px;min-width:260px;background:var(--side);border-right:1px solid var(--bd);display:flex;flex-direction:column;height:100%}
@@ -38,6 +38,33 @@ mark{background:var(--hit);color:inherit;border-radius:2px;padding:0 1px}
 #doc h2{font-family:Georgia,serif;margin-top:2.2rem;border-bottom:1px solid var(--bd);padding-bottom:.2rem;color:var(--acc)}
 #doc p{font-family:Georgia,serif;font-size:1.08rem;line-height:1.7;margin:.35rem auto;padding:.1rem .5rem;border-radius:4px}
 #doc p .vn{color:var(--acc);font-weight:700;font-size:.8em;vertical-align:super;margin-right:.3em}
+#doc p .vn{cursor:pointer}
+#doc p .vn:hover{text-decoration:underline}
+#doc p.bm{box-shadow:inset 3px 0 var(--acc)}
+.bmi{display:flex;border-bottom:1px solid var(--bd)}
+.bmi .hit{flex:1;border-bottom:0}
+.bmi .del{border:0;color:var(--mut);align-self:flex-start;margin:.3rem .4rem}
+.status.err{color:#c0392b}
+.nh{background:var(--nh);color:inherit;border-bottom:2px solid var(--acc);cursor:pointer}
+#noteBtn{position:fixed;z-index:20;background:var(--acc);color:var(--bg);border-color:var(--acc);font-weight:600;box-shadow:0 2px 8px #0005}
+#noteBtn[hidden]{display:none}
+#noteDlg{width:min(34rem,92vw);background:var(--bg);color:var(--fg);border:1px solid var(--bd);border-radius:10px;padding:1rem}
+#noteDlg::backdrop{background:#0007}
+#noteDlg h3{margin:0 0 .4rem;color:var(--acc)}
+#noteQuote{margin:.3rem 0 .7rem;padding:.3rem .8rem;border-left:3px solid var(--acc);color:var(--mut);font-family:Georgia,serif;max-height:7rem;overflow:auto}
+#noteText{width:100%;resize:vertical;padding:.5rem;border:1px solid var(--bd);border-radius:6px;background:var(--side);font:inherit}
+#noteDlg .row{display:flex;gap:.5rem;margin-top:.7rem}
+#noteDlg .grow{flex:1}
+#noteDlg .primary{background:var(--acc);color:var(--bg);border-color:var(--acc);font-weight:600}
+#noteDlg .danger{color:#c0392b;border-color:#c0392b}
+.noteitem{border-bottom:1px solid var(--bd)}
+.noteitem .hit{border-bottom:0;padding-bottom:.1rem}
+.nq{font-style:italic;color:var(--mut);display:-webkit-box;-webkit-line-clamp:2;-webkit-box-orient:vertical;overflow:hidden}
+.nbody{padding:0 .8rem;font-size:.88rem}
+.nbody p,.nbody ul{margin:.3rem 0}
+.nbody h5{margin:.4rem 0 .1rem;font-size:.9rem}
+.nact{padding:.1rem .8rem .5rem;display:flex;gap:.4rem}
+.nact button{font-size:.75rem;padding:.05rem .5rem;color:var(--mut)}
 #doc p.flash{animation:flash 2.4s ease-out}
 #doc p.target{background:var(--cur)}
 @keyframes flash{0%,40%{background:var(--hit)}100%{background:transparent}}
@@ -51,3 +78,14 @@ kbd{border:1px solid var(--bd);border-radius:4px;padding:0 .3em;font-size:.85em}
 .seg button:last-child{border-radius:0 6px 6px 0;border-left:0}
 .seg button.on{background:var(--acc);border-color:var(--acc);color:var(--bg);font-weight:600}
 .bk[hidden]{display:none}
+#dict{width:360px;min-width:280px;background:var(--side);border-left:1px solid var(--bd);display:flex;flex-direction:column;height:100%}
+#dict[hidden]{display:none}
+#dict>header{display:flex;align-items:center;gap:.5rem;padding:.5rem .8rem;border-bottom:1px solid var(--bd)}
+#dict h2{flex:1;margin:0;font-size:1rem;color:var(--acc)}
+#dictBody{flex:1;overflow:auto;padding:.4rem .9rem 2rem}
+#dictBody h3{font-family:Georgia,serif;margin:1rem 0 .3rem;color:var(--acc);font-size:1.05rem}
+#dictBody p{font-family:Georgia,serif;margin:.3rem 0;line-height:1.6;font-size:.95rem}
+#dictBody .status{padding:.6rem 0}
+#dictBody a.ref{color:var(--acc);text-decoration:underline dotted;text-underline-offset:2px}
+#dictBody a.ref:hover{background:var(--cur)}
+@media(max-width:800px){#dict{position:fixed;right:0;z-index:6;width:90%;max-width:380px}}

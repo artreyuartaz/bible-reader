@@ -16,10 +16,12 @@
       <label><input type="checkbox" id="cs"> Match case</label>
     </div>
   </div>
-  <nav class="tabs"><button id="tabBooks" class="on">Books</button><button id="tabRes">Results <span id="resCount"></span></button></nav>
+  <nav class="tabs"><button id="tabBooks" class="on">Books</button><button id="tabRes">Results <span id="resCount"></span></button><button id="tabBm">Bookmarks <span id="bmCount"></span></button><button id="tabNotes">Notes <span id="noteCount"></span></button></nav>
   <div id="testaments" class="seg"><button data-t="ot" class="on">Old Testament</button><button data-t="nt">New Testament</button></div>
   <div id="books" class="panel"></div>
   <div id="results" class="panel" hidden></div>
+  <div id="bookmarks" class="panel" hidden></div>
+  <div id="notes" class="panel" hidden></div>
 </aside>
 <main id="main">
   <header id="bar">
@@ -29,8 +31,26 @@
     <button id="prev" title="Previous book">‹</button><button id="next" title="Next book">›</button>
     <button id="theme" title="Toggle theme">◐</button>
   </header>
-  <article id="doc"><p class="hint">Choose a book from the index, or search with <kbd>Ctrl</kbd>+<kbd>K</kbd>.</p></article>
+  <article id="doc"><p class="hint">Choose a book from the index, or search with <kbd>Ctrl</kbd>+<kbd>K</kbd>. Select a word to see its dictionary definition.</p></article>
 </main>
+<aside id="dict" hidden>
+  <header><h2 id="dictTitle">Dictionary</h2><button id="dictClose" title="Close">✕</button></header>
+  <div id="dictBody"></div>
+</aside>
+<button id="noteBtn" hidden>📝 Add note</button>
+<dialog id="noteDlg">
+  <form method="dialog" id="noteForm">
+    <h3 id="noteLabel"></h3>
+    <blockquote id="noteQuote"></blockquote>
+    <textarea id="noteText" rows="9" placeholder="Your private note… (Markdown supported)" spellcheck="true"></textarea>
+    <div class="row">
+      <button type="button" id="noteDel" class="danger" hidden>Delete</button>
+      <span class="grow"></span>
+      <button type="button" id="noteCancel">Cancel</button>
+      <button type="submit" id="noteSave" class="primary">Save</button>
+    </div>
+  </form>
+</dialog>
 <script src="app.js"></script>
 </body>
 </html>

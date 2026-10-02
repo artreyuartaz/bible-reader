@@ -1,0 +1,789 @@
+# E
+
+## Eagle
+
+(Herb. nesher; properly the griffon vulture or great vulture, so called from its tearing its prey with its beak), referred to for its swiftness of flight (Deut. 28:49; 2 Sam. 1:23), its mounting high in the air (Job 39:27), its strength (Ps. 103:5), its setting its nest in high places (Jer. 49:16), and its power of vision (Job 39:27-30).    This "ravenous bird" is a symbol of those nations whom God employs and sends forth to do a work of destruction, sweeping away whatever is decaying and putrescent (Matt. 24:28; Isa. 46:11; Ezek. 39:4; Deut. 28:49; Jer. 4:13; 48:40). It is said that the eagle sheds his feathers in the beginning of spring, and with fresh plumage assumes the appearance of youth. To this, allusion is made in Ps. 103:5 and Isa. 40:31. God`s care over his people is likened to that of the eagle in training its young to fly (Ex. 19:4; Deut. 32:11, 12). An interesting illustration is thus recorded by Sir Humphry Davy:, "I once saw a very interesting sight above the crags of Ben Nevis. Two parent eagles were teaching their offspring, two young birds, the maneuvers of flight. They began by rising from the top of the mountain in the eye of the sun. It was about mid-day, and bright for the climate. They at first made small circles, and the young birds imitated them. They paused on their wings, waiting till they had made their flight, and then took a second and larger gyration, always rising toward the sun, and enlarging their circle of flight so as to make a gradually ascending spiral. The young ones still and slowly followed, apparently flying better as they mounted; and they continued this sublime exercise, always rising till they became mere points in the air, and the young ones were lost, and afterwards their parents, to our aching sight." (See Isa. 40:31.)    There have been observed in Palestine four distinct species of eagles, (1) the golden eagle (Aquila chrysaetos); (2) the spotted eagle (Aquila naevia); (3) the common species, the imperial eagle (Aquila heliaca); and (4) the Circaetos gallicus, which preys on reptiles. The eagle was unclean by the Levitical law (Lev. 11:13; Deut. 14:12).
+
+## Ear
+
+used frequently in a figurative sense (Ps. 34:15). To "uncover the ear" is to show respect to a person (1 Sam. 20:2 marg.). To have the "ear heavy", or to have "uncircumcised ears" (Isa. 6:10), is to be inattentive and disobedient. To have the ear "bored" through with an awl was a sign of perpetual servitude (Ex. 21:6).
+
+## Earing
+
+an Old English word (from the Latin aro, I plough), meaning "ploughing." It is used in the Authorized Version in Gen. 45:6; Ex. 34:21; 1 Sam. 8:12; Deut. 21:4; Isa. 30:24; but the Revised Version has rendered the original in these places by the ordinary word to plough or till.
+
+## Earnest
+
+The Spirit is the earnest of the believer`s destined inheritance (2 Cor. 1:22; 5:5; Eph. 1:14). The word thus rendered is the same as that rendered "pledge" in Gen. 38:17-20; "indeed, the Hebrew word has simply passed into the Greek and Latin languages, probably through commercial dealings with the Phoenicians, the great trading people of ancient days. Originally it meant no more than a pledge; but in common usage it came to denote that particular kind of pledge which is a part of the full price of an article paid in advance; and as it is joined with the figure of a seal when applied to the Spirit, it seems to be used by Paul in this specific sense." The Spirit`s gracious presence and working in believers is a foretaste to them of the blessedness of heaven. God is graciously pleased to give not only pledges but foretastes of future blessedness.
+
+## Earrings
+
+rings properly for the ear (Gen. 35:4; Num. 31:50; Ezek. 16:12). In Gen. 24:47 the word means a nose-jewel, and is so rendered in the Revised Version. In Isa. 3:20 the Authorized Version has "ear-rings," and the Revised Version "amulets," which more correctly represents the original word (lehashim), which means incantations; charms, thus remedies against enchantment, worn either suspended from the neck or in the ears of females. Ear-rings were ornaments used by both sexes (Ex. 32:2).
+
+## Earth
+
+(1.) In the sense of soil or ground, the translation of the word _adamah`_. In Gen. 9:20 "husbandman" is literally "man of the ground or earth." Altars were to be built of earth (Ex. 20:24). Naaman asked for two mules` burden of earth (2 Kings 5:17), under the superstitious notion that Jehovah, like the gods of the heathen, could be acceptably worshipped only on his own soil.    (2). As the rendering of _`erets_, it means the whole world (Gen. 1:2); the land as opposed to the sea (1:10). _Erets_ also denotes a country (21:32); a plot of ground (23:15); the ground on which a man stands (33:3); the inhabitants of the earth (6:1; 11:1); all the world except Israel (2 Chr. 13:9). In the New Testament "the earth" denotes the land of Judea (Matt. 23:35); also things carnal in contrast with things heavenly (John 3:31; Col. 3:1, 2).
+
+## Earthquake
+
+mentioned among the extraordinary phenomena of Palestine (Ps. 18:7; comp. Hab. 3:6; Nah. 1:5; Isa. 5:25).    The first earthquake in Palestine of which we have any record happened in the reign of Ahab (1 Kings 19:11, 12). Another took place in the days of Uzziah, King of Judah (Zech. 14:5). The most memorable earthquake taking place in New Testament times happened at the crucifixion of our Lord (Matt. 27:54). An earthquake at Philippi shook the prison in which Paul and Silas were imprisoned (Act 16:26).    It is used figuratively as a token of the presence of the Lord (Judg. 5:4; 2 Sam. 22:8; Ps. 77:18; 97:4; 104:32).
+
+## East
+
+(1.) The orient (mizrah); the rising of the sun. Thus "the east country" is the country lying to the east of Syria, the Elymais (Zech. 8:7).    (2). Properly what is in front of one, or a country that is before or in front of another; the rendering of the word _kedem_. In pointing out the quarters, a Hebrew always looked with his face toward the east. The word _kedem_ is used when the four quarters of the world are described (Gen. 13:14; 28:14); and _mizrah_ when the east only is distinguished from the west (Josh. 11:3; Ps. 50:1; 103:12, etc.). In Gen. 25:6 "eastward" is literally "unto the land of kedem;" i.e., the lands lying east of Palestine, namely, Arabia, Mesopotamia, etc.
+
+## East, Children of the
+
+the Arabs as a whole, known as the Nabateans or Kedarenes, nomad tribes (Judg. 6:3,33; 7:12; 8:10).
+
+## Easter
+
+originally a Saxon word (Eostre), denoting a goddess of the Saxons, in honour of whom sacrifices were offered about the time of the Passover. Hence the name came to be given to the festival of the Resurrection of Christ, which occured at the time of the Passover. In the early English versions this word was frequently used as the translation of the Greek pascha (the Passover). When the Authorized Version (1611) was formed, the word "passover" was used in all passages in which this word pascha occurred, except in Act 12:4. In the Revised Version the proper word, "passover," is always used.
+
+## East gate
+
+(Jer. 19:2), properly the Potter`s gate, the gate which led to the potter`s field, in the valley of Hinnom.
+
+## East sea
+
+(Joel 2:20; Ezek. 47:18), the Dead Sea, which lay on the east side of the Holy Land. The Mediterranean, which lay on the west, was hence called the "great sea for the west border" (Num. 34:6).
+
+## East wind
+
+the wind coming from the east (Job 27:21; Isa. 27:8, etc.). Blight caused by this wind, "thin ears" (Gen. 41:6); the withered "gourd" (Jonah 4: 8). It was the cause and also the emblem of evil (Ezek. 17:10; 19:12; Hos. 13:15). In Palestine this wind blows from a burning desert, and hence is destitute of moisture necessary for vegetation.
+
+## Eating
+
+The ancient Hebrews would not eat with the Egyptians (Gen. 43:32). In the time of our Lord they would not eat with Samaritans (John 4:9), and were astonished that he ate with publicans and sinners (Matt. 9:11). The Hebrews originally sat at table, but afterwards adopted the Persian and Chaldean practice of reclining (Luke 7:36-50). Their principal meal was at noon (Gen. 43:16; 1 Kings 20:16; Ruth 2:14; Luke 14:12). The word "eat" is used metaphorically in Jer. 15:16; Ezek. 3:1; Rev. 10:9. In John 6:53-58, "eating and drinking" means believing in Christ. Women were never present as guests at meals (q.v.).
+
+## Ebal
+
+stony. (1.) A mountain 3,076 feet above the level of the sea, and 1,200 feet above the level of the valley, on the north side of which stood the city of Shechem (q.v.). On this mountain six of the tribes (Deut. 27:12,13) were appointed to take their stand and respond according to a prescribed form to the imprecations uttered in the valley, where the law was read by the Levites (11:29; 29:4, 13). This mountain was also the site of the first great altar erected to Jehovah (Deut. 27:5-8; Josh. 8:30-35). After this the name of Ebal does not again occur in Jewish history. (See GERIZIM .)    (2.) A descendant of Eber (1 Chr. 1:22), called also Obal (Gen. 10:28).    (3.) A descendant of Seir the Horite (Gen. 36:23).
+
+## Ebed
+
+slave, the father of Gaal, in whom the men of Shechem "put confidence" in their conspiracy against Abimelech (Judg. 9:26, 26, 30, 31).
+
+## Ebed-melech
+
+a servant of the king; probably an official title, an Ethiopian, "one of the eunuchs which was in the king`s house;" i.e., in the palace of Zedekiah, king of Judah. He interceded with the king in Jeremiah`s behalf, and was the means of saving him from death by famine (Jer. 38:7-13: comp. 39:15-18).
+
+## Eben-ezer
+
+stone of help, the memorial stone set up by Samuel to commemorate the divine assistance to Israel in their great battle against the Philistines, whom they totally routed (1 Sam. 7:7-12) at Aphek, in the neighbourhood of Mizpeh, in Benjamin, near the western entrance of the pass of Beth-horon. On this very battle-field, twenty years before, the Philistines routed the Israelites, "and slew of the army in the field about four thousand men" (4:1,2; here, and at 5:1, called "Eben-ezer" by anticipation). In this extremity the Israelites fetched the ark out of Shiloh and carried it into their camp. The Philistines a second time immediately attacked them, and smote them with a very great slaughter, "for there fell of Israel thirty thousand footmen. And the ark of God was taken" (1 Sam. 4:10). And now in the same place the Philistines are vanquished, and the memorial stone is erected by Samuel (q.v.). The spot where the stone was erected was somewhere "between Mizpeh and Shen." Some have identified it with the modern Beit Iksa, a conspicuous and prominent position, apparently answering all the necessary conditions; others with Dier Aban, 3 miles east of `Ain Shems.
+
+## Eber
+
+beyond. (1.). The third post-duluvian patriach after Shem (Gen. 10:24; 11:14). He is regarded as the founder of the Hebrew race (10:21; Num. 24:24). In Luke 3:35 he is called Heber.    (2.) One of the seven heads of the families of the Gadites (1 Chr. 5:13).    (3.) The oldest of the three sons of Elpaal the Benjamite (8:12).    (4.) One of the heads of the familes of Benjamites in Jerusalem (22).    (5.) The head of the priestly family of Amok in the time of Zerubbabel (Neh. 12:20).
+
+## Ebony
+
+a black, hard wood, brought by the merchants from India to Tyre (Ezek. 27:15). It is the heart-wood, brought by Diospyros ebenus, which grows in Ceylon and Southern India.
+
+## Ebronah
+
+passage, one of the stations of the Israelites in their wanderings (Num. 33:34, 35). It was near Ezion-geber.
+
+## Ecbatana
+
+(Ezra 6:2 marg.). (See ACHMETHA .)
+
+## Ecclesiastes
+
+the Greek rendering of the Hebrew _Koheleth_, which means "Preacher." The old and traditional view of the authorship of this book attributes it to Solomon. This view can be satisfactorily maintained, though others date it from the Captivity. The writer represents himself implicitly as Solomon (1:12). It has been appropriately styled The Confession of King Solomon. "The writer is a man who has sinned in giving way to selfishness and sensuality, who has paid the penalty of that sin in satiety and weariness of life, but who has through all this been under the discipline of a divine education, and has learned from it the lesson which God meant to teach him." "The writer concludes by pointing out that the secret of a true life is that a man should consecrate the vigour of his youth to God." The key-note of the book is sounded in ch. 1:2,    "Vanity of vanities! saith the Preacher,   Vanity of vanities! all is vanity!"  i.e., all man`s efforts to find happiness apart from God are without result.
+
+## Eclipse
+
+of the sun alluded to in Amos 8:9; Micah 3:6; Zech. 14:6; Joel 2:10. Eclipses were regarded as tokens of God`s anger (Joel 3:15; Job 9:7). The darkness at the crucifixion has been ascribed to an eclipse (Matt. 27:45); but on the other hand it is argued that the great intensity of darkness caused by an eclipse never lasts for more than six minutes, and this darkness lasted for three hours. Moreover, at the time of the Passover the moon was full, and therefore there could not be an eclipse of the sun, which is caused by an interposition of the moon between the sun and the earth.
+
+## Ed
+
+witness, a word not found in the original Hebrew, nor in the LXX. and Vulgate, but added by the translators in the Authorized Version, also in the Revised Version, of Josh. 22:34. The words are literally rendered: "And the children of Reuben and the children of Gad named the altar. It is a witness between us that Jehovah is God." This great altar stood probably on the east side of the Jordan, in the land of Gilead, "over against the land of Canaan." After the division of the Promised Land, the tribes of Reuben and Gad and the half-tribe of Manasseh, on returning to their own settlements on the east of Jordan (Josh. 22:1-6), erected a great altar, which they affirmed, in answer to the challenge of the other tribes, was not for sacrifice, but only as a witness (`Ed) or testimony to future generations that they still retained the same interest in the nation as the other tribes.
+
+## Edar
+
+tower of the flock, a tower between Bethlehem and Hebron, near which Jacob first halted after leaving Bethlehem (Gen. 35:21). In Micah 4:8 the word is rendered "tower of the flock" (marg., "Edar"), and is used as a designation of Bethlehem, which figuratively represents the royal line of David as sprung from Bethlehem.
+
+## Eden
+
+delight. (1.) The garden in which our first parents dewlt (Gen. 2:8-17). No geographical question has been so much discussed as that bearing on its site. It has been placed in Armenia, in the region west of the Caspian Sea, in Media, near Damascus, in Palestine, in Southern Arabia, and in Babylonia. The site must undoubtedly be sought for somewhere along the course of the great streams the Tigris and the Euphrates of Western Asia, in "the land of Shinar" or Babylonia. The region from about lat. 33 degrees 30` to lat. 31 degrees, which is a very rich and fertile tract, has been by the most competent authorities agreed on as the probable site of Eden. "It is a region where streams abound, where they divide and re-unite, where alone in the Mesopotamian tract can be found the phenomenon of a single river parting into four arms, each of which is or has been a river of consequence."    Among almost all nations there are traditions of the primitive innocence of our race in the garden of Eden. This was the "golden age" to which the Greeks looked back. Men then lived a "life free from care, and without labour and sorrow. Old age was unknown; the body never lost its vigour; existence was a perpetual feast without a taint of evil. The earth brought forth spontaneously all things that were good in profuse abundance."    (2.) One of the markets whence the merchants of Tyre obtained richly embroidered stuffs (Ezek. 27:23); the same, probably, as that mentioned in 2 Kings 19:12, and Isa. 37:12, as the name of a region conquered by the Assyrians.    (3.) Son of Joah, and one of the Levites who assisted in reforming the public worship of the sanctuary in the time of Hezekiah (2 Chr. 29:12).
+
+## Eder
+
+flock. (1.) A city in the south of Judah, on the border of Idumea (Josh. 15:21).    (2.) The second of the three sons of Mushi, of the family of Merari, appointed to the Levitical office (1 Chr. 23:23; 24:30).
+
+## Edom
+
+(1.) The name of Esau (q.v.), Gen. 25:30, "Feed me, I pray thee, with that same red pottage [Heb. haadom, haadom, i.e., `the red pottage, the red pottage`] ...Therefore was his name called Edom", i.e., Red.    (2.) Idumea (Isa. 34:5, 6; Ezek. 35:15). "The field of Edom" (Gen. 32:3), "the land of Edom" (Gen. 36:16), was mountainous (Obad. 1:8, 9, 19, 21). It was called the land, or "the mountain of Seir," the rough hills on the east side of the Arabah. It extended from the head of the Gulf of Akabah, the Elanitic gulf, to the foot of the Dead Sea (1 Kings 9:26), and contained, among other cities, the rock-hewn Sela (q.v.), generally known by the Greek name Petra (2 Kings 14:7). It is a wild and rugged region, traversed by fruitful valleys. Its old capital was Bozrah (Isa. 63:1). The early inhabitants of the land were Horites. They were destroyed by the Edomites (Deut. 2:12), between whom and the kings of Israel and Judah there was frequent war (2 Kings 8:20; 2 Chr. 28:17).    At the time of the Exodus they churlishly refused permission to the Israelites to pass through their land (Num. 20:14-21), and ever afterwards maintained an attitude of hostility toward them. They were conquered by David (2 Sam. 8:14; comp. 1 Kings 9:26), and afterwards by Amaziah (2 Chr. 25:11, 12). But they regained again their independence, and in later years, during the decline of the Jewish kingdom (2 Kings 16:6; R.V. marg., "Edomites"), made war against Israel. They took part with the Chaldeans when Nebuchadnezzar captured Jerusalem, and afterwards they invaded and held possession of the south of Palestine as far as Hebron. At length, however, Edom fell under the growing Chaldean power (Jer. 27:3, 6).    There are many prophecies concerning Edom (Isa. 34:5, 6; Jer. 49:7-18; Ezek. 25:13; 35:1-15; Joel 3:19; Amos 1:11; Obad.; Mal. 1:3, 4) which have been remarkably fulfilled. The present desolate condition of that land is a standing testimony to the inspiration of these prophecies. After an existence as a people for above seventeen hundred years, they have utterly disappeared, and their language even is forgotten for ever. In Petra, "where kings kept their court, and where nobles assembled, there no man dwells; it is given by lot to birds, and beasts, and reptiles."    The Edomites were Semites, closely related in blood and in language to the Israelites. They dispossessed the Horites of Mount Seir; though it is clear, from Gen. 36, that they afterwards intermarried with the conquered population. Edomite tribes settled also in the south of Judah, like the Kenizzites (Gen. 36:11), to whom Caleb and Othniel belonged (Josh. 15:17). The southern part of Edom was known as Teman.
+
+## Edrei
+
+mighty; strength. (1.) One of the chief towns of the kingdom of Bashan (Josh. 12:4, 5). Here Og was defeated by the Israelites, and the strength of the Amorites broken (Num. 21:33-35). It subsequently belonged to Manasseh, for a short time apparently, and afterwards became the abode of banditti and outlaws (Josh. 13:31). It has been identified with the modern Edr`a, which stands on a rocky promontory on the south-west edge of the Lejah (the Argob of the Hebrews, and Trachonitis of the Greeks). The ruins of Edr`a are the most extensive in the Hauran. They are 3 miles in circumference. A number of the ancient houses still remain; the walls, roofs, and doors being all of stone. The wild region of which Edrei was the capital is thus described in its modern aspect: "Elevated about 20 feet above the plain, it is a labyrinth of clefts and crevasses in the rock, formed by volcanic action; and owing to its impenetrable condition, it has become a refuge for outlaws and turbulent characters, who make it a sort of Cave of Adullam...It is, in fact, an impregnable natural fortress, about 20 miles in length and 15 in breadth" (Porter`s Syria, etc.). Beneath this wonderful city there is also a subterranean city, hollowed out probably as a refuge for the population of the upper city in times of danger. (See BASHAN .)    (2.) A town of Naphtali (Josh. 19:37).
+
+## Effectual call
+
+See CALL .
+
+## Effectual prayer
+
+occurs in Authorized Version, James 5:16. The Revised Version renders appropriately: "The supplication of a righteous man availeth much in its working", i.e., "it moves the hand of Him who moves the world."
+
+## Egg
+
+(Heb. beytsah, "whiteness"). Eggs deserted (Isa. 10:14), of a bird (Deut. 22:6), an ostrich (Job 39:14), the cockatrice (Isa. 59:5). In Luke 11:12, an egg is contrasted with a scorpion, which is said to be very like an egg in its appearance, so much so as to be with difficulty at times distinguished from it. In Job 6:6 ("the white of an egg") the word for egg (hallamuth`) occurs nowhere else. It has been translated "purslain" (R.V. marg.), and the whole phrase "purslain-broth", i.e., broth made of that herb, proverbial for its insipidity; and hence an insipid discourse. Job applies this expression to the speech of Eliphaz as being insipid and dull. But the common rendering, "the white of an egg", may be satisfactorily maintained.
+
+## Eglah
+
+a heifer, one of David`s wives, and mother of Ithream (2 Sam. 3:5; 1 Chr. 3:3). According to a Jewish tradition she was Michal.
+
+## Eglaim
+
+two ponds, (Isa. 15:8), probably En-eglaim of Ezek. 47:10.
+
+## Eglon
+
+the bullock; place of heifers. (1.) Chieftain or king of one of the Moabite tribes (Judg. 3:12-14). Having entered into an alliance with Ammon and Amalek, he overran the trans-Jordanic region, and then crossing the Jordan, seized on Jericho, the "city of palm trees," which had been by this time rebuilt, but not as a fortress. He made this city his capital, and kept Israel in subjection for eighteen years. The people at length "cried unto the Lord" in their distress, and he "raised them up a deliverer" in Ehud (q.v.), the son of Gera, a Benjamite.    (2.) A city in Judah, near Lachish (Josh. 15:39). It was destroyed by Joshua (10:5, 6). It has been identified with Tell Nejileh, 6 miles south of Tell Hesy or Ajlan, north-west of Lachish. (See LACHISH .)
+
+## Egypt
+
+the land of the Nile and the pyramids, the oldest kingdom of which we have any record, holds a place of great significance in Scripture.    The Egyptians belonged to the white race, and their original home is still a matter of dispute. Many scholars believe that it was in Southern Arabia, and recent excavations have shown that the valley of the Nile was originally inhabited by a low-class population, perhaps belonging to the Nigritian stock, before the Egyptians of history entered it. The ancient Egyptian language, of which the latest form is Coptic, is distantly connected with the Semitic family of speech.    Egypt consists geographically of two halves, the northern being the Delta, and the southern Upper Egypt, between Cairo and the First Cataract. In the Old Testament, Northern or Lower Egypt is called Mazor, "the fortified land" (Isa. 19:6; 37: 25, where the A.V. mistranslates "defence" and "besieged places"); while Southern or Upper Egypt is Pathros, the Egyptian Pa-to-Res, or "the land of the south" (Isa. 11:11). But the whole country is generally mentioned under the dual name of Mizraim, "the two Mazors."    The civilization of Egypt goes back to a very remote antiquity. The two kingdoms of the north and south were united by Menes, the founder of the first historical dynasty of kings. The first six dynasties constitute what is known as the Old Empire, which had its capital at Memphis, south of Cairo, called in the Old Testament Moph (Hos. 9:6) and Noph. The native name was Mennofer, "the good place."    The Pyramids were tombs of the monarchs of the Old Empire, those of Gizeh being erected in the time of the Fourth Dynasty. After the fall of the Old Empire came a period of decline and obscurity. This was followed by the Middle Empire, the most powerful dynasty of which was the Twelfth. The Fayyum was rescued for agriculture by the kings of the Twelfth Dynasty; and two obelisks were erected in front of the temple of the sun-god at On or Heliopolis (near Cairo), one of which is still standing. The capital of the Middle Empire was Thebes, in Upper Egypt.    The Middle Empire was overthrown by the invasion of the Hyksos, or shepherd princes from Asia, who ruled over Egypt, more especially in the north, for several centuries, and of whom there were three dynasties of kings. They had their capital at Zoan or Tanis (now San), in the north-eastern part of the Delta. It was in the time of the Hyksos that Abraham, Jacob, and Joseph entered Egypt. The Hyksos were finally expelled about B.C. 1600, by the hereditary princes of Thebes, who founded the Eighteenth Dynasty, and carried the war into Asia. Canaan and Syria were subdued, as well as Cyprus, and the boundaries of the Egyptian Empire were fixed at the Euphrates. The Soudan, which had been conquered by the kings of the Twelfth Dynasty, was again annexed to Egypt, and the eldest son of the Pharaoh took the title of "Prince of Cush."    One of the later kings of the dynasty, Amenophis IV., or Khu-n-Aten, endeavoured to supplant the ancient state religion of Egypt by a new faith derived from Asia, which was a sort of pantheistic monotheism, the one supreme god being adored under the image of the solar disk. The attempt led to religious and civil war, and the Pharaoh retreated from Thebes to Central Egypt, where he built a new capital, on the site of the present Tell-el-Amarna. The cuneiform tablets that have been found there represent his foreign correspondence (about B.C. 1400). He surrounded himself with officials and courtiers of Asiatic, and more especially Canaanitish, extraction; but the native party succeeded eventually in overthrowing the government, the capital of Khu-n-Aten was destroyed, and the foreigners were driven out of the country, those that remained being reduced to serfdom.    The national triumph was marked by the rise of the Nineteenth Dynasty, in the founder of which, Rameses I., we must see the "new king, who knew not Joseph." His grandson, Rameses II., reigned sixty-seven years (B.C. 1348-1281), and was an indefatigable builder. As Pithom, excavated by Dr. Naville in 1883, was one of the cities he built, he must have been the Pharaoh of the Oppression. The Pharaoh of the Exodus may have been one of his immediate successors, whose reigns were short. Under them Egypt lost its empire in Asia, and was itself attacked by barbarians from Libya and the north.    The Nineteenth Dynasty soon afterwards came to an end; Egypt was distracted by civil war; and for a short time a Canaanite, Arisu, ruled over it.    Then came the Twentieth Dynasty, the second Pharaoh of which, Rameses III., restored the power of his country. In one of his campaigns he overran the southern part of Palestine, where the Israelites had not yet settled. They must at the time have been still in the wilderness. But it was during the reign of Rameses III. that Egypt finally lost Gaza and the adjoining cities, which were seized by the Pulista, or Philistines.    After Rameses III., Egypt fell into decay. Solomon married the daughter of one of the last kings of the Twenty-first Dynasty, which was overthrown by Shishak I., the general of the Libyan mercenaries, who founded the Twenty-second Dynasty (1 Kings 11:40; 14:25, 26). A list of the places he captured in Palestine is engraved on the outside of the south wall of the temple of Karnak.    In the time of Hezekiah, Egypt was conquered by Ethiopians from the Soudan, who constituted the Twenty-fifth Dynasty. The third of them was Tirhakah (2 Kings 19:9). In B.C. 674 it was conquered by the Assyrians, who divided it into twenty satrapies, and Tirhakah was driven back to his ancestral dominions. Fourteen years later it successfully revolted under Psammetichus I. of Sais, the founder of the Twenty-sixth Dynasty. Among his successors were Necho (2 Kings 23:29) and Hophra, or Apries (Jer. 37:5, 7, 11). The dynasty came to an end in B.C. 525, when the country was subjugated by Cambyses. Soon afterwards it was organized into a Persian satrapy.    The title of Pharaoh, given to the Egyptian kings, is the Egyptian Per-aa, or "Great House," which may be compared to that of "Sublime Porte." It is found in very early Egyptian texts.    The Egyptian religion was a strange mixture of pantheism and animal worship, the gods being adored in the form of animals. While the educated classes resolved their manifold deities into manifestations of one omnipresent and omnipotent divine power, the lower classes regarded the animals as incarnations of the gods.    Under the Old Empire, Ptah, the Creator, the god of Memphis, was at the head of the Pantheon; afterwards Amon, the god of Thebes, took his place. Amon, like most of the other gods, was identified with Ra, the sun-god of Heliopolis.    The Egyptians believed in a resurrection and future life, as well as in a state of rewards and punishments dependent on our conduct in this world. The judge of the dead was Osiris, who had been slain by Set, the representative of evil, and afterwards restored to life. His death was avenged by his son Horus, whom the Egyptians invoked as their "Redeemer." Osiris and Horus, along with Isis, formed a trinity, who were regarded as representing the sun-god under different forms.    Even in the time of Abraham, Egypt was a flourishing and settled monarchy. Its oldest capital, within the historic period, was Memphis, the ruins of which may still be seen near the Pyramids and the Sphinx. When the Old Empire of Menes came to an end, the seat of empire was shifted to Thebes, some 300 miles farther up the Nile. A short time after that, the Delta was conquered by the Hyksos, or shepherd kings, who fixed their capital at Zoan, the Greek Tanis, now San, on the Tanic arm of the Nile. All this occurred before the time of the new king "which knew not Joseph" (Ex. 1:8). In later times Egypt was conquered by the Persians (B.C. 525), and by the Greeks under Alexander the Great (B.C. 332), after whom the Ptolemies ruled the country for three centuries. Subsequently it was for a time a province of the Roman Empire; and at last, in A.D. 1517, it fell into the hands of the Turks, of whose empire it still forms nominally a part. Abraham and Sarah went to Egypt in the time of the shepherd kings. The exile of Joseph and the migration of Jacob to "the land of Goshen" occurred about 200 years later. On the death of Solomon, Shishak, king of Egypt, invaded Palestine (1 Kings 14:25). He left a list of the cities he conquered.    A number of remarkable clay tablets, discovered at Tell-el-Amarna in Upper Egypt, are the most important historical records ever found in connection with the Bible. They most fully confirm the historical statements of the Book of Joshua, and prove the antiquity of civilization in Syria and Palestine. As the clay in different parts of Palestine differs, it has been found possible by the clay alone to decide where the tablets come from when the name of the writer is lost. The inscriptions are cuneiform, and in the Aramaic language, resembling Assyrian. The writers are Phoenicians, Amorites, and Philistines, but in no instance Hittites, though Hittites are mentioned. The tablets consist of official dispatches and letters, dating from B.C. 1480, addressed to the two Pharaohs, Amenophis III. and IV., the last of this dynasty, from the kings and governors of Phoenicia and Palestine. There occur the names of three kings killed by Joshua, Adoni-zedec, king of Jerusalem, Japhia, king of Lachish (Josh. 10:3), and Jabin, king of Hazor (11:1); also the Hebrews (Abiri) are said to have come from the desert.    The principal prophecies of Scripture regarding Egypt are these, Isa. 19; Jer. 43: 8-13; 44:30; 46; Ezek. 29-32; and it might be easily shown that they have all been remarkably fulfilled. For example, the singular disappearance of Noph (i.e., Memphis) is a fulfilment of Jer. 46:19, Ezek. 30:13.
+
+## Ehud
+
+union. (1.) A descendant of Benjamin (1 Chr. 7:10), his great-grandson.    (2.) The son of Gera, of the tribe of Benjamin (Judg. 3:15). After the death of Othniel the people again fell into idolatry, and Eglon, the king of Moab, uniting his bands with those of the Ammonites and the Amalekites, crossed the Jordan and took the city of Jericho, and for eighteen years held that whole district in subjection, exacting from it an annual tribute. At length Ehud, by a stratagem, put Eglon to death with a two-edged dagger a cubit long, and routed the Moabites at the fords of the Jordan, putting 10,000 of them to death. Thenceforward the land, at least Benjamin, enjoyed rest "for fourscore years" (Judg. 3:12-30). (See QUARRIES  [2].) But in the south-west the Philistines reduced the Israelites to great straits (Judg. 5:6). From this oppression Shamgar was raised up to be their deliverer.
+
+## Ekron
+
+firm-rooted, the most northerly of the five towns belonging to the lords of the Philistines, about 11 miles north of Gath. It was assigned to Judah (Josh. 13:3), and afterwards to Dan (19:43), but came again into the full possession of the Philistines (1 Sam. 5:10). It was the last place to which the Philistines carried the ark before they sent it back to Israel (1 Sam. 5:10; 6:1-8). There was here a noted sanctuary of Baal-zebub (2 Kings 1: 2, 3, 6, 16). Now the small village Akir. It is mentioned on monuments in B.C. 702, when Sennacherib set free its king, imprisoned by Hezekiah in Jerusalem, according to the Assyrian record.
+
+## Elah
+
+terebinth or oak. (1.) Valley of, where the Israelites were encamped when David killed Goliath (1 Sam. 17:2, 19). It was near Shochoh of Judah and Azekah (17:1). It is the modern Wady es-Sunt, i.e., "valley of the acacia." "The terebinths from which the valley of Elah takes its name still cling to their ancient soil. On the west side of the valley, near Shochoh, there is a very large and ancient tree of this kind known as the `terebinth of Wady Sur,` 55 feet in height, its trunk 17 feet in circumference, and the breadth of its shade no less than 75 feet. It marks the upper end of the Elah valley, and forms a noted object, being one of the largest terebinths in Palestine." Geikie`s, The Holy Land, etc.    (2.) One of the Edomite chiefs or "dukes" of Mount Seir (Gen. 36:41).    (3.) The second of the three sons of Caleb, the son of Jephunneh (1 Chr. 4:15).    (4.) The son and successor of Baasha, king of Israel (1 Kings 16:8-10). He was killed while drunk by Zimri, one of the captains of his chariots, and was the last king of the line of Baasha. Thus was fullfilled the prophecy of Jehu (6, 7, 11-14).    (5.) The father of Hoshea, the last king of Israel (2 Kings 15:30; 17:1).
+
+## Elam
+
+highland, the son of Shem (Gen. 10:22), and the name of the country inhabited by his descendants (14:1, 9; Isa. 11:11; 21:2, etc.) lying to the east of Babylonia, and extending to the shore of the Mediterranean, a distance in a direct line of about 1,000 miles. The name Elam is an Assyrian word meaning "high."    "The inhabitants of Elam, or `the Highlands,` to the east of Babylon, were called Elamites. They were divided into several branches, speaking different dialects of the same agglutinative language. The race to which they belonged was brachycephalic, or short-headed, like the pre-Semitic Sumerians of Babylonia.    "The earliest Elamite kingdom seems to have been that of Anzan, the exact site of which is uncertain; but in the time of Abraham, Shushan or Susa appears to have already become the capital of the country. Babylonia was frequently invaded by the Elamite kings, who at times asserted their supremacy over it (as in the case of Chedorlaomer, the Kudur-Lagamar, or `servant of the goddess Lagamar,` of the cuneiform texts).    "The later Assyrian monarchs made several campaigns against Elam, and finally Assur-bani-pal (about B.C. 650) succeeded in conquering the country, which was ravaged with fire and sword. On the fall of the Assyrian Empire, Elam passed into the hands of the Persians" (A.H. Sayce).    This country was called by the Greeks Cissia or Susiana.
+
+## Elasah
+
+God made. (1.) One of the descendants of Judah, of the family of Hezron (1 Chr. 2:39, "Eleasah").    (2.) A descendant of king Saul (1 Chr. 8:37; 9:43).    (3.) The son of Shaphan, one of the two who were sent by Zedekiah to Nebuchadnezzar, and also took charge of Jeremiah`s letter to the captives in Babylon (Jer. 29:3).
+
+## Elath
+
+grove; trees, (Deut. 2:8), also in plural form Eloth (1 Kings 9:26, etc.); called by the Greeks and Romans Elana; a city of Idumea, on the east, i.e., the Elanitic, gulf, or the Gulf of Akabah, of the Red Sea. It is first mentioned in Deut. 2:8. It is also mentioned along with Ezion-geber in 1 Kings 9:26. It was within the limits of Solomon`s dominion, but afterwards revolted. It was, however, recovered and held for a time under king Uzziah (2 Kings 14:22). Now the ruin Aila.
+
+## El-Bethel
+
+God of Bethel, the name of the place where Jacob had the vision of the ladder, and where he erected an altar (Gen. 31:13; 35:7).
+
+## Eldad
+
+whom God has loved, one of the seventy elders whom Moses appointed (Num. 11:26, 27) to administer justice among the people. He, with Medad, prophesied in the camp instead of going with the rest to the tabernacle, as Moses had commanded. This incident was announced to Moses by Joshua, who thought their conduct in this respect irregular. Moses replied, "Enviest thou for my sake? would God that all the Lord`s people were prophets" (Num. 11:24-30; comp. Mark 9:38; Luke 9:49).
+
+## Elder
+
+a name frequently used in the Old Testament as denoting a person clothed with authority, and entitled to respect and reverence (Gen. 50:7). It also denoted a political office (Num. 22:7). The "elders of Israel" held a rank among the people indicative of authority. Moses opened his commission to them (Ex. 3:16). They attended Moses on all important occasions. Seventy of them attended on him at the giving of the law (Ex. 24:1). Seventy also were selected from the whole number to bear with Moses the burden of the people (Num. 11:16, 17). The "elder" is the keystone of the social and political fabric wherever the patriarchal system exists. At the present day this is the case among the Arabs, where the sheik (i.e., "the old man") is the highest authority in the tribe. The body of the "elders" of Israel were the representatives of the people from the very first, and were recognized as such by Moses. All down through the history of the Jews we find mention made of the elders as exercising authority among the people. They appear as governors (Deut. 31:28), as local magistrates (16:18), administering justice (19:12). They were men of extensive influence (1 Sam. 30:26-31). In New Testament times they also appear taking an active part in public affairs (Matt. 16:21; 21:23; 26:59).    The Jewish eldership was transferred from the old dispensation to the new. "The creation of the office of elder is nowhere recorded in the New Testament, as in the case of deacons and apostles, because the latter offices were created to meet new and special emergencies, while the former was transmitted from the earlies times. In other words, the office of elder was the only permanent essential office of the church under either dispensation."    The "elders" of the New Testament church were the "pastors" (Eph. 4:11), "bishops or overseers" (Acts 20:28), "leaders" and "rulers" (Heb. 13:7; 1 Thess. 5:12) of the flock. Everywhere in the New Testament bishop and presbyter are titles given to one and the same officer of the Christian church. He who is called presbyter or elder on account of his age or gravity is also called bishop or overseer with reference to the duty that lay upon him (Titus 1:5-7; Acts 20:17-28; Phil. 1:1).
+
+## Elealeh
+
+God has ascended, a place in the pastoral country east of Jordan, in the tribe of Reuben (Num. 32:3, 37). It is not again mentioned till the time of Isaiah (15:4; 16:9) and Jeremiah (48:34). It is now an extensive ruin called el-A`al, about one mile north-east of Heshbon.
+
+## Eleazar
+
+God has helped. (1.) The third son of Aaron (Ex. 6:23). His wife, a daughter of Putiel, bore him Phinehas (Ex. 6:25). After the death of Nadab and Abihu (Lev. 10:12; Num. 3:4) he was appointed to the charge of the sanctuary (Num. 3:32). On Mount Hor he was clothed with the sacred vestments, which Moses took from off his brother Aaron and put upon him as successor to his father in the high priest`s office, which he held for more than twenty years (Num. 20:25-29). He took part with Moses in numbering the people (26:3, 4), and assisted at the inauguration of Joshua. He assisted in the distribution of the land after the conquest (Josh. 14:1). The high-priesthood remained in his family till the time of Eli, into whose family it passed, till it was restored to the family of Eleazar in the person of Zadok (1 Sam. 2:35; comp. 1 Kings 2:27). "And Eleazar the son of Aaron died; and they buried him in a hill that pertained to Phinehas his son" (Josh. 24:33). The word here rendered "hill" is Gibeah, the name of several towns in Palestine which were generally on or near a hill. The words may be more suitably rendered, "They buried him in Gibeah of Phinehas", i.e., in the city of Phinehas, which has been identified, in accordance with Jewish and Samaritan traditions, with Kefr Ghuweirah=`Awertah, about 7 miles north of Shiloh, and a few miles south-east of Nablus. "His tomb is still shown there, overshadowed by venerable terebinths." Others, however, have identified it with the village of Gaba or Gebena of Eusebius, the modern Khurbet Jibia, 5 miles north of Guphna towards Nablus.    (2.) An inhabitant of Kirjath-jearim who was "sanctified" to take charge of the ark, although not allowed to touch it, while it remained in the house of his father Abinadab (1 Sam. 7:1, 2; comp. Num. 3:31; 4:15).    (3.) The son of Dodo the Ahohite, of the tribe of Benjamin, one of the three most eminent of David`s thirty-seven heroes (1 Chr. 11:12) who broke through the Philistine host and brought him water from the well of Bethlehem (2 Sam. 23:9, 16).    (4.) A son of Phinehas associated with the priests in taking charge of the sacred vessels brought back to Jerusalem after the Exile (Ezra 8:33).    (5.) A Levite of the family of Merari (1 Chr. 23:21, 22).
+
+## Election of Grace
+
+The Scripture speaks (1) of the election of individuals to office or to honour and privilege, e.g., Abraham, Jacob, Saul, David, Solomon, were all chosen by God for the positions they held; so also were the apostles. (2) There is also an election of nations to special privileges, e.g., the Hebrews (Deut. 7:6; Rom. 9:4). (3) But in addition there is an election of individuals to eternal life (2 Thess. 2:13; Eph. 1:4; 1 Pet. 1:2; John 13:18).    The ground of this election to salvation is the good pleasure of God (Eph. 1:5, 11; Matt. 11:25, 26; John 15:16, 19). God claims the right so to do (Rom. 9:16, 21).    It is not conditioned on faith or repentance, but is of soverign grace (Rom. 11:4-6; Eph. 1:3-6). All that pertain to salvation, the means (Eph. 2:8; 2 Thess. 2:13) as well as the end, are of God (Acts 5:31; 2 Tim. 2:25; 1 Cor. 1:30; Eph. 2:5, 10). Faith and repentance and all other graces are the exercises of a regenerated soul; and regeneration is God`s work, a "new creature."    Men are elected "to salvation," "to the adoption of sons," "to be holy and without blame before him in love" (2 Thess. 2:13; Gal. 4:4, 5; Eph. 1:4). The ultimate end of election is the praise of God`s grace (Eph. 1:6, 12). (See PREDESTINATION .)
+
+## Elect lady
+
+to whom the Second Epistle of John is addressed (2 John 1:1). Some think that the word rendered "lady" is a proper name, and thus that the expression should be "elect Kyria."
+
+## El-elohe-Isreal
+
+mighty one; God of Israel, the name which Jacob gave to the alter which he erected on the piece of land where he pitched his tent before Shechem, and which he afterwards purchased from the sons of Hamor (Gen. 33:20).
+
+## Elements
+
+In its primary sense, as denoting the first principles or constituents of things, it is used in 2 Pet. 3:10: "The elements shall be dissolved." In a secondary sense it denotes the first principles of any art or science. In this sense it is used in Gal. 4:3, 9; Col. 2:8, 20, where the expressions, "elements of the world," "week and beggarly elements," denote that state of religious knowledge existing among the Jews before the coming of Christ, the rudiments of religious teaching. They are "of the world," because they are made up of types which appeal to the senses. They are "weak," because insufficient; and "beggarly," or "poor," because they are dry and barren, not being accompanied by an outpouring of spiritual gifts and graces, as the gospel is.
+
+## Elephant
+
+not found in Scripture except indirectly in the original Greek word (elephantinos) translated "of ivory" in Rev. 18:12, and in the Hebrew word (shenhabim, meaning "elephant`s tooth") rendered "ivory" in 1 Kings 10:22 and 2 Chr. 9:21.
+
+## Elhanan
+
+whom God has graciously bestowed. (1.) A warrior of the time of David famed for his exploits. In the Authorized Version (2 Sam. 21:19) it is recorded that "Elhanan the son of Jaare-oregim, a Bethlehemite, slew the brother of Goliath." The Revised Version here rightly omits the words "the brother of." They were introduced in the Authorized Version to bring this passage into agreement with 1 Chr. 20:5, where it is said that he "slew Lahmi the brother of Goliath." Goliath the Gittite was killed by David (1 Sam. 17). The exploit of Elhanan took place late in David`s reign.    (2.) The son of Dodo, and one of David`s warriors (2 Sam. 23:24).
+
+## Eli
+
+ascent, the high priest when the ark was at Shiloh (1 Sam. 1:3, 9). He was the first of the line of Ithamar, Aaron`s fourth son (1 Chr. 24:3; comp. 2 Sam. 8:17), who held that office. The office remained in his family till the time of Abiathar (1 Kings 2:26, 27), whom Solomon deposed, and appointed Zadok, of the family of Eleazar, in his stead (35). He acted also as a civil judge in Israel after the death of Samson (1 Sam. 4:18), and judged Israel for forty years.    His sons Hophni and Phinehas grossly misconducted themselves, to the great disgust of the people (1 Sam. 2:27-36). They were licentious reprobates. He failed to reprove them so sternly as he ought to have done, and so brought upon his house the judgment of God (2:22-33; 3:18). The Israelites proclaimed war against the Philistines, whose army was encamped at Aphek. The battle, fought a short way beyond Mizpeh, ended in the total defeat of Israel. Four thousand of them fell in "battle array". They now sought safety in having the "ark of the covenant of the Lord" among them. They fetched it from Shiloh, and Hophni and Phinehas accompanied it. This was the first time since the settlement of Israel in Canaan that the ark had been removed from the sanctuary. The Philistines put themselves again in array against Israel, and in the battle which ensued "Israel was smitten, and there was a very great slaughter." The tidings of this great disaster were speedily conveyed to Shiloh, about 20 miles distant, by a messenger, a Benjamite from the army. There Eli sat outside the gate of the sanctuary by the wayside, anxiously waiting for tidings from the battle-field. The full extent of the national calamity was speedily made known to him: "Israel is fled before the Philistines, there has also been a great slaughter among the people, thy two sons Hophni and Phinehas are dead, and the ark of God is taken" (1 Sam. 4:12-18). When the old man, whose eyes were "stiffened" (i.e., fixed, as of a blind eye unaffected by the light) with age, heard this sad story of woe, he fell backward from off his seat and died, being ninety and eight years old. (See ITHAMAR .)    Eli, Heb. eli, "my God", (Matt. 27:46), an exclamation used by Christ on the cross. Mark (15:34), as usual, gives the original Aramaic form of the word, Eloi.
+
+## Eliab
+
+to whom God is father. (1.) A Reubenite, son of Pallu (Num. 16:1, 12; 26:8, 9; Deut. 11:6).    (2.) A son of Helon, and chief of the tribe of Zebulun at the time of the census in the wilderness (Num. 1:9; 2:7).    (3.) The son of Jesse, and brother of David (1 Sam. 16:6). It was he who spoke contemptuously to David when he proposed to fight Goliath (1 Sam. 17:28).    (4.) One of the Gadite heroes who joined David in his stronghold in the wilderness (1 Chr. 12:9).
+
+## Eliada
+
+whom God cares for. (1.) One of David`s sons born after his establishment in Jerusalem (2 Sam. 5:16).    (2.) A mighty man of war, a Benjamite (2 Chr. 17:17).    (3.) An Aramite of Zobah, captain of a marauding band that troubled Solomon (1 Kings 11:23).
+
+## Eliakim
+
+whom God will raise up. (1.) The son of Melea (Luke 3:30), and probably grandson of Nathan.    (2.) The son of Abiud, of the posterity of Zerubbabel (Matt. 1:13).    (3.) The son of Hilkiah, who was sent to receive the message of the invading Assyrians and report it to Isaiah (2 Kings 18:18; 19:2; Isa. 36:3; 37:2). In his office as governor of the palace of Hezekiah he succeeded Shebna (Isa. 22:15-25). He was a good man (Isa. 22:20; 2 Kings 18:37), and had a splendid and honourable career.    (4.) The original name of Jehoiakim, king of Judah (2 Kings 23:34). He was the son of Josiah.
+
+## Eliam
+
+God`s people. (1.) The father of Bathsheba, the wife of Uriah (2 Sam. 11:3). In 1 Chr. 3:5 his name is Ammiel.    (2.) This name also occurs as that of a Gilonite, the son of Ahithophel, and one of David`s thirty warriors (2 Sam. 23:34). perhaps these two were the same person.
+
+## Elias
+
+the Greek form of Elijah (Matt. 11:14; 16:14, etc.), which the Revised Version has uniformly adopted in the New Testament. (See ELIJAH .)
+
+## Eliashib
+
+whom God will restore. (1.) A priest, head of one of the courses of the priests of the time of David (1 Chr. 24:12).    (2.) A high priest in the time of Ezra and Nehemiah (Neh. 12:22, 23). He rebuilt the eastern city wall (3:1), his own mansion being in that quarter, on the ridge Ophel (3:20, 21). His indulgence of Tobiah the Ammonite provoked the indignation of Nehemiah (13:4, 7).
+
+## Eliathah
+
+to whom God will come, one of the foureen sons of the Levite Heman, and musician of the temple in the time of David (1 Chr. 25:4).
+
+## Elidad
+
+whom God has loved, son of Chislon, and chief of the tribe of Benjamin; one of those who were appointed to divide the Promised Land among the tribes (Num. 34:21).
+
+## Eliel
+
+to whom God is might. (1.) A chief of Manasseh, on the east of Jordan (1 Chr. 5:24).    (2.) A Gadite who joined David in the hold at Ziklag (1 Chr. 12:11).    (3.) One of the overseers of the offerings in the reign of Hezekiah (2 Chr. 31:13).
+
+## Eliezer
+
+God his help. (1.) "Of Damascus," the "steward" (R.V., "possessor") of Abraham`s house (Gen. 15:2, 3). It was probably he who headed the embassy sent by Abraham to the old home of his family in Padan-aram to seek a wife for his son Isaac. The account of this embassy is given at length in Gen. 24.    (2.) The son of Becher, and grandson of Benjamin (1 Chr. 7:8).    (3.) One of the two sons of Moses, born during his sojourn in Midian (Ex. 18:4; 1 Chr. 23:15, 17). He remained with his mother and brother Gershom with Jethro when Moses returned to Egypt. (Ex. 18:4). They were restored to Moses when Jethro heard of his departure out of Egypt.    (4.) One of the priests who blew the trumpet before the ark when it was brought to Jerusalem (1 Chr. 15:24).    (5.) Son of Zichri, and chief of the Reubenites under David (1 Chr. 27:16).    (6.) A prophet in the time of Jehoshaphat (2 Chr. 20:37). Others of this name are mentioned Luke 3:29; Ezra 8:16; 10:18, 23, 31.
+
+## Elihu
+
+whose God is he. (1.) "The son of Barachel, a Buzite" (Job 32:2), one of Job`s friends. When the debate between Job and his friends is brought to a close, Elihu for the first time makes his appearance, and delivers his opinion on the points at issue (Job 32-37).    (2.) The son of Tohu, and grandfather of Elkanah (1 Sam. 1:1). He is called also Eliel (1 Chr. 6:34) and Eliab (6:27).    (3.) One of the captains of thousands of Manasseh who joined David at Ziklag (1 Chr. 12:20).    (4.) One of the family of Obed-edom, who were appointed porters of the temple under David (1 Chr. 26:7).
+
+## Elijah
+
+whose God is Jehovah. (1.) "The Tishbite," the "Elias" of the New Testament, is suddenly introduced to our notice in 1 Kings 17:1 as delivering a message from the Lord to Ahab. There is mention made of a town called Thisbe, south of Kadesh, but it is impossible to say whether this was the place referred to in the name given to the prophet.    Having delivered his message to Ahab, he retired at the command of God to a hiding-place by the brook Cherith, beyond Jordan, where he was fed by ravens. When the brook dried up God sent him to the widow of Zarephath, a city of Zidon, from whose scanty store he was supported for the space of two years. During this period the widow`s son died, and was restored to life by Elijah (1 Kings 17: 2-24).    During all these two years a famine prevailed in the land. At the close of this period of retirement and of preparation for his work (comp. Gal. 1:17, 18) Elijah met Obadiah, one of Ahab`s officers, whom he had sent out to seek for pasturage for the cattle, and bade him go and tell his master that Elijah was there. The king came and met Elijah, and reproached him as the troubler of Israel. It was then proposed that sacrifices should be publicly offered, for the purpose of determining whether Baal or Jehovah were the true God. This was done on Carmel, with the result that the people fell on their faces, crying, "The Lord, he is the God." Thus was accomplished the great work of Elijah`s ministry. The prophets of Baal were then put to death by the order of Elijah. Not one of them escaped. Then immediately followed rain, according to the word of Elijah, and in answer to his prayer (James 5:18).    Jezebel, enraged at the fate that had befallen her priests of Baal, threatened to put Elijah to death (1 Kings 19:1-13). He therefore fled in alarm to Beersheba, and thence went alone a day`s journey into the wilderness, and sat down in despondency under a juniper tree. As he slept an angel touched him, and said unto him, "Arise and eat; because the journey is too great for thee." He arose and found a cake and a cruse of water. Having partaken of the provision thus miraculously supplied, he went forward on his solitary way for forty days and forty nights to Horeb, the mount of God, where he took up his abode in a cave. Here the Lord appeared unto him and said, "What dost thou here, Elijah?" In answer to his despondent words God manifests to him his glory, and then directs him to return to Damascus and anoint Hazael king over Syria, and Jehu king over Israel, and Elisha to be prophet in his room (1 Kings 19:13-21; comp. 2 Kings 8:7-15; 9:1-10).    Some six years after this he warned Ahab and Jezebel of the violent deaths they would die (1 Kings 21:19-24; 22:38). He also, four years afterwards, warned Ahaziah (q.v.), who had succeeded his father Ahab, of his approaching death (2 Kings 1:1-16). (See NABOTH .) During these intervals he probably withdrew to some quiet retirement, no one knew where. His interview with Ahaziah`s messengers on the way to Ekron, and the account of the destruction of his captains with their fifties, suggest the idea that he may have been in retirement at this time on Mount Carmel.    The time now drew near when he was to be taken up into heaven (2 Kings 2:1-12). He had a presentiment of what was awaiting him. He went down to Gilgal, where was a school of the prophets, and where his successor Elisha, whom he had anointed some years before, resided. Elisha was solemnized by the thought of his master`s leaving him, and refused to be parted from him. "They two went on," and came to Bethel and Jericho, and crossed the Jordan, the waters of which were "divided hither and thither" when smitten with Elijah`s mantle. Arrived at the borders of Gilead, which Elijah had left many years before, it "came to pass as they still went on and talked" they were suddenly separated by a chariot and horses of fire; and "Elijah went up by a whirlwind into heaven, "Elisha receiving his mantle, which fell from him as he ascended.    No one of the old prophets is so frequently referred to in the New Testament. The priests and Levites said to the Baptist (John 1:25), "Why baptizest thou, if thou be not that Christ, nor Elias?" Paul (Rom. 11:2) refers to an incident in his history to illustrate his argument that God had not cast away his people. James (5:17) finds in him an illustration of the power of prayer. (See also Luke 4:25; 9:54.) He was a type of John the Baptist in the sternness and power of his reproofs (Luke 9:8). He was the Elijah that "must first come" (Matt. 11:11, 14), the forerunner of our Lord announced by Malachi. Even outwardly the Baptist corresponded so closely to the earlier prophet that he might be styled a second Elijah. In him we see "the same connection with a wild and wilderness country; the same long retirement in the desert; the same sudden, startling entrance on his work (1 Kings 17:1; Luke 3:2); even the same dress, a hairy garment, and a leathern girdle about the loins (2 Kings 1:8; Matt. 3:4)."    How deep the impression was which Elijah made "on the mind of the nation may be judged from the fixed belief, which rested on the words of Malachi (4:5, 6), which many centuries after prevailed that he would again appear for the relief and restoration of the country. Each remarkable person as he arrives on the scene, be his habits and characteristics what they may, the stern John equally with his gentle Successor, is proclaimed to be Elijah (Matt. 11:13, 14; 16:14; 17:10; Mark 9:11; 15:35; Luke 9:7, 8; John 1:21). His appearance in glory on the mount of transfiguration does not seem to have startled the disciples. They were `sore afraid,` but not apparently surprised."    (2.) The Elijah spoken of in 2 Chr. 21:12-15 is by some supposed to be a different person from the foregoing. He lived in the time of Jehoram, to whom he sent a letter of warning (comp. 1 Chr. 28:19; Jer. 36), and acted as a prophet in Judah; while the Tishbite was a prophet of the northern kingdom. But there does not seem any necessity for concluding that the writer of this letter was some other Elijah than the Tishbite. It may be supposed either that Elijah anticipated the character of Jehoram, and so wrote the warning message, which was preserved in the schools of the prophets till Jehoram ascended the throne after the Tishbite`s translation, or that the translation did not actually take place till after the accession of Jehoram to the throne (2 Chr. 21:12; 2 Kings 8:16). The events of 2 Kings 2 may not be recorded in chronological order, and thus there may be room for the opinion that Elijah was still alive in the beginning of Jehoram`s reign.
+
+## Elika
+
+God is his rejector, one of David`s thirty-seven distinguished heros (2 Sam. 23:25).
+
+## Elim
+
+trees, (Ex. 15:27; Num. 33:9), the name of the second station where the Israelites encamped after crossing the Red Sea. It had "twelve wells of water and threescore and ten palm trees." It has been identified with the Wady Ghurundel, the most noted of the four wadies which descend from the range of et-Tih towards the sea. Here they probably remained some considerable time. The form of expression in Ex. 16:1 seems to imply that the people proceeded in detachments or companies from Elim, and only for the first time were assembled as a complete host when they reached the wilderness of Sin (q.v.).
+
+## Elimelech
+
+God his king, a man of the tribe of Judah, of the family of the Hezronites, and kinsman of Boaz, who dwelt in Bethlehem in the days of the judges. In consequence of a great dearth he, with his wife Naomi and his two sons, went to dwell in the land of Moab. There he and his sons died (Ruth 1:2,3; 2:1,3; 4:3,9). Naomi afterwards returned to Palestine with her daughter Ruth.
+
+## Elioenai
+
+toward Jehovah are my eyes, the name of several men mentioned in the Old Testament (1 Chr. 7:8; 4:36; Ezra 10:22, 27). Among these was the eldest son of Neariah, son of Shemaiah, of the descendants of Zerubbabel. His family are the latest mentioned in the Old Testament (1 Chr. 3:23, 24).
+
+## Eliphalet
+
+God his deliverance, one of David`s sons (2 Sam. 5:16); called also Eliphelet (1 Chr. 3:8).
+
+## Eliphaz
+
+God his strength. (1.) One of Job`s "three friends" who visited him in his affliction (4:1). He was a "Temanite", i.e., a native of Teman, in Idumea. He first enters into debate with Job. His language is uniformly more delicate and gentle than that of the other two, although he imputes to Job special sins as the cause of his present sufferings. He states with remarkable force of language the infinite purity and majesty of God (4:12-21; 15:12-16).    (2.) The son of Esau by his wife Adah, and father of several Edomitish tribes (Gen. 36:4, 10, 11, 16).
+
+## Elipheleh
+
+God will distinguish him, one of the porters appointed to play "on the Sheminith" on the occasion of the bringing up of the ark to the city of David (1 Chr. 15:18, 21).
+
+## Eliphelet
+
+God his deliverance. (1.) One of David`s distinguished warriors (2 Sam. 23:34); called also Eliphal in 1 Chr. 11:35.    (2.) One of the sons of David born at Jerusalem (1 Chr. 3:6; 14:5); called Elpalet in 1 Chr. 14:5. Also another of David`s sons (1 Chr. 3:8); called Eliphalet in 2 Sam. 5:16; 1 Chr. 14:7.    (3.) A descendant of king Saul through Jonathan (1 Chr. 8:39).
+
+## Elisabeth
+
+God her oath, the mother of John the Baptist (Luke 1:5). She was a descendant of Aaron. She and her husband Zacharias (q.v.) "were both righteous before God" (Luke 1:5, 13). Mary`s visit to Elisabeth is described in 1:39-63.
+
+## Elisha
+
+God his salvation, the son of Shaphat of Abel-meholah, who became the attendant and disciple of Elijah (1 Kings 19:16-19). His name first occurs in the command given to Elijah to anoint him as his successor (1 Kings 19:16). This was the only one of the three commands then given to Elijah which he accomplished. On his way from Sinai to Damascus he found Elisha at his native place engaged in the labours of the field, ploughing with twelve yoke of oxen. He went over to him, threw over his shoulders his rough mantle, and at once adopted him as a son, and invested him with the prophetical office (comp. Luke 9:61, 62). Elisha accepted the call thus given (about four years before the death of Ahab), and for some seven or eight years became the close attendant on Elijah till he was parted from him and taken up into heaven. During all these years we hear nothing of Elisha except in connection with the closing scenes of Elijah`s life. After Elijah, Elisha was accepted as the leader of the sons of the prophets, and became noted in Israel. He possessed, according to his own request, "a double portion" of Elijah`s spirit (2 Kings 2:9); and for the long period of about sixty years (B.C. 892-832) held the office of "prophet in Israel" (2 Kings 5:8).    After Elijah`s departure, Elisha returned to Jericho, and there healed the spring of water by casting salt into it (2 Kings 2:21). We next find him at Bethel (2:23), where, with the sternness of his master, he cursed the youths who came out and scoffed at him as a prophet of God: "Go up, thou bald head." The judgment at once took effect, and God terribly visited the dishonour done to his prophet as dishonour done to himself. We next read of his predicting a fall of rain when the army of Jehoram was faint from thirst (2 Kings 3:9-20); of the multiplying of the poor widow`s cruse of oil (4:1-7); the miracle of restoring to life the son of the woman of Shunem (4:18-37); the multiplication of the twenty loaves of new barley into a sufficient supply for an hundred men (4:42-44); of the cure of Naaman the Syrian of his leprosy (5:1-27); of the punishment of Gehazi for his falsehood and his covetousness; of the recovery of the axe lost in the waters of the Jordan (6:1-7); of the miracle at Dothan, half-way on the road between Samaria and Jezreel; of the siege of Samaria by the king of Syria, and of the terrible sufferings of the people in connection with it, and Elisha`s prophecy as to the relief that would come (2 Kings 6:24-7:2).    We then find Elisha at Damascus, to carry out the command given to his master to anoint Hazael king over Syria (2 Kings 8:7-15); thereafter he directs one of the sons of the prophets to anoint Jehu, the son of Jehoshaphat, king of Israel, instead of Ahab. Thus the three commands given to Elijah (9:1-10) were at length carried out.    We do not again read of him till we find him on his death-bed in his own house (2 Kings 13:14-19). Joash, the grandson of Jehu, comes to mourn over his approaching departure, and utters the same words as those of Elisha when Elijah was taken away: "My father, my father! the chariot of Israel, and the horsemen thereof."    Afterwards when a dead body is laid in Elisha`s grave a year after his burial, no sooner does it touch the hallowed remains than the man "revived, and stood up on his feet" (2 Kings 13:20-21).
+
+## Elishah
+
+the oldest of the four sons of Javan (Gen. 10:4), whose descendants peopled Greece. It has been supposed that Elishah`s descendants peopled the Peloponnesus, which was known by the name of Elis. This may be meant by "the isles of Elishah" (Ezek. 27:7).
+
+## Elishama
+
+whom God hears. (1.) A prince of Benjamin, grandfather of Joshua (Num. 1:10; 1 Chr. 7:26). (2.) One of David`s sons (2 Sam. 5:16). (3.) Another of David`s sons (1 Chr. 3:6). (4.) A priest sent by Jehoshaphat to teach the people the law (2 Chr. 17:8).
+
+## Elishaphat
+
+whom God has judged, one of the "captains of hundreds" associated with Jehoiada in the league to overthrow the usurpation of Athaliah (2 Chr. 23:1).
+
+## Elisheba
+
+God is her oath, the daughter of Amminadab and the wife of Aaron (Ex. 6:23).
+
+## Elishua
+
+God his salvation, a son of David, 2 Sam. 5:15 = Elishama, 1 Chr. 3:6.
+
+## Elkanah
+
+God-created. (1.) The second son of Korah (Ex. 6:24), or, according to 1 Chr. 6:22, 23, more correctly his grandson.    (2.) Another Levite of the line of Heman the singer, although he does not seem to have performed any of the usual Levitical offices. He was father of Samuel the prophet (1 Chr. 6:27, 34). He was "an Ephrathite" (1 Sam. 1:1, 4, 8), but lived at Ramah, a man of wealth and high position. He had two wives, Hannah, who was the mother of Samuel, and Peninnah.
+
+## Elkosh
+
+God my bow, the birth-place of Nahum the prophet (Nah. 1:1). It was probably situated in Galilee, but nothing definite is known of it.
+
+## Ellasar
+
+the oak or heap of Assyria, a territory in Asia of which Arioch was king (Gen. 14:1, 9). It is supposed that the old Chaldean town of Larsa was the metropolis of this kingdom, situated nearly half-way between Ur (now Mugheir) and Erech, on the left bank of the Euphrates. This town is represented by the mounds of Senkereh, a little to the east of Erech.
+
+## Elm
+
+Hos. 4:13; rendered "terebinth" in the Revised Version. It is the Pistacia terebinthus of Linn., a tree common in Palestine, long-lived, and therefore often employed for landmarks and in designating places (Gen. 35:4; Judg. 6:11, 19. Rendered "oak" in both A.V. and R.V.). (See TEIL TREE .)
+
+## Elnathan
+
+whom God has given. (1.) An inhabitant of Jerusalem, the father of Nehushta, who was the mother of king Jehoiachin (2 Kings 24:8). Probably the same who tried to prevent Jehoiakim from burning the roll of Jeremiah`s prophecies (Jer. 26:22; 36:12). (2.) Ezra 8:16.
+
+## Elon
+
+oak. (1.) A city of Dan (Josh. 19:43). (2.) A Hittite, father of Bashemath, Esau`s wife (Gen. 26:34). (3.) One of the sons of Zebulun (Gen. 46:14). (4.) The eleventh of the Hebrew judges. He held office for ten years (Judg. 12:11, 12). He is called the Zebulonite.
+
+## Elparan
+
+oak of Paran, a place on the edge of the wilderness bordering the territory of the Horites (Gen. 14:6). This was the farthest point to which Chedorlaomer`s expedition extended. It is identified with the modern desert of et-Tih. (See PARAN .)
+
+## Eltekeh
+
+God is its fear, a city in the tribe of Dan. It was a city of refuge and a Levitical city (Josh. 21:23). It has been identified with Beit-Likia, north-east of latrum.
+
+## Elul
+
+(Neh. 6:15), the name of the sixth month of the ecclesiastical year, and the twelfth of the civil year. It began with the new moon of our August and September, and consisted of twenty-nine days.
+
+## Elymas
+
+magician or sorcerer, the Arabic name of the Jew Bar-jesus, who withstood Paul and Barnabas in Cyprus. He was miraculously struck with blindness (Acts 13:11).
+
+## Embalming
+
+the process of preserving a body by means of aromatics (Gen. 50:2, 3, 26). This art was practised by the Egyptians from the earliest times, and there brought to great perfection. This custom probably originated in the belief in the future reunion of the soul with the body. The process became more and more complicated, and to such perfection was it carried that bodies embalmed thousands of years ago are preserved to the present day in the numberless mummies that have been discovered in Egypt.    The embalming of Jacob and Joseph was according to the Egyptian custom, which was partially followed by the Jews (2 Chr. 16:14), as in the case of king Asa, and of our Lord (John 19:39, 40; Luke 23:56; 24:1). (See PHARAOH .)
+
+## Embroider
+
+The art of embroidery was known to the Jews (Ex. 26:36; 35:35; 38:23; Judg. 5:30; Ps. 45:14). The skill of the women in this art was seen in the preparation of the sacerdotal robes of the high priest (Ex. 28). It seems that the art became hereditary in certain families (1 Chr. 4:21). The Assyrians were also noted for their embroidered robes (Ezek. 27:24).
+
+## Emerald
+
+Heb. nophek (Ex. 28:18; 39:11); i.e., the "glowing stone", probably the carbuncle, a precious stone in the breastplate of the high priest. It is mentioned (Rev. 21:19) as one of the foundations of the New Jerusalem. The name given to this stone in the New Testament Greek is smaragdos, which means "live coal."
+
+## Emerod
+
+See HAEMORRHOIDS .
+
+## Emims
+
+terrors, a warlike tribe of giants who were defeated by Chedorlaomer and his allies in the plain of Kiriathaim. In the time of Abraham they occupied the country east of Jordan, afterwards the land of the Moabites (Gen. 14:5; Deut. 2:10). They were, like the Anakim, reckoned among the Rephaim, and were conquered by the Moabites, who gave them the name of Emims, i.e., "terrible men" (Deut. 2:11). The Ammonites called them Zamzummims (2:20).
+
+## Emmanuel
+
+God with us, Matt. 1:23). (See IMMANUEL .)
+
+## Emmaus
+
+hot baths, a village "three-score furlongs" from jerusalem, where our Lord had an interview with two of his disciples on the day of his resurrection (Luke 24:13). This has been identified with the modern el-Kubeibeh, lying over 7 miles north-west of Jerusalem. This name, el-Kubeibeh, meaning "little dome," is derived from the remains of the Crusaders` church yet to be found there. Others have identified it with the modern Khurbet Khamasa i.e., "the ruins of Khamasa", about 8 miles south-west of Jerusalem, where there are ruins also of a Crusaders` church. Its site, however has been much disputed.
+
+## Emmor
+
+an ass, Acts 7:16. (See HAMOR .)
+
+## Encamp
+
+An encampment was the resting-place for a longer or shorter period of an army or company of travellers (Ex. 13:20; 14:19; Josh. 10:5; 11:5).    The manner in which the Israelites encamped during their march through the wilderness is described in Num. 2 and 3. The order of the encampment (see CAMP ) was preserved in the march (Num. 2:17), the signal for which was the blast of two silver trumpets. Detailed regulations affecting the camp for sanitary purposes are given (Lev. 4:11, 12; 6:11; 8:17; 10:4, 5; 13:46; 14:3; Num. 12:14, 15; 31:19; Deut. 23:10, 12).    Criminals were executed without the camp (Lev. 4:12; comp. John 19:17, 20), and there also the young bullock for a sin-offering was burnt (Lev. 24:14; comp. Heb. 13:12).    In the subsequent history of Israel frequent mention is made of their encampments in the time of war (Judg. 7:18; 1 Sam. 13:2, 3, 16, 23; 17:3; 29:1; 30:9, 24). The temple was sometimes called "the camp of the Lord" (2 Chr. 31:2, R.V.; comp. Ps. 78:28). The multitudes who flocked to David are styled "a great host (i.e., "camp;" Heb. mahaneh), like the host of God" (1 Chr. 12:22).
+
+## Enchantments
+
+(1.) The rendering of Hebrew _latim_ or _lehatim_, which means "something covered," "muffled up;" secret arts, tricks (Ex. 7:11, 22; 8:7, 18), by which the Egyptian magicians imposed on the credulity of Pharaoh.    (2.) The rendering of the Hebrew _keshaphim_, "muttered spells" or "incantations," rendered "sorceries" in Isa. 47:9, 12, i.e., the using of certain formulae under the belief that men could thus be bound.    (3.) Hebrew _lehashim_, "charming," as of serpents (Jer. 8:17; comp. Ps. 58:5).    (4.) Hebrew _nehashim_, the enchantments or omens used by Balaam (Num. 24:1); his endeavouring to gain omens favourable to his design.    (5.) Hebrew _heber_ (Isa. 47:9, 12), "magical spells." All kinds of enchantments were condemned by the Mosaic law (Lev. 19:26; Deut. 18:10-12). (See DIVINATION .)
+
+## End
+
+in Heb. 13:7, is the rendering of the unusual Greek word _ekbasin_, meaning "outcome", i.e., death. It occurs only elsewhere in 1 Cor. 10:13, where it is rendered "escape."
+
+## Endor
+
+fountain of Dor; i.e., "of the age", a place in the territory of Issachar (Josh. 17:11) near the scene of the great victory which was gained by Deborah and Barak over Sisera and Jabin (comp. Ps. 83:9, 10). To Endor, Saul resorted to consult one reputed to be a witch on the eve of his last engagement with the Philistines (1 Sam. 28:7). It is identified with the modern village of Endur, "a dirty hamlet of some twenty houses, or rather huts, most of them falling to ruin," on the northern slope of Little Hermon, about 7 miles from Jezreel.
+
+## En-eglaim
+
+fountain of two calves, a place mentioned only in Ezek. 47:10. Somewhere near the Dead Sea.
+
+## En-gannim
+
+fountain of gardens. (1.) A town in the plains of Judah (Josh. 15:34), north-west of Jerusalem, between Zanoah and Tappuah. It is the modern Umm Jina.    (2.) A city on the border of Machar (Josh. 19:21), allotted to the Gershonite Levites (21:29). It is identified with the modern Jenin, a large and prosperous town of about 4,000 inhabitants, situated 15 miles south of Mount Tabor, through which the road from Jezreel to Samaria and Jerusalem passes. When Ahaziah, king of Judah, attempted to escape from Jehu, he "fled by the way of the garden house" i.e., by way of En-gannim. Here he was overtaken by Jehu and wounded in his chariot, and turned aside and fled to Megiddo, a distance of about 20 miles, to die there.
+
+## Engedi
+
+fountain of the kid, place in the wilderness of Judah (Josh. 15:62), on the western shore of the Dead Sea (Ezek. 47:10), and nearly equidistant from both extremities. To the wilderness near this town David fled for fear of Saul (Josh. 15:62; 1 Sam. 23:29). It was at first called Hazezon-tamar (Gen. 14:7), a city of the Amorites.    The vineyards of Engedi were celebrated in Solomon`s time (Cant. 1:4). It is the modern `Ain Jidy. The "fountain" from which it derives its name rises on the mountain side about 600 feet above the sea, and in its rapid descent spreads luxuriance all around it. Along its banks the osher grows abundantly. That shrub is thus described by Porter: "The stem is stout, measuring sometimes nearly a foot in diameter, and the plant grows to the height of 15 feet or more. It has a grayish bark and long oval leaves, which when broken off discharge a milky fluid. The fruit resembles an apple, and hangs in clusters of two or three. When ripe it is of a rich yellow colour, but on being pressed it explodes like a puff-ball. It is chiefly filled with air...This is the so-called `apple of Sodom.`" Through Samaria, etc. (See APPLE .)
+
+## Engines
+
+(1.) Heb. hishalon i.e., "invention" (as in Eccl. 7:29) contrivances indicating ingenuity. In 2 Chr. 26:15 it refers to inventions for the purpose of propelling missiles from the walls of a town, such as stones (the Roman balista) and arrows (the catapulta).    (2.) Heb. mechi kobollo, i.e., the beating of that which is in front a battering-ram (Ezek. 26:9), the use of which was common among the Egyptians and the Assyrians. Such an engine is mentioned in the reign of David (2 Sam. 20:15).
+
+## Engraver
+
+Heb. harash (Ex. 35:35; 38:23) means properly an artificer in wood, stone, or metal. The chief business of the engraver was cutting names or devices on rings and seals and signets (Ex. 28:11, 21, 36; Gen. 38:18).
+
+## En-hakkore
+
+fountain of the crier, the name of the spring in Lehi which burst forth in answer to Samson`s prayer when he was exhausted with the slaughter of the Philistines (Judg. 15:19). It has been identified with the spring `Ayun Kara, near Zoreah.
+
+## Enmity
+
+deep-rooted hatred. "I will put enmity between thee and the woman, between thy seed and her seed" (Gen. 3:15). The friendship of the world is "enmity with God" (James 4:4; 1 John 2:15, 16). The "carnal mind" is "enmity against God" (Rom. 8:7). By the abrogation of the Mosaic institutes the "enmity" between Jew and Gentile is removed. They are reconciled, are "made one" (Eph. 2:15, 16).
+
+## Enoch
+
+initiated. (1.) The eldest son of Cain (Gen. 4:17), who built a city east of Eden in the land of Nod, and called it "after the name of his son Enoch." This is the first "city" mentioned in Scripture.    (2.) The son of Jared, and father of Methuselah (Gen. 5:21; Luke 3:37). His father was one hundred and sixty-two years old when he was born. After the birth of Methuselah, Enoch "walked with God three hundred years" (Gen. 5:22-24), when he was translated without tasting death. His whole life on earth was three hundred and sixty-five years. He was the "seventh from Adam" (Jude 1:14), as distinguished from the son of Cain, the third from Adam. He is spoken of in the catalogue of Old Testament worthies in the Epistle to the Hebrews (11:5). When he was translated, only Adam, so far as recorded, had as yet died a natural death, and Noah was not yet born. Mention is made of Enoch`s prophesying only in Jude 1:14.
+
+## Enos
+
+man the son of Seth, and grandson of Adam (Gen. 5:6-11; Luke 3:38). He lived nine hundred and five years. In his time "men began to call upon the name of the Lord" (Gen. 4:26), meaning either (1) then began men to call themselves by the name of the Lord (marg.) i.e., to distinguish themselves thereby from idolaters; or (2) then men in some public and earnest way began to call upon the Lord, indicating a time of spiritual revival.
+
+## En-rogel
+
+fountain of the treaders; i.e., "foot-fountain;" also called the "fullers` fountain," because fullers here trod the clothes in water. It has been identified with the "fountain of the virgin" (q.v.), the modern `Ain Ummel-Daraj. Others identify it, with perhaps some probability, with the Bir Eyub, to the south of the Pool of Siloam, and below the junction of the valleys of Kidron and Hinnom. (See FOUNTAIN .)    It was at this fountain that Jonathan and Ahimaaz lay hid after the flight of David (2 Sam. 17:17); and here also Adonijah held the feast when he aspired to the throne of his father (1 Kings 1:9).    The Bir Eyub, or "Joab`s well," "is a singular work of ancient enterprise. The shaft sunk through the solid rock in the bed of the Kidron is 125 feet deep...The water is pure and entirely sweet, quite different from that of Siloam; which proves that there is no connection between them." Thomson`s Land and the Book.
+
+## En-shemesh
+
+fountain of the sun a spring which formed one of the landmarks on the boundary between Judah and Benjamin (Josh. 15:7; 18:17). It was between the "ascent of Adummim" and the spring of En-rogel, and hence was on the east of Jerusalem and of the Mount of Olives. It is the modern `Ain-Haud i.e., the "well of the apostles" about a mile east of Bethany, the only spring on the road to Jericho. The sun shines on it the whole day long.
+
+## Ensign
+
+(1.) Heb. `oth, a military standard, especially of a single tribe (Num. 2:2). Each separate tribe had its own "sign" or "ensign."    (2.) Heb. nes, a lofty signal, as a column or high pole (Num. 21:8, 9); a standard or signal or flag placed on high mountains to point out to the people a place of rendezvous on the irruption of an enemy (Isa. 5:26; 11:12; 18:3; 62:10; Jer. 4:6, 21; Ps. 60:4). This was an occasional signal, and not a military standard. Elevation and conspicuity are implied in the word.    (3.) The Hebrew word _degel_ denotes the standard given to each of the four divisions of the host of the Israelites at the Exodus (Num. 1:52; 2:2; 10:14). In Cant. 2:4 it is rendered "banner." We have no definite information as to the nature of these military standards. (See BANNER .)
+
+## Entertain
+
+Entertainments, "feasts," were sometimes connected with a public festival (Deut. 16:11, 14), and accompanied by offerings (1 Sam. 9:13), in token of alliances (Gen. 26:30); sometimes in connection with domestic or social events, as at the weaning of children (Gen. 21:8), at weddings (Gen. 29:22; John 2:1), on birth-days (Matt. 14:6), at the time of sheep-shearing (2 Sam. 13:23), and of vintage (Judg. 9:27), and at funerals (2 Sam. 3:35; Jer. 16:7).    The guests were invited by servants (Prov. 9:3; Matt. 22:3), who assigned them their respective places (1 Sam. 9:22; Luke 14:8; Mark 12:39). Like portions were sent by the master to each guest (1 Sam. 1:4; 2 Sam. 6:19), except when special honour was intended, when the portion was increased (Gen. 43:34).    The Israelites were forbidden to attend heathenish sacrificial entertainments (Ex. 34:15), because these were in honour of false gods, and because at such feast they would be liable to partake of unclean flesh (1 Cor. 10:28).    In the entertainments common in apostolic times among the Gentiles were frequent "revellings," against which Christians were warned (Rom. 13:13; Gal. 5:21; 1 Pet. 4:3). (See BANQUET .)
+
+## Epaenetus
+
+commendable, a Christian at Rome to whom Paul sent his salutation (Rom. 16:5). He is spoken of as "the first fruits of Achaia" (R.V., "of Asia", i.e., of proconsular Asia, which is probably the correct reading). As being the first convert in that region, he was peculiarly dear to the apostle. He calls him his "well beloved."
+
+## Epaphras
+
+lovely, spoken of by Paul (Col. 1:7; 4:12) as "his dear fellow-servant," and "a faithful minister of Christ." He was thus evidently with him at Rome when he wrote to the Colossians. He was a distinguished disciple, and probably the founder of the Colossian church. He is also mentioned in the Epistle to Philemon (1:23), where he is called by Paul his "fellow-prisoner."
+
+## Epaphroditus
+
+fair, graceful; belonging to Aphrodite or Venus the messenger who came from Phillipi to the apostle when he was a prisoner at Rome (Phil. 2:25-30; 4:10-18). Paul mentions him in words of esteem and affection. On his return to Philippi he was the bearer of Paul`s letter to the church there.
+
+## Ephah
+
+gloom. (1.) One of the five sons of Midian, and grandson of Abraham (Gen. 25:4). The city of Ephah, to which he gave his name, is mentioned Isa. 60:6, 7. This city, with its surrounding territory, formed part of Midian, on the east shore of the Dead Sea. It abounded in dromedaries and camels (Judg. 6:5).    (2.) 1 Chr. 2:46, a concubine of Caleb.    (3.) 1 Chr. 2:47, a descendant of Judah.    Ephah, a word of Egyptian origin, meaning measure; a grain measure containing "three seahs or ten omers," and equivalent to the bath for liquids (Ex. 16:36; 1 Sam. 17:17; Zech. 5:6). The double ephah in Prov. 20:10 (marg., "an ephah and an ephah"), Deut. 25:14, means two ephahs, the one false and the other just.
+
+## Epher
+
+a calf. (1.) One of the sons of Midian, who was Abraham`s son by Keturah (Gen. 25:4).    (2.) The head of one of the families of trans-Jordanic Manasseh who were carried captive by Tiglath-pileser (1 Chr. 5:24).
+
+## Ephes-dammim
+
+boundary of blood, a place in the tribe of Judah where the Philistines encamped when David fought with Goliath (1 Sam. 17:1). It was probably so called as having been the scene of frequent sanguinary conflicts between Israel and the Philistines. It is called Pas-dammim (1 Chr. 11:13). It has been identified with the modern Beit Fased, i.e., "house of bleeding", near Shochoh (q.v.).
+
+## Ephesians, Epistle to
+
+was written by Paul at Rome about the same time as that to the Colossians, which in many points it resembles.    Contents of. The Epistle to the Colossians is mainly polemical, designed to refute certain theosophic errors that had crept into the church there. That to the Ephesians does not seem to have originated in any special circumstances, but is simply a letter springing from Paul`s love to the church there, and indicative of his earnest desire that they should be fully instructed in the profound doctrines of the gospel. It contains (1) the salutation (1:1, 2); (2) a general description of the blessings the gospel reveals, as to their source, means by which they are attained, purpose for which they are bestowed, and their final result, with a fervent prayer for the further spiritual enrichment of the Ephesians (1:3-2:10); (3) "a record of that marked change in spiritual position which the Gentile believers now possessed, ending with an account of the writer`s selection to and qualification for the apostolate of heathendom, a fact so considered as to keep them from being dispirited, and to lead him to pray for enlarged spiritual benefactions on his absent sympathizers" (2:12-3:21); (4) a chapter on unity as undisturbed by diversity of gifts (4:1-16); (5) special injunctions bearing on ordinary life (4:17-6:10); (6) the imagery of a spiritual warfare, mission of Tychicus, and valedictory blessing (6:11-24).    Planting of the church at Ephesus. Paul`s first and hurried visit for the space of three months to Ephesus is recorded in Acts 18:19-21. The work he began on this occasion was carried forward by Apollos (24-26) and Aquila and Priscilla. On his second visit, early in the following year, he remained at Ephesus "three years," for he found it was the key to the western provinces of Asia Minor. Here "a great door and effectual" was opened to him (1 Cor. 16:9), and the church was established and strengthened by his assiduous labours there (Acts 20:20, 31). From Ephesus as a centre the gospel spread abroad "almost throughout all Asia" (19:26). The word "mightily grew and prevailed" despite all the opposition and persecution he encountered.    On his last journey to Jerusalem the apostle landed at Miletus, and summoning together the elders of the church from Ephesus, delivered to them his remarkable farewell charge (Acts 20:18-35), expecting to see them no more.    The following parallels between this epistle and the Milesian charge may be traced:    (1.) Acts 20:19 = Eph. 4:2. The phrase "lowliness of mind" occurs nowhere else.    (2.) Acts 20:27 = Eph. 1:11. The word "counsel," as denoting the divine plan, occurs only here and Heb. 6:17.    (3.) Acts 20:32 = Eph. 3:20. The divine ability.    (4.) Acts 20:32 = Eph. 2:20. The building upon the foundation.    (5.) Acts 20:32 = Eph. 1:14, 18. "The inheritance of the saints."    Place and date of the writing of the letter. It was evidently written from Rome during Paul`s first imprisonment (3:1; 4:1; 6:20), and probably soon after his arrival there, about the year 62, four years after he had parted with the Ephesian elders at Miletus. The subscription of this epistle is correct.    There seems to have been no special occasion for the writing of this letter, as already noted. Paul`s object was plainly not polemical. No errors had sprung up in the church which he sought to point out and refute. The object of the apostle is "to set forth the ground, the cause, and the aim and end of the church of the faithful in Christ. He speaks to the Ephesians as a type or sample of the church universal." The church`s foundations, its course, and its end, are his theme. "Everywhere the foundation of the church is the will of the Father; the course of the church is by the satisfaction of the Son; the end of the church is the life in the Holy Spirit." In the Epistle to the Romans, Paul writes from the point of view of justification by the imputed righteousness of Christ; here he writes from the point of view specially of union to the Redeemer, and hence of the oneness of the true church of Christ. "This is perhaps the profoundest book in existence." It is a book "which sounds the lowest depths of Christian doctrine, and scales the loftiest heights of Christian experience;" and the fact that the apostle evidently expected the Ephesians to understand it is an evidence of the "proficiency which Paul`s converts had attained under his preaching at Ephesus."    Relation between this epistle and that to the Colossians (q.v.). "The letters of the apostle are the fervent outburst of pastoral zeal and attachment, written without reserve and in unaffected simplicity; sentiments come warm from the heart, without the shaping out, pruning, and punctilious arrangement of a formal discourse. There is such a fresh and familiar transcription of feeling, so frequent an introduction of coloquial idiom, and so much of conversational frankness and vivacity, that the reader associates the image of the writer with every paragraph, and the ear seems to catch and recognize the very tones of living address." "Is it then any matter of amazement that one letter should resemble another, or that two written about the same time should have so much in common and so much that is peculiar? The close relation as to style and subject between the epistles to Colosse and Ephesus must strike every reader. Their precise relation to each other has given rise to much discussion. The great probability is that the epistle to Colosse was first written; the parallel passages in Ephesians, which amount to about forty-two in number, having the appearance of being expansions from the epistle to Colosse. Compare:    Eph 1:7; Col 1:14   Eph 1:10; Col 1:20   Eph 3:2; Col 1:25   Eph 5:19; Col 3:16   Eph 6:22; Col 4:8   Eph 1:19-2:5; Col 2:12,13   Eph 4:2-4; Col 3:12-15   Eph 4:16; Col 2:19   Eph 4:32; Col 3:13   Eph 4:22-24; Col 3:9,10   Eph 5:6-8; Col 3:6-8   Eph 5:15,16; Col 4:5   Eph 6:19,20; Col 4:3,4   Eph 5:22-6:9; Col 3:18-4:1    "The style of this epistle is exceedingly animated, and corresponds with the state of the apostle`s mind at the time of writing.  Overjoyed with the account which their messenger had brought him of their faith and holiness (Eph. 1:15), and transported with the consideration of the unsearchable wisdom of God displayed in the work of man`s redemption, and of his astonishing love towards the Gentiles in making them partakers through faith of all the benefits of Christ`s death, he soars high in his sentiments on those grand subjects, and gives his thoughts utterance in sublime and copious expression."
+
+## Ephesus
+
+the capital of proconsular Asia, which was the western part of Asia Minor. It was colonized principally from Athens. In the time of the Romans it bore the title of "the first and greatest metropolis of Asia." It was distinguished for the Temple of Diana (q.v.), who there had her chief shrine; and for its theatre, which was the largest in the world, capable of containing 50,000 spectators. It was, like all ancient theatres, open to the sky. Here were exhibited the fights of wild beasts and of men with beasts. (Comp. 1 Cor. 4:9; 9:24, 25; 15:32.)    Many Jews took up their residence in this city, and here the seeds of the gospel were sown immediately after Pentecost (Acts 2:9; 6:9). At the close of his second missionary journey (about A.D. 51), when Paul was returning from Greece to Syria (18:18-21), he first visited this city. He remained, however, for only a short time, as he was hastening to keep the feast, probably of Pentecost, at Jerusalem; but he left Aquila and Priscilla behind him to carry on the work of spreading the gospel.    During his third missionary journey Paul reached Ephesus from the "upper coasts" (Acts 19:1), i.e., from the inland parts of Asia Minor, and tarried here for about three years; and so successful and abundant were his labours that "all they which dwelt in Asia heard the word of the Lord Jesus, both Jews and Greeks" (19:10). Probably during this period the seven churches of the Apocalypse were founded, not by Paul`s personal labours, but by missionaries whom he may have sent out from Ephesus, and by the influence of converts returning to their homes.    On his return from his journey, Paul touched at Miletus, some 30 miles south of Ephesus (Acts 20:15), and sending for the presbyters of Ephesus to meet him there, he delivered to them that touching farewell charge which is recorded in Acts 20:18-35. Ephesus is not again mentioned till near the close of Paul`s life, when he writes to Timothy exhorting him to "abide still at Ephesus" (1 Tim. 1:3).    Two of Paul`s companions, Trophimus and Tychicus, were probably natives of Ephesus (Acts 20:4; 21:29; 2 Tim. 4:12). In his second epistle to Timothy, Paul speaks of Onesiphorus as having served him in many things at Ephesus (2 Tim. 1:18). He also "sent Tychicus to Ephesus" (4:12), probably to attend to the interests of the church there. Ephesus is twice mentioned in the Apocalypse (1:11; 2:1).    The apostle John, according to tradition, spent many years in Ephesus, where he died and was buried.    A part of the site of this once famous city is now occupied by a small Turkish village, Ayasaluk, which is regarded as a corruption of the two Greek words, hagios theologos; i.e., "the holy divine."
+
+## Ephod
+
+something girt, a sacred vestment worn originally by the high priest (Ex. 28:4), afterwards by the ordinary priest (1 Sam. 22:18), and characteristic of his office (1 Sam. 2:18, 28; 14:3). It was worn by Samuel, and also by David (2 Sam. 6:14). It was made of fine linen, and consisted of two pieces, which hung from the neck, and covered both the back and front, above the tunic and outer garment (Ex. 28:31). That of the high priest was embroidered with divers colours. The two pieces were joined together over the shoulders (hence in Latin called superhumerale) by clasps or buckles of gold or precious stones, and fastened round the waist by a "curious girdle of gold, blue, purple, and fine twined linen" (28:6-12).    The breastplate, with the Urim and Thummim, was attached to the ephod.
+
+## Ephphatha
+
+the Greek form of a Syro-Chaldaic or Aramaic word, meaning "Be opened," uttered by Christ when healing the man who was deaf and dumb (Mark 7:34). It is one of the characteristics of Mark that he uses the very Aramaic words which fell from our Lord`s lips. (See 3:17; 5:41; 7:11; 14:36; 15:34.)
+
+## Ephraim
+
+double fruitfulness ("for God had made him fruitful in the land of his affliction"). The second son of Joseph, born in Egypt (Gen. 41:52; 46:20). The first incident recorded regarding him is his being placed, along with his brother Manasseh, before their grandfather, Jacob, that he might bless them (48:10; comp. 27:1). The intention of Joseph was that the right hand of the aged patriarch should be placed on the head of the elder of the two; but Jacob set Ephraim the younger before his brother, "guiding his hands wittingly." Before Joseph`s death, Ephraim`s family had reached the third generation (Gen. 50:23).
+
+## Ephraim, Gate of
+
+one of the gates of Jerusalem (2 Kings 14:13; 2 Chr. 25:23), on the side of the city looking toward Ephraim, the north side.
+
+## Ephraim in the wilderness
+
+(John 11: 54), a town to which our Lord retired with his disciples after he had raised Lazarus, and when the priests were conspiring against him. It lay in the wild, uncultivated hill-country to the north-east of Jerusalem, betwen the central towns and the Jordan valley.
+
+## Ephraim, Mount
+
+the central mountainous district of Palestine occupied by the tribe of Ephraim (Josh. 17:15; 19:50; 20:7), extending from Bethel to the plain of Jezreel. In Joshua`s time (Josh. 17:18) these hills were densely wooded. They were intersected by well-watered, fertile valleys, referred to in Jer. 50:19. Joshua was buried at Timnath-heres among the mountains of Ephraim, on the north side of the hill of Gaash (Judg. 2:9). This region is also called the "mountains of Israel" (Josh. 11:21) and the "mountains of Samaria" (Jer. 31:5, 6: Amos 3:9).
+
+## Ephraim, The tribe of
+
+took precedence over that of Manasseh by virtue of Jacob`s blessing (Gen. 41:52; 48:1). The descendants of Joseph formed two of the tribes of Israel, whereas each of the other sons of Jacob was the founder of only one tribe. Thus there were in reality thirteen tribes; but the number twelve was preserved by excluding that of Levi when Ephraim and Manasseh are mentioned separately (Num. 1:32-34; Josh. 17:14, 17; 1 Chr. 7:20).    Territory of. At the time of the first census in the wilderness this tribe numbered 40,500 (Num. 1:32, 33); forty years later, when about to take possession of the Promised Land, it numbered only 32,500. During the march (see CAMP ) Ephraim`s place was on the west side of the tabernacle (Num. 2:18-24). When the spies were sent out to spy the land, "Oshea the son of Nun" of this tribe signalized himself.    The boundaries of the portion of the land assigned to Ephraim are given in Josh. 16:1-10. It included most of what was afterwards called Samaria as distinguished from Judea and Galilee. It thus lay in the centre of all traffic, from north to south, and from Jordan to the sea, and was about 55 miles long and 30 broad. The tabernacle and the ark were deposited within its limits at Shiloh, where it remained for four hundred years. During the time of the judges and the first stage of the monarchy this tribe manifested a domineering and haughty and discontented spirit. "For more than five hundred years, a period equal to that which elapsed between the Norman Conquest and the War of the Roses, Ephraim, with its two dependent tribes of Manasseh and Benjamin, exercised undisputed pre-eminence. Joshua the first conqueror, Gideon the greatest of the judges, and Saul the first king, belonged to one or other of the three tribes. It was not till the close of the first period of Jewish history that God `refused the tabernacle of Joseph, and chose not the tribe of Ephraim, but chose the tribe of Judah, the Mount Zion which he loved` (Ps. 78:67, 68). When the ark was removed from Shiloh to Zion the power of Ephraim was humbled."    Among the causes which operated to bring about the disruption of Israel was Ephraim`s jealousy of the growing power of Judah. From the settlement of Canaan till the time of David and Solomon, Ephraim had held the place of honour among the tribes. It occupied the central and fairest portions of the land, and had Shiloh and Shechem within its borders. But now when Jerusalem became the capital of the kingdom, and the centre of power and worship for the whole nation of Israel, Ephraim declined in influence. The discontent came to a crisis by Rehoboam`s refusal to grant certain redresses that were demanded (1 Kings 12).
+
+## Ephraim, Wood of
+
+a forest in which a fatal battle was fought between the army of David and that of Absalom, who was killed there (2 Sam. 18:6, 8). It lay on the east of Jordan, not far from Mahanaim, and was some part of the great forest of Gilead.
+
+## Ephratah
+
+fruitful. (1.) The second wife of Caleb, the son of Hezron, mother of Hur, and grandmother of Caleb, who was one of those that were sent to spy the land (1 Chr. 2:19, 50).    (2.) The ancient name of Bethlehem in Judah (Gen. 35:16, 19; 48:7). In Ruth 1:2 it is called "Bethlehem-Judah," but the inhabitants are called "Ephrathites;" in Micah 5:2, "Bethlehem-Ephratah;" in Matt. 2:6, "Bethlehem in the land of Judah." In Ps. 132:6 it is mentioned as the place where David spent his youth, and where he heard much of the ark, although he never saw it till he found it long afterwards at Kirjath-jearim; i.e., the "city of the wood," or the "forest-town" (1 Sam. 7:1; comp. 2 Sam. 6:3, 4).
+
+## Ephrathite
+
+a citizen of Ephratah, the old name of Bethlehem (Ruth 1:2; 1 Sam. 17:12), or Bethlehem-Judah.
+
+## Ephron
+
+fawn-like. (1.) The son of Zohar a Hittite, the owner of the field and cave of Machpelah (q.v.), which Abraham bought for 400 shekels of silver (Gen. 23:8-17; 25:9; 49:29, 30).    (2.) A mountain range which formed one of the landmarks on the north boundary of the tribe of Judah (Josh. 15:9), probably the range on the west side of the Wady Beit-Hanina.
+
+## Epicureans
+
+followers of Epicurus (who died at Athens B.C. 270), or adherents of the Epicurean philosophy (Acts 17:18). This philosophy was a system of atheism, and taught men to seek as their highest aim a pleasant and smooth life. They have been called the "Sadducees" of Greek paganism. They, with the Stoics, ridiculed the teaching of Paul (Acts 17:18). They appear to have been greatly esteemed at Athens.
+
+## Epistles
+
+the apostolic letters. The New Testament contains twenty-one in all. They are divided into two classes. (1.) Paul`s Epistles, fourteen in number, including Hebrews. These are not arranged in the New Testament in the order of time as to their composition, but rather according to the rank of the cities or places to which they were sent. Who arranged them after this manner is unknown. Paul`s letters were, as a rule, dictated to an amanuensis, a fact which accounts for some of their peculiarities. He authenticated them, however, by adding a few words in his own hand at the close. (See GALATIANS, EPISTLE TO .)    The epistles to Timothy and Titus are styled the Pastoral Epistles.    (2.) The Catholic or General Epistles, so called because they are not addressed to any particular church or city or individual, but to Christians in general, or to Christians in several countries. Of these, three are written by John, two by Peter, and one each by James and Jude.    It is an interesting and instructive fact that a large portion of the New Testament is taken up with epistles. The doctrines of Christianity are thus not set forth in any formal treatise, but mainly in a collection of letters. "Christianity was the first great missionary religion. It was the first to break the bonds of race and aim at embracing all mankind. But this necessarily involved a change in the mode in which it was presented. The prophet of the Old Testament, if he had anything to communicate, either appeared in person or sent messengers to speak for him by word of mouth. The narrow limits of Palestine made direct personal communication easy. But the case was different when the Christian Church came to consist of a number of scattered parts, stretching from Mesopotamia in the east to Rome or even Spain in the far west. It was only natural that the apostle by whom the greater number of these communities had been founded should seek to communicate with them by letter."
+
+## Erastus
+
+beloved. (1.) The "chamberlain" of the city of Corinth (Rom. 16:23), and one of Paul`s disciples. As treasurer of such a city he was a public officer of great dignity, and his conversion to the gospel was accordingly a proof of the wonderful success of the apostle`s labours.    (2.) A companion of Paul at Ephesus, who was sent by him along with Timothy into Macedonia (Acts 19:22). Corinth was his usual place of abode (2 Tim. 4:20); but probably he may have been the same as the preceding.
+
+## Erech
+
+(LXX., "Orech"), length, or Moon-town, one of the cities of Nimrod`s kingdom in the plain of Shinar (Gen. 10:10); the Orchoe of the Greeks and Romans. It was probably the city of the Archevites, who were transplanted to Samaria by Asnapper (Ezra 4:9). It lay on the left bank of the Euphrates, about 120 miles south-east of Babylon, and is now represented by the mounds and ruins of Warka. It appears to have been the necropolis of the Assyrian kings, as the whole region is strewed with bricks and the remains of coffins. "Standing on the summit of the principal edifice, called the Buwarizza, a tower 200 feet square in the centre of the ruins, the beholder is struck with astonishment at the enormous accumulation of mounds and ancient relics at his feet. An irregular circle, nearly 6 miles in circumference, is defined by the traces of an earthen rampart, in some places 40 feet high."
+
+## Esaias
+
+the Greek form for Isaiah, constantly used in the Authorized Version of the New Testament (Matt. 3:3; 4:14), but in the Revised Version always "Isaiah."
+
+## Esarhaddon
+
+Assur has given a brother, successor of Sennacherib (2 Kings 19:37; Isa. 37:38). He ascended the throne about B.C. 681. Nothing further is recorded of him in Scripture, except that he settled certain colonists in Samaria (Ezra 4:2). But from the monuments it appears that he was the most powerful of all the Assyrian monarchs. He built many temples and palaces, the most magnificent of which was the south-west palace at Nimrud, which is said to have been in its general design almost the same as Solomon`s palace, only much larger (1 Kings 7:1-12).    In December B.C. 681 Sennacherib was murdered by two of his sons, who, after holding Nineveh for forty-two days, were compelled to fly to Erimenas of Ararat, or Armenia. Their brother Esarhaddon, who had been engaged in a campaign against Armenia, led his army against them. They were utterly overthrown in a battle fought April B.C. 680, near Malatiyeh, and in the following month Esarhaddon was crowned at Nineveh. He restored Babylon, conquered Egypt, and received tribute from Manasseh of Judah. He died in October B.C. 668, while on the march to suppress an Egyptian revolt, and was succeeded by his son Assur-bani-pal, whose younger brother was made viceroy of Babylonia.
+
+## Esau
+
+hairy, Rebekah`s first-born twin son (Gen. 25:25). The name of Edom, "red", was also given to him from his conduct in connection with the red lentil "pottage" for which he sold his birthright (30, 31). The circumstances connected with his birth foreshadowed the enmity which afterwards subsisted between the twin brothers and the nations they founded (25:22, 23, 26). In process of time Jacob, following his natural bent, became a shepherd; while Esau, a "son of the desert," devoted himself to the perilous and toilsome life of a huntsman. On a certain occasion, on returning from the chase, urged by the cravings of hunger, Esau sold his birthright to his brother, Jacob, who thereby obtained the covenant blessing (Gen. 27:28, 29, 36; Heb. 12:16, 17). He afterwards tried to regain what he had so recklessly parted with, but was defeated in his attempts through the stealth of his brother (Gen. 27:4, 34, 38).    At the age of forty years, to the great grief of his parents, he married (Gen. 26:34, 35) two Canaanitish maidens, Judith, the daughter of Beeri, and Bashemath, the daughter of Elon. When Jacob was sent away to Padan-aram, Esau tried to conciliate his parents (Gen. 28:8, 9) by marrying his cousin Mahalath, the daughter of Ishmael. This led him to cast in his lot with the Ishmaelite tribes; and driving the Horites out of Mount Seir, he settled in that region. After some thirty years` sojourn in Padan-aram Jacob returned to Canaan, and was reconciled to Esau, who went forth to meet him (33:4). Twenty years after this, Isaac their father died, when the two brothers met, probably for the last time, beside his grave (35:29). Esau now permanently left Canaan, and established himself as a powerful and wealthy chief in the land of Edom (q.v.).    Long after this, when the descendants of Jacob came out of Egypt, the Edomites remembered the old quarrel between the brothers, and with fierce hatred they warred against Israel.
+
+## Eschew
+
+from old French eschever, "to flee from" (Job 1:1, 8; 2:3; 1 Pet. 3:11).
+
+## Esdraelon
+
+the Greek form of the Hebrew "Jezreel," the name of the great plain (called by the natives Merj Ibn Amer; i.e., "the meadow of the son of Amer") which stretches across Central Palestine from the Jordan to the Mediterraanean, separating the mountain ranges of Carmel and Samaria from those of Galilee, extending about 14 miles from north to south, and 9 miles from east to west. It is drained by "that ancient river" the Kishon, which flows westward to the Mediterranean. From the foot of Mount Tabor it branches out into three valleys, that on the north passing between Tabor and Little Hermon (Judg. 4:14); that on the south between Mount Gilboa and En-gannim (2 Kings 9:27); while the central portion, the "valley of Jezreel" proper, runs into the Jordan valley (which is about 1,000 feet lower than Esdraelon) by Bethshean. Here Gideon gained his great victory over the Midianites (Judg. 7:1-25). Here also Barak defeated Sisera, and Saul`s army was defeated by the Philistines, and king Josiah, while fighting in disguise against Necho, king of Egypt, was slain (2 Chr. 35:20-27; 2 Kings 23-29). This plain has been well called the "battle-field of Palestine." "It has been a chosen place for encampment in every contest carried on in this country, from the days of Nebuchadnezzar, king of the Assyrians, in the history of whose wars with Arphaxad it is mentioned as the Great Plain of Esdraelon, until the disastrous march of Napoleon Bonaparte from Egypt into Syria. Jews, Gentiles, Saracens, Crusaders, Frenchmen, Egyptians, Persians, Druses, Turks, and Arabs, warriors out of every nation which is under heaven, have pitched their tents in the plain, and have beheld the various banners of their nations wet with the dews of Tabor and Hermon" (Dr. Clark).
+
+## Esek
+
+quarrel, a well which Isaac`s herdsmen dug in the valley of Gerar, and so called because the herdsmen of Gerar quarrelled with them for its possession (Gen. 26:20).
+
+## Eshbaal
+
+man of Baal, the fourth son of king Saul (1 Chr. 8:33; 9:39). He is also called Ish-bosheth (q.v.), 2 Sam. 2:8.
+
+## Eshcol
+
+bunch; brave. (1.) A young Amoritish chief who joined Abraham in the recovery of Lot from the hands of Chedorlaomer (Gen. 14:13, 24).    (2.) A valley in which the spies obtained a fine cluster of grapes (Num. 13:23, 24; "the brook Eshcol," A.V.; "the valley of Eshcol," R.V.), which they took back with them to the camp of Israel as a specimen of the fruits of the Promised Land. On their way back they explored the route which led into the south (the Negeb) by the western edge of the mountains at Telilat el-`Anab, i.e., "grape-mounds", near Beersheba. "In one of these extensive valleys, perhaps in Wady Hanein, where miles of grape-mounds even now meet the eye, they cut the gigantic clusters of grapes, and gathered the pomegranates and figs, to show how goodly was the land which the Lord had promised for their inheritance.", Palmer`s Desert of the Exodus.
+
+## Eshean
+
+a place in the mountains of Judah (Josh.15:52), supposed to be the ruin es-Simia, near Dumah, south of Hebron.
+
+## Eshtaol
+
+narrow pass or recess, a town (Josh. 15:33) in the low country, the She-phelah of Judah. It was allotted to the tribe of Dan (Josh. 19:41), and was one of their strongholds. Here Samson spent his boyhood, and first began to show his mighty strength; and here he was buried in the burying-place of Manoah his father (Judg. 13:25; 16:31; 18:2, 8, 11, 12). It is identified with the modern Yeshua, on a hill 2 miles east of Zorah. Others, however, identify it with Kustul, east of Kirjath-jearim.
+
+## Eshtemoa
+
+obedience, a town in the mountains of Judah (Josh. 21:14; 1 Chr. 6:57), which was allotted, with the land round it, to the priests. It was frequented by David and his followers during their wanderings; and he sent presents of the spoil of the Amalekites to his friends there (1 Sam. 30:28). It is identified with es-Semu`a, a village about 3 1/2 miles east of Socoh, and 7 or 8 miles south of Hebron, around which there are ancient remains of the ruined city. It is the centre of the "south country" or Negeb. It is also called "Eshtemoh" (Josh. 15:50).
+
+## Espouse
+
+(2 Sam. 3:14), to betroth. The espousal was a ceremony of betrothing, a formal agreement between the parties then coming under obligation for the purpose of marriage. Espousals are in the East frequently contracted years before the marriage is celebrated. It is referred to as figuratively illustrating the relations between God and his people (Jer. 2:2; Matt. 1:18; 2 Cor. 11:2). (See BETROTH .)
+
+## Essenes
+
+a Jewish mystical sect somewhat resembling the Pharisees. They affected great purity. They originated about B.C. 100, and disappeared from history after the destruction of Jerusalem. They are not directly mentioned in Scripture, although they may be referred to in Matt. 19:11, 12, Col. 2:8, 18, 23.
+
+## Esther
+
+the queen of Ahasuerus, and heroine of the book that bears her name. She was a Jewess named Hadas`sah (the myrtle), but when she entered the royal harem she received the name by which she henceforth became known (Esther 2:7). It is a Syro-Arabian modification of the Persian word satarah, which means a star. She was the daughter of Abihail, a Benjamite. Her family did not avail themselves of the permission granted by Cyrus to the exiles to return to Jerusalem; and she resided with her cousin Mordecai, who held some office in the household of the Persian king at "Shushan in the palace." Ahasuerus having divorced Vashti, chose Esther to be his wife. Soon after this he gave Haman the Agagite, his prime minister, power and authority to kill and extirpate all the Jews throughout the Persian empire. By the interposition of Esther this terrible catastrophe was averted. Haman was hanged on the gallows he had intended for Mordecai (Esther 7); and the Jews established an annual feast, the feast of Purim (q.v.), in memory of their wonderful deliverance. This took place about fifty-two years after the Return, the year of the great battles of Plataea and Mycale (B.C. 479).    Esther appears in the Bible as a "woman of deep piety, faith, courage, patriotism, and caution, combined with resolution; a dutiful daughter to her adopted father, docile and obedient to his counsels, and anxious to share the king`s favour with him for the good of the Jewish people. There must have been a singular grace and charm in her aspect and manners, since `she obtained favour in the sight of all them that looked upon her` (Esther 2:15). That she was raised up as an instrument in the hand of God to avert the destruction of the Jewish people, and to afford them protection and forward their wealth and peace in their captivity, is also manifest from the Scripture account."
+
+## Esther, Book of
+
+The authorship of this book is unknown. It must have been obviously written after the death of Ahasuerus (the Xerxes of the Greeks), which took place B.C. 465. The minute and particular account also given of many historical details makes it probable that the writer was contemporary with Mordecai and Esther. Hence we may conclude that the book was written probably about B.C. 444-434, and that the author was one of the Jews of the dispersion.    This book is more purely historical than any other book of Scripture; and it has this remarkable peculiarity that the name of God does not occur in it from first to last in any form. It has, however, been well observed that "though the name of God be not in it, his finger is." The book wonderfully exhibits the providential government of God.
+
+## Etam
+
+eyrie. (1.) A village of the tribe of Simeon (1 Chr. 4:32). Into some cleft ("top," A.V.,; R.V., "cleft") of a rock here Samson retired after his slaughter of the Philistines (Judg. 15:8, 11). It was a natural stronghold. It has been identified with Beit `Atab, west of Bethlehem, near Zorah and Eshtaol. On the crest of a rocky knoll, under the village, is a long tunnel, which may be the "cleft" in which Samson hid.    (2.) A city of Judah, fortified by Rehoboam (2 Chr. 11:6). It was near Bethlehem and Tekoah, and some distance apparently to the north of (1). It seems to have been in the district called Nephtoah (or Netophah), where were the sources of the water from which Solomon`s gardens and pleasure-grounds and pools, as well as Bethlehem and the temple, were supplied. It is now `Ain `Atan, at the head of the Wady Urtas, a fountain sending forth a copious supply of pure water.
+
+## Eternal death
+
+The miserable fate of the wicked in hell (Matt. 25:46; Mark 3:29; Heb. 6:2; 2 Thess. 1:9; Matt. 18:8; 25:41; Jude 1:7). The Scripture as clearly teaches the unending duration of the penal sufferings of the lost as the "everlasting life," the "eternal life" of the righteous. The same Greek words in the New Testament (aion, aionios, aidios) are used to express (1) the eternal existence of God (1 Tim. 1:17; Rom. 1:20; 16:26); (2) of Christ (Rev. 1:18); (3) of the Holy Ghost (Heb. 9:14); and (4) the eternal duration of the sufferings of the lost (Matt. 25:46; Jude 1:6).    Their condition after casting off the mortal body is spoken of in these expressive words: "Fire that shall not be quenched" (Mark 9:45, 46), "fire unquenchable" (Luke 3:17), "the worm that never dies," the "bottomless pit" (Rev. 9:1), "the smoke of their torment ascending up for ever and ever" (Rev. 14:10, 11).    The idea that the "second death" (Rev. 20:14) is in the case of the wicked their absolute destruction, their annihilation, has not the slightest support from Scripture, which always represents their future as one of conscious suffering enduring for ever.    The supposition that God will ultimately secure the repentance and restoration of all sinners is equally unscriptural. There is not the slightest trace in all the Scriptures of any such restoration. Sufferings of themselves have no tendency to purify the soul from sin or impart spiritual life. The atoning death of Christ and the sanctifying power of the Holy Spirit are the only means of divine appointment for bringing men to repentance. Now in the case of them that perish these means have been rejected, and "there remaineth no more sacrifice for sins" (Heb. 10:26, 27).
+
+## Eternal life
+
+This expression occurs in the Old Testament only in Dan. 12:2 (R.V., "everlasting life").    It occurs frequently in the New Testament (Matt. 7:14; 18:8, 9; Luke 10:28; comp. 18:18). It comprises the whole future of the redeemed (Luke 16:9), and is opposed to "eternal punishment" (Matt. 19:29; 25:46). It is the final reward and glory into which the children of God enter (1 Tim. 6:12, 19; Rom. 6:22; Gal. 6:8; 1 Tim. 1:16; Rom. 5:21); their Sabbath of rest (Heb. 4:9; comp. 12:22).    The newness of life which the believer derives from Christ (Rom. 6:4) is the very essence of salvation, and hence the life of glory or the eternal life must also be theirs (Rom. 6:8; 2 Tim. 2:11, 12; Rom. 5:17, 21; 8:30; Eph. 2:5, 6). It is the "gift of God in Jesus Christ our Lord" (Rom. 6:23). The life the faithful have here on earth (John 3:36; 5:24; 6:47, 53-58) is inseparably connected with the eternal life beyond, the endless life of the future, the happy future of the saints in heaven (Matt. 19:16, 29; 25:46).
+
+## Etham
+
+perhaps another name for Khetam, or "fortress," on the Shur or great wall of Egypt, which extended from the Mediterranean to the Gulf of Suez. Here the Israelites made their third encampment (Ex. 13:20; Num. 33:6). The camp was probably a little to the west of the modern town of Ismailia. Here the Israelites were commanded to change their route (Ex. 14:2), and "turn" towards the south, and encamp before Pi-hahiroth. (See EXODUS ; PITHOM .)
+
+## Ethan
+
+firm. (1.) "The Ezrahite," distinguished for his wisdom (1 Kings 4:31). He is named as the author of the 89th Psalm. He was of the tribe of Levi.    (2.) A Levite of the family of Merari, one of the leaders of the temple music (1 Chr. 6:44; 15:17, 19). He was probably the same as Jeduthun. He is supposed by some to be the same also as (1).
+
+## Ethanim
+
+the month of gifts, i.e., of vintage offerings; called Tisri after the Exile; corresponding to part of September and October. It was the first month of the civil year, and the seventh of the sacred year (1 Kings 8:2).
+
+## Eth-baal
+
+with Baal, a king of Sidon (B.C. 940-908), father of Jezebel, who was the wife of Ahab (1 Kings 16:31). He is said to have been also a priest of Astarte, whose worship was closely allied to that of Baal, and this may account for his daughter`s zeal in promoting idolatry in Israel. This marriage of Ahab was most fatal to both Israel and Judah. Dido, the founder of Carthage, was his granddaughter.
+
+## Ethiopia
+
+country of burnt faces; the Greek word by which the Hebrew Cush is rendered (Gen. 2:13; 2 Kings 19:9; Esther 1:1; Job 28:19; Ps. 68:31; 87:4), a country which lay to the south of Egypt, beginning at Syene on the First Cataract (Ezek. 29:10; 30:6), and extending to beyond the confluence of the White and Blue Nile. It corresponds generally with what is now known as the Soudan (i.e., the land of the blacks). This country was known to the Hebrews, and is described in Isa. 18:1; Zeph. 3:10. They carried on some commercial intercourse with it (Isa. 45:14).    Its inhabitants were descendants of Ham (Gen. 10:6; Jer. 13:23; Isa. 18:2, "scattered and peeled," A.V.; but in R.V., "tall and smooth"). Herodotus, the Greek historian, describes them as "the tallest and handsomest of men." They are frequently represented on Egyptian monuments, and they are all of the type of the true negro. As might be expected, the history of this country is interwoven with that of Egypt.    Ethiopia is spoken of in prophecy (Ps. 68:31; 87:4; Isa. 45:14; Ezek. 30:4-9; Dan. 11:43; Nah. 3:8-10; Hab. 3:7; Zeph. 2:12).
+
+## Ethiopian eunuch
+
+the chief officer or prime minister of state of Candace (q.v.), queen of Ethiopia. He was converted to Christianity through the instrumentality of Philip (Act 8:27). The northern portion of Ethiopia formed the kingdom of Meroe, which for a long period was ruled over by queens, and it was probably from this kingdom that the eunuch came.
+
+## Ethiopian woman
+
+the wife of Moses (Num. 12:1). It is supposed that Zipporah, Moses` first wife (Ex. 2:21), was now dead. His marriage of this "woman" descended from Ham gave offence to Aaron and Miriam.
+
+## Eunice
+
+happily conquering, the mother of Timothy, a believing Jewess, but married to a Greek (Acts 16:1). She trained her son from his childhood in the knowledge of the Scriptures (2 Tim. 3:15). She was distinguished by her "unfeigned faith."
+
+## Eunuch
+
+literally bed-keeper or chamberlain, and not necessarily in all cases one who was mutilated, although the practice of employing such mutilated persons in Oriental courts was common (2 Kings 9:32; Esther 2:3). The law of Moses excluded them from the congregation (Deut. 23:1). They were common also among the Greeks and Romans. It is said that even to-day there are some in Rome who are employed in singing soprano in the Sistine Chapel. Three classes of eunuchs are mentioned in Matt. 19:12.
+
+## Euodias
+
+a good journey, a female member of the church at Philippi. She was one who laboured much with Paul in the gospel. He exhorts her to be of one mind with Syntyche (Phil. 4:2). From this it seems they had been at variance with each other.
+
+## Euphrates
+
+Hebrew, Perath; Assyrian, Purat; Persian cuneiform, Ufratush, whence Greek Euphrates, meaning "sweet water." The Assyrian name means "the stream," or "the great stream." It is generally called in the Bible simply "the river" (Ex. 23:31), or "the great river" (Deut. 1:7).    The Euphrates is first mentioned in Gen. 2:14 as one of the rivers of Paradise. It is next mentioned in connection with the covenant which God entered into with Abraham (15:18), when he promised to his descendants the land from the river of Egypt to the river Euphrates (comp. Deut. 11:24; Josh. 1:4), a covenant promise afterwards fulfilled in the extended conquests of David (2 Sam. 8:2-14; 1 Chr. 18:3; 1 Kings 4:24). It was then the boundary of the kingdom to the north-east. In the ancient history of Assyria, and Babylon, and Egypt many events are recorded in which mention is made of the "great river." Just as the Nile represented in prophecy the power of Egypt, so the Euphrates represented the Assyrian power (Isa. 8:7; Jer. 2:18).    It is by far the largest and most important of all the rivers of Western Asia. From its source in the Armenian mountains to the Persian Gulf, into which it empties itself, it has a course of about 1,700 miles. It has two sources, (1) the Frat or Kara-su (i.e., "the black river"), which rises 25 miles north-east of Erzeroum; and (2) the Muradchai (i.e., "the river of desire"), which rises near Ararat, on the northern slope of Ala-tagh. At Kebban Maden, 400 miles from the source of the former, and 270 from that of the latter, they meet and form the majestic stream, which is at length joined by the Tigris at Koornah, after which it is called Shat-el-Arab, which runs in a deep and broad stream for above 140 miles to the sea. It is estimated that the alluvium brought down by these rivers encroaches on the sea at the rate of about one mile in thirty years.
+
+## Euroclydon
+
+south-east billow, the name of the wind which blew in the Adriatic Gulf, and which struck the ship in which Paul was wrecked on the coast of Malta (Acts 27:14; R.V., "Euraquilo," i.e., north-east wind). It is called a "tempestuous wind," i.e., as literally rendered, a "typhonic wind," or a typhoon. It is the modern Gregalia or Levanter. (Comp. Jonah 1:4.)
+
+## Eutychus
+
+fortunate, (Acts 20:9-12), a young man of Troas who fell through drowsiness from the open window of the third floor of the house where Paul was preaching, and was "taken up dead." The lattice-work of the window being open to admit the air, the lad fell out and down to the court below. Paul restored him to life again. (Comp. 1 Kings 17:21; 2 Kings 4:34.)
+
+## Evangelist
+
+a "publisher of glad tidings;" a missionary preacher of the gospel (Eph. 4:11). This title is applied to Philip (Acts 21:8), who appears to have gone from city to city preaching the word (8:4, 40). Judging from the case of Philip, evangelists had neither the authority of an apostle, nor the gift of prophecy, nor the responsibility of pastoral supervision over a portion of the flock. They were itinerant preachers, having it as their special function to carry the gospel to places where it was previously unknown. The writers of the four Gospels are known as the Evangelists.
+
+## Eve
+
+life; living, the name given by Adam to his wife (Gen. 3:20; 4:1). The account of her creation is given in Gen. 2:21, 22. The Creator, by declaring that it was not good for man to be alone, and by creating for him a suitable companion, gave sanction to monogamy. The commentator Matthew Henry says: "This companion was taken from his side to signify that she was to be dear unto him as his own flesh. Not from his head, lest she should rule over him; nor from his feet, lest he should tyrannize over her; but from his side, to denote that species of equality which is to subsist in the marriage state." And again, "That wife that is of God`s making by special grace, and of God`s bringing by special providence, is likely to prove a helpmeet to her husband." Through the subtle temptation of the serpent she violated the commandment of God by taking of the forbidden fruit, which she gave also unto her husband (1 Tim. 2:13-15; 2 Cor. 11:3). When she gave birth to her first son, she said, "I have gotten a man from the Lord" (R.V., "I have gotten a man with the help of the Lord," Gen. 4:1). Thus she welcomed Cain, as some think, as if he had been the Promised One the "Seed of the woman."
+
+## Evening
+
+the period following sunset with which the Jewish day began (Gen. 1:5; Mark 13:35). The Hebrews reckoned two evenings of each day, as appears from Ex. 16:12: 30:8; 12:6 (marg.); Lev. 23:5 (marg. R.V., "between the two evenings"). The "first evening" was that period when the sun was verging towards setting, and the "second evening" the moment of actual sunset. The word "evenings" in Jer. 5:6 should be "deserts" (marg. R.V.).
+
+## Everlasting
+
+eternal, applied to God (Gen. 21:33; Deut. 33:27; Ps. 41:13; 90:2). We also read of the "everlasting hills" (Gen. 49:26); an "everlasting priesthood" (Ex. 40:15; Num. 25:13). (See ETERNAL .)
+
+## Evil eye
+
+(Prov. 23:6), figuratively, the envious or covetous. (Comp. Deut. 15:9; Matt. 20:15.)
+
+## Evil-merodach
+
+Merodach`s man, the son and successor of Nebuchadnezzar, king of Babylon (2 Kings 25:27; Jer. 52:31, 34). He seems to have reigned but two years (B.C. 562-560). Influenced probably by Daniel, he showed kindness to Jehoiachin, who had been a prisoner in Babylon for thirty-seven years. He released him, and "spoke kindly to him." He was murdered by Nergal-sharezer=Neriglissar, his brother-in-law, who succeeded him (Jer. 39:3, 13).
+
+## Evil-speaking
+
+is expressly forbidden (Titus 3:2; James 4:11), and severe punishments are denounced against it (1 Cor. 5:11; 6:10). It is spoken of also with abhorrence (Ps. 15:3; Prov. 18:6, 7), and is foreign to the whole Christian character and the example of Christ.
+
+## Example
+
+of Christ (1 Pet. 2:21; John 13:15); of pastors to their flocks (Phil. 3:17; 2 Thess. 3:9; 1 Tim. 4:12; 1 Pet. 5:3); of the Jews as a warning (Heb. 4:11); of the prophets as suffering affliction (James 5:10).
+
+## Executioner
+
+(Mark 6:27). Instead of the Greek word, Mark here uses a Latin word, speculator, which literally means "a scout," "a spy," and at length came to denote one of the armed bodyguard of the emperor. Herod Antipas, in imitation of the emperor, had in attendance on him a company of speculatores. They were sometimes employed as executioners, but this was a mere accident of their office. (See MARK, GOSPEL OF .)
+
+## Exercise, bodily
+
+(1 Tim. 4:8). An ascetic mortification of the flesh and denial of personal gratification (comp. Col. 2:23) to which some sects of the Jews, especially the Essenes, attached importance.
+
+## Exile
+
+(1.) Of the kingdom of Israel. In the time of Pekah, Tiglath-pileser II. carried away captive into Assyria (2 Kings 15:29; comp. Isa. 10:5, 6) a part of the inhabitants of Galilee and of Gilead (B.C. 741).    After the destruction of Samaria (B.C. 720) by Shalmaneser and Sargon (q.v.), there was a general deportation of the Israelites into Mesopotamia and Media (2 Kings 17:6; 18:9; 1 Chr. 5:26). (See ISRAEL, KINGDOM OF .)    (2.) Of the kingdom of the two tribes, the kingdom of Judah. Nebuchadnezzar, in the fourth year of Jehoiakim (Jer. 25:1), invaded Judah, and carried away some royal youths, including Daniel and his companions (B.C. 606), together with the sacred vessels of the temple (2 Chr. 36:7; Dan. 1:2). In B.C. 598 (Jer. 52:28; 2 Kings 24:12), in the beginning of Jehoiachin`s reign (2 Kings 24:8), Nebuchadnezzar carried away captive 3,023 eminent Jews, including the king (2 Chr. 36:10), with his family and officers (2 Kings 24:12), and a large number of warriors (16), with very many persons of note (14), and artisans (16), leaving behind only those who were poor and helpless. This was the first general deportation to Babylon.    In B.C. 588, after the revolt of Zedekiah (q.v.), there was a second general deportation of Jews by Nebuchadnezzar (Jer. 52:29; 2 Kings 25:8), including 832 more of the principal men of the kingdom. He carried away also the rest of the sacred vessels (2 Chr. 36:18). From this period, when the temple was destroyed (2 Kings 25:9), to the complete restoration, B.C. 517 (Ezra 6:15), is the period of the "seventy years."    In B.C. 582 occurred the last and final deportation. The entire number Nebuchadnezzar carried captive was 4,600 heads of families with their wives and children and dependants (Jer. 52:30; 43:5-7; 2 Chr. 36:20, etc.). Thus the exiles formed a very considerable community in Babylon.    When Cyrus granted permission to the Jews to return to their own land (Ezra 1:5; 7:13), only a comparatively small number at first availed themselves of the privilege. It cannot be questioned that many belonging to the kingdom of Israel ultimately joined the Jews under Ezra, Zerubbabel, and Nehemiah, and returned along with them to Jerusalem (Jer. 50:4, 5, 17-20, 33-35).    Large numbers had, however, settled in the land of Babylon, and formed numerous colonies in different parts of the kingdom. Their descendants very probably have spread far into Eastern lands and become absorbed in the general population. (See JUDAH, KINGDOM OF ; CAPTIVITY .)
+
+## Exodus
+
+the great deliverance wrought for the children of Isreal when they were brought out of the land of Egypt with "a mighty hand and with an outstretched arm" (Ex 12:51; Deut. 26:8; Ps 114; 136), about B.C. 1490, and four hundred and eighty years (1 Kings 6:1) before the building of Solomon`s temple.    The time of their sojourning in Egypt was, according to Ex. 12:40, the space of four hundred and thirty years. In the LXX., the words are, "The sojourning of the children of Israel which they sojourned in Egypt and in the land of Canaan was four hundred and thirty years;" and the Samaritan version reads, "The sojourning of the children of Israel and of their fathers which they sojourned in the land of Canaan and in the land of Egypt was four hundred and thirty years." In Gen. 15:13-16, the period is prophetically given (in round numbers) as four hundred years. This passage is quoted by Stephen in his defence before the council (Acts 7:6).    The chronology of the "sojourning" is variously estimated. Those who adopt the longer term reckon thus:  |                                                    Years | |       From the descent of Jacob into Egypt to the |         death of Joseph                              71 | |       From the death of Joseph to the birth of |         Moses                                       278 | |       From the birth of Moses to his flight into |         Midian                                       40 | |       From the flight of Moses to his return into |         Egypt                                        40 | |       From the return of Moses to the Exodus          1 | |                                                     430    Others contend for the shorter period of two hundred and fifteen years, holding that the period of four hundred and thirty years comprehends the years from the entrance of Abraham into Canaan (see LXX. and Samaritan) to the descent of Jacob into Egypt. They reckon thus:  |                                                    Years | |       From Abraham`s arrival in Canaan to Isaac`s |         birth                                        25 | |       From Isaac`s birth to that of his twin sons |         Esau and Jacob                               60 | |       From Jacob`s birth to the going down into |         Egypt                                       130 | |                                                    (215) | |       From Jacob`s going down into Egypt to the |         death of Joseph                              71 | |       From death of Joseph to the birth of Moses     64 | |       From birth of Moses to the Exodus              80 | |                                           In all... 430    During the forty years of Moses` sojourn in the land of Midian, the Hebrews in Egypt were being gradually prepared for the great national crisis which was approaching. The plagues that successively fell upon the land loosened the bonds by which Pharaoh held them in slavery, and at length he was eager that they should depart. But the Hebrews must now also be ready to go. They were poor; for generations they had laboured for the Egyptians without wages. They asked gifts from their neighbours around them (Ex. 12:35), and these were readily bestowed. And then, as the first step towards their independent national organization, they observed the feast of the Passover, which was now instituted as a perpetual memorial. The blood of the paschal lamb was duly sprinkled on the door-posts and lintels of all their houses, and they were all within, waiting the next movement in the working out of God`s plan. At length the last stroke fell on the land of Egypt. "It came to pass, that at midnight Jehovah smote all the firstborn in the land of Egypt." Pharaoh rose up in the night, and called for Moses and Aaron by night, and said, "Rise up, and get you forth from among my people, both ye and the children of Israel; and go, serve Jehovah, as ye have said. Also take your flocks and your herds, as ye have said, and be gone; and bless me also." Thus was Pharaoh (q.v.) completely humbled and broken down. These words he spoke to Moses and Aaron "seem to gleam through the tears of the humbled king, as he lamented his son snatched from him by so sudden a death, and tremble with a sense of the helplessness which his proud soul at last felt when the avenging hand of God had visited even his palace."    The terror-stricken Egyptians now urged the instant departure of the Hebrews. In the midst of the Passover feast, before the dawn of the 15th day of the month Abib (our April nearly), which was to be to them henceforth the beginning of the year, as it was the commencement of a new epoch in their history, every family, with all that appertained to it, was ready for the march, which instantly began under the leadership of the heads of tribes with their various sub-divisions. They moved onward, increasing as they went forward from all the districts of Goshen, over the whole of which they were scattered, to the common centre. Three or four days perhaps elapsed before the whole body of the people were assembled at Rameses, and ready to set out under their leader Moses (Ex. 12:37; Num. 33:3). This city was at that time the residence of the Egyptian court, and here the interviews between Moses and Pharaoh had taken place.    From Rameses they journeyed to Succoth (Ex. 12:37), identified with Tel-el-Maskhuta, about 12 miles west of Ismailia. (See PITHOM .) Their third station was Etham (q.v.), 13:20, "in the edge of the wilderness," and was probably a little to the west of the modern town of Ismailia, on the Suez Canal. Here they were commanded "to turn and encamp before Pi-hahiroth, between Migdol and the sea", i.e., to change their route from east to due south. The Lord now assumed the direction of their march in the pillar of cloud by day and of fire by night. They were then led along the west shore of the Red Sea till they came to an extensive camping-ground "before Pi-hahiroth," about 40 miles from Etham. This distance from Etham may have taken three days to traverse, for the number of camping-places by no means indicates the number of days spent on the journey: e.g., it took fully a month to travel from Rameses to the wilderness of Sin (Ex. 16:1), yet reference is made to only six camping-places during all that time. The exact spot of their encampment before they crossed the Red Sea cannot be determined. It was probably somewhere near the present site of Suez.    Under the direction of God the children of Israel went "forward" from the camp "before Pi-hahiroth," and the sea opened a pathway for them, so that they crossed to the farther shore in safety. The Egyptian host pursued after them, and, attempting to follow through the sea, were overwhelmed in its returning waters, and thus the whole military force of the Egyptians perished. They "sank as lead in the mighty waters" (Ex. 15:1-9; comp. Ps. 77:16-19).    Having reached the eastern shore of the sea, perhaps a little way to the north of `Ayun Musa ("the springs of Moses"), there they encamped and rested probably for a day. Here Miriam and the other women sang the triumphal song recorded in Ex. 15:1-21.    From `Ayun Musa they went on for three days through a part of the barren "wilderness of Shur" (22), called also the "wilderness of Etham" (Num. 33:8; comp. Ex. 13:20), without finding water. On the last of these days they came to Marah (q.v.), where the "bitter" water was by a miracle made drinkable.    Their next camping-place was Elim (q.v.), where were twelve springs of water and a grove of "threescore and ten" palm trees (Ex. 15:27).    After a time the children of Israel "took their journey from Elim," and encamped by the Red Sea (Num. 33:10), and thence removed to the "wilderness of Sin" (to be distinguished from the wilderness of Zin, 20:1), where they again encamped. Here, probably the modern el-Markha, the supply of bread they had brought with them out of Egypt failed. They began to "murmur" for want of bread. God "heard their murmurings" and gave them quails and manna, "bread from heaven" (Ex. 16:4-36). Moses directed that an omer of manna should be put aside and preserved as a perpetual memorial of God`s goodness. They now turned inland, and after three encampments came to the rich and fertile valley of Rephidim, in the Wady Feiran. Here they found no water, and again murmured against Moses. Directed by God, Moses procured a miraculous supply of water from the "rock in Horeb," one of the hills of the Sinai group (17:1-7); and shortly afterwards the children of Israel here fought their first battle with the Amalekites, whom they smote with the edge of the sword.    From the eastern extremity of the Wady Feiran the line of march now probably led through the Wady esh-Sheikh and the Wady Solaf, meeting in the Wady er-Rahah, "the enclosed plain in front of the magnificient cliffs of Ras Sufsafeh." Here they encamped for more than a year (Num. 1:1; 10:11) before Sinai (q.v.).    The different encampments of the children of Israel, from the time of their leaving Egypt till they reached the Promised Land, are mentioned in Ex. 12:37-19; Num. 10-21; 33; Deut. 1, 2, 10.    It is worthy of notice that there are unmistakable evidences that the Egyptians had a tradition of a great exodus from their country, which could be none other than the exodus of the Hebrews.
+
+## Exodus, Book of
+
+Exodus is the name given in the LXX. to the second book of the Pentateuch (q.v.). It means "departure" or "outgoing." This name was adopted in the Latin translation, and thence passed into other languages. The Hebrews called it by the first words, according to their custom, Ve-eleh shemoth (i.e., "and these are the names").    It contains, (1.) An account of the increase and growth of the Israelites in Egypt (ch. 1) (2.) Preparations for their departure out of Egypt (2-12:36). (3.) Their journeyings from Egypt to Sinai (12:37-19:2). (4.) The giving of the law and the establishment of the institutions by which the organization of the people was completed, the theocracy, "a kingdom of priest and an holy nation" (19:3-ch. 40).    The time comprised in this book, from the death of Joseph to the erection of the tabernacle in the wilderness, is about one hundred and forty-five years, on the supposition that the four hundred and thirty years (12:40) are to be computed from the time of the promises made to Abraham (Gal. 3:17).    The authorship of this book, as well as of that of the other books of the Pentateuch, is to be ascribed to Moses. The unanimous voice of tradition and all internal evidences abundantly support this opinion.
+
+## Exorcist
+
+(Acts 19:13). "In that sceptical and therefore superstitious age professional exorcist abounded. Many of these professional exorcists were disreputable Jews, like Simon in Samaria and Elymas in Cyprus (8:9; 13:6)." Other references to exorcism as practised by the Jews are found in Matt. 12:27; Mark 9:38; Luke 9:49, 50. It would seem that it was an opinion among the Jews that miracles might be wrought by invoking the divine name. Thus also these "vagabond Jews" pretended that they could expel daemons.    The power of casting out devils was conferred by Christ on his apostles (Matt. 10:8), and on the seventy (Luke 10:17-19), and was exercised by believers after his ascension (Mark 16:17; Acts 16:18); but this power was never spoken of as exorcism.
+
+## Expiation
+
+Guilt is said to be expiated when it is visited with punishment falling on a substitute. Expiation is made for our sins when they are punished not in ourselves but in another who consents to stand in our room. It is that by which reconciliation is effected. Sin is thus said to be "covered" by vicarious satisfaction.    The cover or lid of the ark is termed in the LXX. hilasterion, that which covered or shut out the claims and demands of the law against the sins of God`s people, whereby he became "propitious" to them.    The idea of vicarious expiation runs through the whole Old Testament system of sacrifices. (See PROPITIATION .)
+
+## Eye
+
+(Heb. `ain, meaning "flowing"), applied (1) to a fountain, frequently; (2) to colour (Num. 11:7; R.V., "appearance," marg. "eye"); (3) the face (Ex. 10:5, 15; Num. 22:5, 11), in Num. 14:14, "face to face" (R.V. marg., "eye to eye"). "Between the eyes", i.e., the forehead (Ex. 13:9, 16).    The expression (Prov. 23:31), "when it giveth his colour in the cup," is literally, "when it giveth out [or showeth] its eye." The beads or bubbles of wine are thus spoken of. "To set the eyes" on any one is to view him with favour (Gen. 44:21; Job 24:23; Jer. 39:12). This word is used figuratively in the expressions an "evil eye" (Matt. 20:15), a "bountiful eye" (Prov. 22:9), "haughty eyes" (6:17 marg.), "wanton eyes" (Isa. 3:16), "eyes full of adultery" (2 Pet. 2:14), "the lust of the eyes" (1 John 2:16). Christians are warned against "eye-service" (Eph. 6:6; Col. 3:22). Men were sometimes punished by having their eyes put out (1 Sam. 11:2; Samson, Judg. 16:21; Zedekiah, 2 Kings 25:7).    The custom of painting the eyes is alluded to in 2 Kings 9:30, R.V.; Jer. 4:30; Ezek. 23:40, a custom which still prevails extensively among Eastern women.
+
+## Ezekias
+
+Grecized form of Hezekiah (Matt. 1:9, 10).
+
+## Ezekiel
+
+God will strengthen. (1.) 1 Chr. 24:16, "Jehezekel."    (2.) One of the great prophets, the son of Buzi the priest (Ezek. 1:3). He was one of the Jewish exiles who settled at Tel-Abib, on the banks of the Chebar, "in the land of the Chaldeans." He was probably carried away captive with Jehoiachin (1:2; 2 Kings 24:14-16) about B.C. 597. His prophetic call came to him "in the fifth year of Jehoiachin`s captivity" (B.C. 594). He had a house in the place of his exile, where he lost his wife, in the ninth year of his exile, by some sudden and unforeseen stroke (Ezek. 8:1; 24:18). He held a prominent place among the exiles, and was frequently consulted by the elders (8:1; 11:25; 14:1; 20:1). His ministry extended over twenty-three years (29:17), B.C. 595-573, during part of which he was contemporary with Daniel (14:14; 28:3) and Jeremiah, and probably also with Obadiah. The time and manner of his death are unknown. His reputed tomb is pointed out in the neighbourhood of Bagdad, at a place called Keffil.
+
+## Ezekiel, Book of
+
+consists mainly of three groups of prophecies. After an account of his call to the prophetical office (1-3:21), Ezekiel (1) utters words of denunciation against the Jews (3:22-24), warning them of the certain destruction of Jerusalem, in opposition to the words of the false prophets (4:1-3). The symbolical acts, by which the extremities to which Jerusalem would be reduced are described in ch. 4,5, show his intimate acquaintance with the Levitical legislation. (See Ex. 22:30; Deut. 14:21; Lev. 5:2; 7:18,24; 17:15; 19:7; 22:8, etc.)    (2.) Prophecies against various surrounding nations: against the Ammonites (Ezek. 25:1-7), the Moabites (8-11), the Edomites (12-14), the Philistines (15-17), Tyre and Sidon (26-28), and against Egypt (29-32).    (3.) Prophecies delivered after the destruction of Jerusalem by Nebuchadnezzar: the triumphs of Israel and of the kingdom of God on earth (Ezek. 33-39); Messianic times, and the establishment and prosperity of the kingdom of God (40;48).    The closing visions of this book are referred to in the book of Revelation (Ezek. 38=Rev. 20:8; Ezek. 47:1-8=Rev. 22:1,2). Other references to this book are also found in the New Testament. (Comp. Rom. 2:24 with Ezek. 36:2; Rom. 10:5, Gal. 3:12 with Ezek. 20:11; 2 Pet. 3:4 with Ezek. 12:22.)    It may be noted that Daniel, fourteen years after his deportation from Jerusalem, is mentioned by Ezekiel (14:14) along with Noah and Job as distinguished for his righteousness, and some five years later he is spoken of as pre-eminent for his wisdom (28:3).    Ezekiel`s prophecies are characterized by symbolical and allegorical representations, "unfolding a rich series of majestic visions and of colossal symbols." There are a great many also of "symbolcal actions embodying vivid conceptions on the part of the prophet" (4:1-4; 5:1-4; 12:3-6; 24:3-5; 37:16, etc.) "The mode of representation, in which symbols and allegories occupy a prominent place, gives a dark, mysterious character to the prophecies of Ezekiel. They are obscure and enigmatical. A cloudy mystery overhangs them which it is almost impossible to penetrate. Jerome calls the book `a labyrith of the mysteries of God.` It was because of this obscurity that the Jews forbade any one to read it till he had attained the age of thirty."    Ezekiel is singular in the frequency with which he refers to the Pentateuch (e.g., Ezek. 27; 28:13; 31:8; 36:11, 34; 47:13, etc.). He shows also an acquaintance with the writings of Hosea (Ezek. 37:22), Isaiah (Ezek. 8:12; 29:6), and especially with those of Jeremiah, his older contemporary (Jer. 24:7, 9; 48:37).
+
+## Ezel
+
+a separation, (1 Sam. 20:19), a stone, or heap of stones, in the neighbourhood of Saul`s residence, the scene of the parting of David and Jonathan (42). The margin of the Authorized Version reads, "The stone that sheweth the way," in this rendering following the Targum.
+
+## Ezer
+
+treasure. (1.) One of the sons of Seir, the native princes, "dukes," of Mount Hor (Gen. 36:21, 27). (2.) 1 Chr. 7:21; (3.) 4:4. (4.) One of the Gadite champions who repaired to David at Ziklag (12:9). (5.) A Levite (Neh. 3:19). (6.) A priest (12:42).
+
+## Ezion-geber
+
+the giant`s backbone (so called from the head of a mountain which runs out into the sea), an ancient city and harbour at the north-east end of the Elanitic branch of the Red Sea, the Gulf of Akabah, near Elath or Eloth (Num. 33:35; Deut. 2:8). Here Solomon built ships, "Tarshish ships," like those trading from Tyre to Tarshish and the west, which traded with Ophir (1 Kings 9:26; 2 Chr. 8:17); and here also Jehoshaphat`s fleet was shipwrecked (1 Kings 22:48; 2 Chr. 20:36). It became a populous town, many of the Jews settling in it (2 Kings 16:6, "Elath"). It is supposed that anciently the north end of the gulf flowed further into the country than now, as far as `Ain el-Ghudyan, which is 10 miles up the dry bed of the Arabah, and that Ezion-geber may have been there.
+
+## Ezra
+
+help. (1.) A priest among those that returned to Jerusalem under Zerubabel (Neh. 12:1).    (2.) The "scribe" who led the second body of exiles that returned from Babylon to Jerusalem B.C. 459, and author of the book of Scripture which bears his name. He was the son, or perhaps grandson, of Seraiah (2 Kings 25:18-21), and a lineal descendant of Phinehas, the son of Aaron (Ezra 7:1-5). All we know of his personal history is contained in the last four chapters of his book, and in Neh. 8 and 12:26.    In the seventh year of the reign of Artaxerxes Longimanus (see DARIUS ), he obtained leave to go up to Jerusalem and to take with him a company of Israelites (Ezra 8). Artaxerxes manifested great interest in Ezra`s undertaking, granting him "all his request," and loading him with gifts for the house of God. Ezra assembled the band of exiles, probably about 5,000 in all, who were prepared to go up with him to Jerusalem, on the banks of the Ahava, where they rested for three days, and were put into order for their march across the desert, which was completed in four months. His proceedings at Jerusalem on his arrival there are recorded in his book.    He was "a ready scribe in the law of Moses," who "had prepared his heart to seek the law of the Lord and to do it, and to teach in Israel statutes and judgments." "He is," says Professor Binnie, "the first well-defined example of an order of men who have never since ceased in the church; men of sacred erudition, who devote their lives to the study of the Holy Scriptures, in order that they may be in a condition to interpret them for the instruction and edification of the church. It is significant that the earliest mention of the pulpit occurs in the history of Ezra`s ministry (Neh. 8:4). He was much more of a teacher than a priest. We learn from the account of his labours in the book of Nehemiah that he was careful to have the whole people instructed in the law of Moses; and there is no reason to reject the constant tradition of the Jews which connects his name with the collecting and editing of the Old Testament canon. The final completion of the canon may have been, and probably was, the work of a later generation; but Ezra seems to have put it much into the shape in which it is still found in the Hebrew Bible. When it is added that the complete organization of the synagogue dates from this period, it will be seen that the age was emphatically one of Biblical study" (The Psalms: their History, etc.).    For about fourteen years, i.e., till B.C. 445, we have no record of what went on in Jerusalem after Ezra had set in order the ecclesiastical and civil affairs of the nation. In that year another distinguished personage, Nehemiah, appears on the scene. After the ruined wall of the city had been built by Nehemiah, there was a great gathering of the people at Jerusalem preparatory to the dedication of the wall. On the appointed day the whole population assembled, and the law was read aloud to them by Ezra and his assistants (Neh. 8:3). The remarkable scene is described in detail. There was a great religious awakening. For successive days they held solemn assemblies, confessing their sins and offering up solemn sacrifices. They kept also the feast of Tabernacles with great solemnity and joyous enthusiasm, and then renewed their national covenant to be the Lord`s. Abuses were rectified, and arrangements for the temple service completed, and now nothing remained but the dedication of the walls of the city (Neh. 12).
+
+## Ezra, Book of
+
+This book is the record of events occurring at the close of the Babylonian exile. It was at one time included in Nehemiah, the Jews regarding them as one volume. The two are still distinguished in the Vulgate version as I. and II. Esdras. It consists of two principal divisions:    (1.) The history of the first return of exiles, in the first year of Cyrus (B.C. 536), till the completion and dedication of the new temple, in the sixth year of Darius Hystapes (B.C. 515), ch. 1-6. From the close of the sixth to the opening of the seventh chapter there is a blank in the history of about sixty years.    (2.) The history of the second return under Ezra, in the seventh year of Artaxerxes Longimanus, and of the events that took place at Jerusalem after Ezra`s arrival there (7-10).    The book thus contains memorabilia connected with the Jews, from the decree of Cyrus (B.C. 536) to the reformation by Ezra (B.C. 456), extending over a period of about eighty years.    There is no quotation from this book in the New Testament, but there never has been any doubt about its being canonical. Ezra was probably the author of this book, at least of the greater part of it (comp. 7:27, 28; 8:1, etc.), as he was also of the Books of Chronicles, the close of which forms the opening passage of Ezra.
+
+## Ezrahite
+
+a title given to Ethan (1 Kings 4:31; Ps. 89, title) and Heman (Ps. 88, title). They were both sons of Zerah (1 Chr. 2:6).
+
+## Ezri
+
+help of Jehovah, the son of Chelub. He superintended, under David, those who "did the work of the field for tillage" (1 Chr. 27:26).
