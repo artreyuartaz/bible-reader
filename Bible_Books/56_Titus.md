@@ -2,9 +2,9 @@
 
 ## Chapter 1
 
-1. Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God`s chosen ones, and the knowledge of the truth which is according to godliness,
+1. Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's chosen ones, and the knowledge of the truth which is according to godliness,
 
-2. in hope of eternal life, which God, who can`t lie, promised before time began;
+2. in hope of eternal life, which God, who can't lie, promised before time began;
 
 3. but in his own time revealed his word in the message with which I was entrusted according to the commandment of God our Savior;
 
@@ -14,7 +14,7 @@
 
 6. if anyone is blameless, the husband of one wife, having children who believe, who are not accused of loose or unruly behavior.
 
-7. For the overseer must be blameless, as God`s steward; not self-pleasing, not easily angered, not given to wine, not violent, not greedy for dishonest gain;
+7. For the overseer must be blameless, as God's steward; not self-pleasing, not easily angered, not given to wine, not violent, not greedy for dishonest gain;
 
 8. but given to hospitality, as a lover of good, sober minded, fair, holy, self-controlled;
 
@@ -22,7 +22,7 @@
 
 10. For there are also many unruly men, vain talkers and deceivers, especially those of the circumcision,
 
-11. whose mouths must be stopped; men who overthrow whole houses, teaching things which they ought not, for dishonest gain`s sake.
+11. whose mouths must be stopped; men who overthrow whole houses, teaching things which they ought not, for dishonest gain's sake.
 
 12. One of them, a prophet of their own, said, "Cretans are always liars, evil beasts, and idle gluttons."
 
@@ -45,13 +45,13 @@
 
 4. that they may train the young women to love their husbands, to love their children,
 
-5. to be sober minded, chaste, workers at home, kind, being in subjection to their own husbands, that God`s word may not be blasphemed.
+5. to be sober minded, chaste, workers at home, kind, being in subjection to their own husbands, that God's word may not be blasphemed.
 
 6. Likewise, exhort the younger men to be sober minded;
 
 7. in all things showing yourself an example of good works; in your teaching showing integrity, seriousness, incorruptibility,
 
-8. and soundness of speech that can`t be condemned; that he who opposes you may be ashamed, having no evil thing to say about us.
+8. and soundness of speech that can't be condemned; that he who opposes you may be ashamed, having no evil thing to say about us.
 
 9. Exhort servants to be in subjection to their own masters, and to be well-pleasing in all things; not contradicting;
 

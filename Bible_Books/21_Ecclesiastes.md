@@ -30,7 +30,7 @@
 
 14. I have seen all the works that are done under the sun; and behold, all is vanity and a chasing after wind.
 
-15. That which is crooked can`t be made straight; and that which is lacking can`t be counted.
+15. That which is crooked can't be made straight; and that which is lacking can't be counted.
 
 16. I said to myself, "Behold, I have obtained for myself great wisdom above all who were before me in Jerusalem. Yes, my heart has had great experience of wisdom and knowledge."
 
@@ -59,15 +59,15 @@
 
 9. So I was great, and increased more than all who were before me in Jerusalem. My wisdom also remained with me.
 
-10. Whatever my eyes desired, I didn`t keep from them. I didn`t withhold my heart from any joy, for my heart rejoiced because of all my labor, and this was my portion from all my labor.
+10. Whatever my eyes desired, I didn't keep from them. I didn't withhold my heart from any joy, for my heart rejoiced because of all my labor, and this was my portion from all my labor.
 
 11. Then I looked at all the works that my hands had worked, and at the labor that I had labored to do; and behold, all was vanity and a chasing after wind, and there was no profit under the sun.
 
-12. I turned myself to consider wisdom, madness, and folly: for what can the king`s successor do? Just that which has been done long ago.
+12. I turned myself to consider wisdom, madness, and folly: for what can the king's successor do? Just that which has been done long ago.
 
 13. Then I saw that wisdom excels folly, as far as light excels darkness.
 
-14. The wise man`s eyes are in his head, and the fool walks in darkness--and yet I perceived that one event happens to them all.
+14. The wise man's eyes are in his head, and the fool walks in darkness--and yet I perceived that one event happens to them all.
 
 15. Then said I in my heart, "As it happens to the fool, so will it happen even to me; and why was I then more wise?" Then said I in my heart that this also is vanity.
 
@@ -116,7 +116,7 @@
 
 10. I have seen the burden which God has given to the sons of men to be afflicted with.
 
-11. He has made everything beautiful in its time. He has also set eternity in their hearts, yet so that man can`t find out the work that God has done from the beginning even to the end.
+11. He has made everything beautiful in its time. He has also set eternity in their hearts, yet so that man can't find out the work that God has done from the beginning even to the end.
 
 12. I know that there is nothing better for them than to rejoice, and to do good as long as they live.
 
@@ -149,7 +149,7 @@
 
 3. Yes, better than them both is him who has not yet been, who has not seen the evil work that is done under the sun.
 
-4. Then I saw all the labor and achievement that is the envy of a man`s neighbor. This also is vanity and a striving after wind.
+4. Then I saw all the labor and achievement that is the envy of a man's neighbor. This also is vanity and a striving after wind.
 
 5. The fool folds his hands together and ruins himself.
 
@@ -161,13 +161,13 @@
 
 9. Two are better than one, because they have a good reward for their labor.
 
-10. For if they fall, the one will lift up his fellow; but woe to him who is alone when he falls, and doesn`t have another to lift him up.
+10. For if they fall, the one will lift up his fellow; but woe to him who is alone when he falls, and doesn't have another to lift him up.
 
 11. Again, if two lie together, then they have warmth; but how can one keep warm alone?
 
 12. If a man prevails against one who is alone, two shall withstand him; and a threefold cord is not quickly broken.
 
-13. Better is a poor and wise youth than an old and foolish king who doesn`t know how to receive admonition any more.
+13. Better is a poor and wise youth than an old and foolish king who doesn't know how to receive admonition any more.
 
 14. For out of prison he came forth to be king; yes, even in his kingdom he was born poor.
 
@@ -178,21 +178,21 @@
 
 ## Chapter 5
 
-1. Guard your steps when you go to God`s house; for to draw near to listen is better than to give the sacrifice of fools, for they don`t know that they do evil.
+1. Guard your steps when you go to God's house; for to draw near to listen is better than to give the sacrifice of fools, for they don't know that they do evil.
 
-2. Don`t be rash with your mouth, and don`t let your heart be hasty to utter anything before God; for God is in heaven, and you on earth. Therefore let your words be few.
+2. Don't be rash with your mouth, and don't let your heart be hasty to utter anything before God; for God is in heaven, and you on earth. Therefore let your words be few.
 
-3. For as a dream comes with a multitude of cares, so a fool`s speech with a multitude of words.
+3. For as a dream comes with a multitude of cares, so a fool's speech with a multitude of words.
 
-4. When you vow a vow to God, don`t defer to pay it; for he has no pleasure in fools. Pay that which you vow.
+4. When you vow a vow to God, don't defer to pay it; for he has no pleasure in fools. Pay that which you vow.
 
 5. It is better that you should not vow, than that you should vow and not pay.
 
-6. Don`t allow your mouth to lead you into sin. Don`t protest before the messenger that this was a mistake. Why should God be angry at your voice, and destroy the work of your hands?
+6. Don't allow your mouth to lead you into sin. Don't protest before the messenger that this was a mistake. Why should God be angry at your voice, and destroy the work of your hands?
 
 7. For in the multitude of dreams there are vanities, as well as in many words: but you must fear God.
 
-8. If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don`t marvel at the matter: for one official is eyed by a higher one; and there are officials over them.
+8. If you see the oppression of the poor, and the violent taking away of justice and righteousness in a district, don't marvel at the matter: for one official is eyed by a higher one; and there are officials over them.
 
 9. Moreover the profit of the earth is for all. The king profits from the field.
 
@@ -206,7 +206,7 @@
 
 14. Those riches perish by misfortune, and if he has fathered a son, there is nothing in his hand.
 
-15. As he came forth from his mother`s womb, naked shall he go again as he came, and shall take nothing for his labor, which he may carry away in his hand.
+15. As he came forth from his mother's womb, naked shall he go again as he came, and shall take nothing for his labor, which he may carry away in his hand.
 
 16. This also is a grievous evil, that in all points as he came, so shall he go. And what profit does he have who labors for the wind?
 
@@ -231,7 +231,7 @@
 
 5. Moreover it has not seen the sun nor known it. This has rest rather than the other.
 
-6. Yes, though he live a thousand years twice told, and yet fails to enjoy good, don`t all go to one place?
+6. Yes, though he live a thousand years twice told, and yet fails to enjoy good, don't all go to one place?
 
 7. All the labor of man is for his mouth, and yet the appetite is not filled.
 
@@ -248,7 +248,7 @@
 
 ## Chapter 7
 
-1. A good name is better than fine perfume; and the day of death better than the day of one`s birth.
+1. A good name is better than fine perfume; and the day of death better than the day of one's birth.
 
 2. It is better to go to the house of mourning than to go to the house of feasting: for that is the end of all men, and the living should take this to heart.
 
@@ -264,9 +264,9 @@
 
 8. Better is the end of a thing than its beginning.     The patient in spirit is better than the proud in spirit.
 
-9. Don`t be hasty in your spirit to be angry, for anger rests in the bosom of fools.
+9. Don't be hasty in your spirit to be angry, for anger rests in the bosom of fools.
 
-10. Don`t say, "Why were the former days better than these?" For you do not ask wisely about this.
+10. Don't say, "Why were the former days better than these?" For you do not ask wisely about this.
 
 11. Wisdom is as good as an inheritance. Yes, it is more excellent for those who see the sun.
 
@@ -278,17 +278,17 @@
 
 15. All this have I seen in my days of vanity: there is a righteous man who perishes in his righteousness, and there is a wicked man who lives long in his evildoing.
 
-16. Don`t be overly righteous, neither make yourself overly wise. Why should you destroy yourself?
+16. Don't be overly righteous, neither make yourself overly wise. Why should you destroy yourself?
 
-17. Don`t be too wicked, neither be foolish. Why should you die before your time?
+17. Don't be too wicked, neither be foolish. Why should you die before your time?
 
-18. It is good that you should take hold of this. Yes, also from that don`t withdraw your hand; for he who fears God will come forth from them all.
+18. It is good that you should take hold of this. Yes, also from that don't withdraw your hand; for he who fears God will come forth from them all.
 
 19. Wisdom is a strength to the wise man more than ten rulers who are in a city.
 
-20. Surely there is not a righteous man on earth, who does good and doesn`t sin.
+20. Surely there is not a righteous man on earth, who does good and doesn't sin.
 
-21. Also don`t take heed to all words that are spoken, lest you hear your servant curse you;
+21. Also don't take heed to all words that are spoken, lest you hear your servant curse you;
 
 22. for often your own heart knows that you yourself have likewise cursed others.
 
@@ -309,19 +309,19 @@
 
 ## Chapter 8
 
-1. Who is like the wise man? And who knows the interpretation of a thing? A man`s wisdom makes his face shine, and the hardness of his face is changed.
+1. Who is like the wise man? And who knows the interpretation of a thing? A man's wisdom makes his face shine, and the hardness of his face is changed.
 
-2. I say, "Keep the king`s command!" because of the oath to God.
+2. I say, "Keep the king's command!" because of the oath to God.
 
-3. Don`t be hasty to go out of his presence. Don`t persist in an evil thing, for he does whatever pleases him,
+3. Don't be hasty to go out of his presence. Don't persist in an evil thing, for he does whatever pleases him,
 
-4. for the king`s word is supreme. Who can say to him, "What are you doing?"
+4. for the king's word is supreme. Who can say to him, "What are you doing?"
 
 5. Whoever keeps the commandment shall not come to harm, and his wise heart will know the time and procedure.
 
 6. For there is a time and procedure for every purpose, although the misery of man is heavy on him.
 
-7. For he doesn`t know that which will be; for who can tell him how it will be?
+7. For he doesn't know that which will be; for who can tell him how it will be?
 
 8. There is no man who has power over the spirit to contain the spirit; neither does he have power over the day of death. There is no discharge in war; neither shall wickedness deliver those who practice it.
 
@@ -333,7 +333,7 @@
 
 12. Though a sinner commits crimes a hundred times, and lives long, yet surely I know that it will be better with those who fear God, who are reverent before him.
 
-13. But it shall not be well with the wicked, neither shall he lengthen days like a shadow; because he doesn`t fear God.
+13. But it shall not be well with the wicked, neither shall he lengthen days like a shadow; because he doesn't fear God.
 
 14. There is a vanity which is done on the earth, that there are righteous men to whom it happens according to the work of the wicked. Again, there are wicked men to whom it happens according to the work of the righteous. I said that this also is vanity.
 
@@ -341,26 +341,26 @@
 
 16. When I applied my heart to know wisdom, and to see the business that is done on the earth (for also there is that neither day nor night sees sleep with his eyes),
 
-17. then I saw all the work of God, that man can`t find out the work that is done under the sun, because however much a man labors to seek it out, yet he won`t find it. Yes even though a wise man thinks he can comprehend it, he won`t be able to find it.
+17. then I saw all the work of God, that man can't find out the work that is done under the sun, because however much a man labors to seek it out, yet he won't find it. Yes even though a wise man thinks he can comprehend it, he won't be able to find it.
 
 
 ## Chapter 9
 
-1. For all this I laid to my heart, even to explore all this: that the righteous, and the wise, and their works, are in the hand of God; whether it is love or hatred, man doesn`t know it; all is before them.
+1. For all this I laid to my heart, even to explore all this: that the righteous, and the wise, and their works, are in the hand of God; whether it is love or hatred, man doesn't know it; all is before them.
 
-2. All things come alike to all. There is one event to the righteous and to the wicked; to the good, to the clean, to the unclean, to him who sacrifices, and to him who doesn`t sacrifice. As is the good, so is the sinner; he who takes an oath, as he who fears an oath.
+2. All things come alike to all. There is one event to the righteous and to the wicked; to the good, to the clean, to the unclean, to him who sacrifices, and to him who doesn't sacrifice. As is the good, so is the sinner; he who takes an oath, as he who fears an oath.
 
 3. This is an evil in all that is done under the sun, that there is one event to all: yes also, the heart of the sons of men is full of evil, and madness is in their heart while they live, and after that they go to the dead.
 
 4. For to him who is joined with all the living there is hope; for a living dog is better than a dead lion.
 
-5. For the living know that they will die, but the dead don`t know anything, neither do they have any more a reward; for the memory of them is forgotten.
+5. For the living know that they will die, but the dead don't know anything, neither do they have any more a reward; for the memory of them is forgotten.
 
 6. Also their love, their hatred, and their envy has perished long ago; neither have they any more a portion forever in anything that is done under the sun.
 
 7. Go your way--eat your bread with joy, and drink your wine with a merry heart; for God has already accepted your works.
 
-8. Let your garments be always white, and don`t let your head lack oil.
+8. Let your garments be always white, and don't let your head lack oil.
 
 9. Live joyfully with the wife whom you love all the days of your life of vanity, which he has given you under the sun, all your days of vanity: for that is your portion in life, and in your labor in which you labor under the sun.
 
@@ -368,7 +368,7 @@
 
 11. I returned, and saw under the sun, that the race is not to the swift, nor the battle to the strong, neither yet bread to the wise, nor yet riches to men of understanding, nor yet favor to men of skill; but time and chance happen to them all.
 
-12. For man also doesn`t know his time. As the fish that are taken in an evil net, and as the birds that are caught in the snare, even so are the sons of men snared in an evil time, when it falls suddenly on them.
+12. For man also doesn't know his time. As the fish that are taken in an evil net, and as the birds that are caught in the snare, even so are the sons of men snared in an evil time, when it falls suddenly on them.
 
 13. I have also seen wisdom under the sun in this way, and it seemed great to me.
 
@@ -376,7 +376,7 @@
 
 15. Now a poor wise man was found in it, and he by his wisdom delivered the city; yet no man remembered that same poor man.
 
-16. Then said I, Wisdom is better than strength. Nevertheless the poor man`s wisdom is despised, and his words are not heard.
+16. Then said I, Wisdom is better than strength. Nevertheless the poor man's wisdom is despised, and his words are not heard.
 
 17. The words of the wise heard in quiet are better than the cry of him who rules among fools.
 
@@ -387,11 +387,11 @@
 
 1. Dead flies cause the oil of the perfumer to send forth an evil odor; so does a little folly outweigh wisdom and honor.
 
-2. A wise man`s heart is at his right hand, but a fool`s heart at his left.
+2. A wise man's heart is at his right hand, but a fool's heart at his left.
 
 3. Yes also, when the fool walks by the way, his understanding fails him, and he says to everyone that he is a fool.
 
-4. If the spirit of the ruler rises up against you, don`t leave your place; for gentleness lays great offenses to rest.
+4. If the spirit of the ruler rises up against you, don't leave your place; for gentleness lays great offenses to rest.
 
 5. There is an evil which I have seen under the sun, the sort of error which proceeds from the ruler.
 
@@ -403,17 +403,17 @@
 
 9. Whoever carves out stones may be injured by them. Whoever splits wood may be endangered thereby.
 
-10. If the axe is blunt, and one doesn`t sharpen the edge, then he must use more strength; but skill brings success.
+10. If the axe is blunt, and one doesn't sharpen the edge, then he must use more strength; but skill brings success.
 
-11. If the snake bites before it is charmed, then is there no profit for the charmer`s tongue.
+11. If the snake bites before it is charmed, then is there no profit for the charmer's tongue.
 
-12. The words of a wise man`s mouth are gracious; but a fool is swallowed by his own lips.
+12. The words of a wise man's mouth are gracious; but a fool is swallowed by his own lips.
 
 13. The beginning of the words of his mouth is foolishness; and the end of his talk is mischievous madness.
 
-14. A fool also multiplies words.     Man doesn`t know what will be; and that which will be after him, who can tell him?
+14. A fool also multiplies words.     Man doesn't know what will be; and that which will be after him, who can tell him?
 
-15. The labor of fools wearies every one of them; for he doesn`t know how to go to the city.
+15. The labor of fools wearies every one of them; for he doesn't know how to go to the city.
 
 16. Woe to you, land, when your king is a child,    and your princes eat in the morning!
 
@@ -423,22 +423,22 @@
 
 19. A feast is made for laughter,    and wine makes the life glad;    and money is the answer for all things.
 
-20. Don`t curse the king, no, not in your thoughts;    and don`t curse the rich in your bedchamber:    for a bird of the sky may carry your voice,    and that which has wings may tell the matter.
+20. Don't curse the king, no, not in your thoughts;    and don't curse the rich in your bedchamber:    for a bird of the sky may carry your voice,    and that which has wings may tell the matter.
 
 
 ## Chapter 11
 
 1. Cast your bread on the waters;    for you shall find it after many days.
 
-2. Give a portion to seven, yes, even to eight;    for you don`t know what evil will be on the earth.
+2. Give a portion to seven, yes, even to eight;    for you don't know what evil will be on the earth.
 
 3. If the clouds are full of rain, they empty themselves on the       earth;    and if a tree falls toward the south, or toward the north,    in the place where the tree falls, there shall it be.
 
-4. He who observes the wind won`t sow;    and he who regards the clouds won`t reap.
+4. He who observes the wind won't sow;    and he who regards the clouds won't reap.
 
-5. As you don`t know what is the way of the wind,    nor how the bones grow in the womb of her who is with child;    even so you don`t know the work of God who does all.
+5. As you don't know what is the way of the wind,    nor how the bones grow in the womb of her who is with child;    even so you don't know the work of God who does all.
 
-6. In the morning sow your seed,    and in the evening don`t withhold your hand;    for you don`t know which will prosper, whether this or that,    or whether they both will be equally good.
+6. In the morning sow your seed,    and in the evening don't withhold your hand;    for you don't know which will prosper, whether this or that,    or whether they both will be equally good.
 
 7. Truly the light is sweet,    and a pleasant thing it is for the eyes to see the sun.
 

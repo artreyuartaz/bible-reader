@@ -12,7 +12,7 @@
 
 5. This is the message which we have heard from him and announce to you, that God is light, and in him is no darkness at all.
 
-6. If we say that we have fellowship with him and walk in the darkness, we lie, and don`t tell the truth.
+6. If we say that we have fellowship with him and walk in the darkness, we lie, and don't tell the truth.
 
 7. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus Christ, his Son, cleanses us from all sin.
 
@@ -20,7 +20,7 @@
 
 9. If we confess our sins, he is faithful and righteous to forgive us the sins, and to cleanse us from all unrighteousness.
 
-10. If we say that we haven`t sinned, we make him a liar, and his word is not in us.
+10. If we say that we haven't sinned, we make him a liar, and his word is not in us.
 
 
 ## Chapter 2
@@ -31,9 +31,9 @@
 
 3. This is how we know that we know him: if we keep his commandments.
 
-4. One who says, "I know him," and doesn`t keep his commandments, is a liar, and the truth isn`t in him.
+4. One who says, "I know him," and doesn't keep his commandments, is a liar, and the truth isn't in him.
 
-5. But whoever keeps his word, God`s love has most certainly been perfected in him. This is how we know that we are in him:
+5. But whoever keeps his word, God's love has most certainly been perfected in him. This is how we know that we are in him:
 
 6. he who says he remains in him ought himself also to walk just like he walked.
 
@@ -45,31 +45,31 @@
 
 10. He who loves his brother remains in the light, and there is no occasion for stumbling in him.
 
-11. But he who hates his brother is in the darkness, and walks in the darkness, and doesn`t know where he is going, because the darkness has blinded his eyes.
+11. But he who hates his brother is in the darkness, and walks in the darkness, and doesn't know where he is going, because the darkness has blinded his eyes.
 
-12. I write to you, little children, because your sins are forgiven you for his name`s sake.
+12. I write to you, little children, because your sins are forgiven you for his name's sake.
 
 13. I write to you, fathers, because you know him who is from the beginning.     I write to you, young men, because you have overcome the evil one.     I write to you, little children, because you know the Father.
 
 14. I have written to you, fathers, because you know him who is from the beginning.     I have written to you, young men, because you are strong, and the word of God remains in you, and you have overcome the evil one.
 
-15. Don`t love the world, neither the things that are in the world. If anyone loves the world, the Father`s love isn`t in him.
+15. Don't love the world, neither the things that are in the world. If anyone loves the world, the Father's love isn't in him.
 
-16. For all that is in the world, the lust of the flesh, the lust of the eyes, and the pride of life, isn`t the Father`s, but is the world`s.
+16. For all that is in the world, the lust of the flesh, the lust of the eyes, and the pride of life, isn't the Father's, but is the world's.
 
-17. The world is passing away with its lusts, but he who does God`s will remains forever.
+17. The world is passing away with its lusts, but he who does God's will remains forever.
 
 18. Little children, these are the end times, and as you heard that the Antichrist is coming, even now many antichrists have arisen. By this we know that it is the final hour.
 
-19. They went out from us, but they didn`t belong to us; for if they had belonged to us, they would have continued with us. But they left, that they might be revealed that none of them belong to us.
+19. They went out from us, but they didn't belong to us; for if they had belonged to us, they would have continued with us. But they left, that they might be revealed that none of them belong to us.
 
 20. You have an anointing from the Holy One, and you all have knowledge.
 
-21. I have not written to you because you don`t know the truth, but because you know it, and because no lie is of the truth.
+21. I have not written to you because you don't know the truth, but because you know it, and because no lie is of the truth.
 
 22. Who is the liar but he who denies that Jesus is the Christ? This is the Antichrist, he who denies the Father and the Son.
 
-23. Whoever denies the Son, the same doesn`t have the Father. He who confesses the Son has the Father also.
+23. Whoever denies the Son, the same doesn't have the Father. He who confesses the Son has the Father also.
 
 24. Therefore, as for you, let that remain in you which you heard from the beginning. If that which you heard from the beginning remains in you, you also will remain in the Son, and in the Father.
 
@@ -77,7 +77,7 @@
 
 26. These things I have written to you concerning those who would lead you astray.
 
-27. As for you, the anointing which you received from him remains in you, and you don`t need for anyone to teach you. But as his anointing teaches you concerning all things, and is true, and is no lie, and even as it taught you, you will remain in him.
+27. As for you, the anointing which you received from him remains in you, and you don't need for anyone to teach you. But as his anointing teaches you concerning all things, and is true, and is no lie, and even as it taught you, you will remain in him.
 
 28. Now, little children, remain in him, that when he appears, we may have boldness, and not be ashamed before him at his coming.
 
@@ -86,7 +86,7 @@
 
 ## Chapter 3
 
-1. Behold, how great a love the Father has bestowed on us, that we should be called children of God! For this cause the world doesn`t know us, because it didn`t know him.
+1. Behold, how great a love the Father has bestowed on us, that we should be called children of God! For this cause the world doesn't know us, because it didn't know him.
 
 2. Beloved, now we are children of God, and it is not yet revealed what we will be. But we know that, when he is revealed, we will be like him; for we will see him just as he is.
 
@@ -96,37 +96,37 @@
 
 5. You know that he was revealed to take away our sins, and in him is no sin.
 
-6. Whoever remains in him doesn`t sin. Whoever sins hasn`t seen him, neither knows him.
+6. Whoever remains in him doesn't sin. Whoever sins hasn't seen him, neither knows him.
 
 7. Little children, let no one lead you astray. He who does righteousness is righteous, even as he is righteous.
 
 8. He who sins is of the devil, for the devil has been sinning from the beginning. To this end the Son of God was revealed, that he might destroy the works of the devil.
 
-9. Whoever is born of God doesn`t commit sin, because his seed remains in him; and he can`t sin, because he is born of God.
+9. Whoever is born of God doesn't commit sin, because his seed remains in him; and he can't sin, because he is born of God.
 
-10. In this the children of God are revealed, and the children of the devil. Whoever doesn`t do righteousness is not of God, neither is he who doesn`t love his brother.
+10. In this the children of God are revealed, and the children of the devil. Whoever doesn't do righteousness is not of God, neither is he who doesn't love his brother.
 
 11. For this is the message which you heard from the beginning, that we should love one another;
 
-12. unlike Cain, who was of the evil one, and killed his brother. Why did he kill him? Because his works were evil, and his brother`s righteous.
+12. unlike Cain, who was of the evil one, and killed his brother. Why did he kill him? Because his works were evil, and his brother's righteous.
 
-13. Don`t be surprised, my brothers, if the world hates you.
+13. Don't be surprised, my brothers, if the world hates you.
 
-14. We know that we have passed out of death into life, because we love the brothers. He who doesn`t love his brother remains in death.
+14. We know that we have passed out of death into life, because we love the brothers. He who doesn't love his brother remains in death.
 
 15. Whoever hates his brother is a murderer, and you know that no murderer has eternal life remaining in him.
 
 16. By this we know love, because he laid down his life for us. And we ought to lay down our lives for the brothers.
 
-17. But whoever has the world`s goods, and sees his brother in need, and closes his heart of compassion against him, how does the love of God remain in him?
+17. But whoever has the world's goods, and sees his brother in need, and closes his heart of compassion against him, how does the love of God remain in him?
 
-18. My little children, let`s not love in word only, neither with the tongue only, but in deed and truth.
+18. My little children, let's not love in word only, neither with the tongue only, but in deed and truth.
 
 19. And by this we know that we are of the truth, and persuade our hearts before him,
 
 20. because if our heart condemns us, God is greater than our heart, and knows all things.
 
-21. Beloved, if our hearts don`t condemn us, we have boldness toward God;
+21. Beloved, if our hearts don't condemn us, we have boldness toward God;
 
 22. and whatever we ask, we receive from him, because we keep his commandments and do the things that are pleasing in his sight.
 
@@ -137,23 +137,23 @@
 
 ## Chapter 4
 
-1. Beloved, don`t believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world.
+1. Beloved, don't believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world.
 
 2. By this you know the Spirit of God: every spirit who confesses that Jesus Christ has come in the flesh is of God,
 
-3. and every spirit who doesn`t confess that Jesus Christ has come in the flesh is not of God, and this is the spirit of the Antichrist, of whom you have heard that it comes. Now it is in the world already.
+3. and every spirit who doesn't confess that Jesus Christ has come in the flesh is not of God, and this is the spirit of the Antichrist, of whom you have heard that it comes. Now it is in the world already.
 
 4. You are of God, little children, and have overcome them; because greater is he who is in you than he who is in the world.
 
 5. They are of the world. Therefore they speak of the world, and the world hears them.
 
-6. We are of God. He who knows God listens to us. He who is not of God doesn`t listen to us. By this we know the spirit of truth, and the spirit of error.
+6. We are of God. He who knows God listens to us. He who is not of God doesn't listen to us. By this we know the spirit of truth, and the spirit of error.
 
 7. Beloved, let us love one another, for love is of God; and everyone who loves is born of God, and knows God.
 
-8. He who doesn`t love doesn`t know God, for God is love.
+8. He who doesn't love doesn't know God, for God is love.
 
-9. By this God`s love was revealed in us, that God has sent his one and only Son into the world that we might live through him.
+9. By this God's love was revealed in us, that God has sent his one and only Son into the world that we might live through him.
 
 10. In this is love, not that we loved God, but that he loved us, and sent his Son as the atoning sacrifice for our sins.
 
@@ -175,7 +175,7 @@
 
 19. We love him, because he first loved us.
 
-20. If a man says, "I love God," and hates his brother, he is a liar; for he who doesn`t love his brother whom he has seen, how can he love God whom he has not seen?
+20. If a man says, "I love God," and hates his brother, he is a liar; for he who doesn't love his brother whom he has seen, how can he love God whom he has not seen?
 
 21. This commandment we have from him, that he who loves God should also love his brother.
 
@@ -198,13 +198,13 @@
 
 8. the Spirit, the water, and the blood; and the three agree as one.
 
-9. If we receive the witness of men, the witness of God is greater; for this is God`s testimony which he has testified concerning his Son.
+9. If we receive the witness of men, the witness of God is greater; for this is God's testimony which he has testified concerning his Son.
 
-10. He who believes in the Son of God has the testimony in himself. He who doesn`t believe God has made him a liar, because he has not believed in the testimony that God has given concerning his Son.
+10. He who believes in the Son of God has the testimony in himself. He who doesn't believe God has made him a liar, because he has not believed in the testimony that God has given concerning his Son.
 
 11. The testimony is this, that God gave to us eternal life, and this life is in his Son.
 
-12. He who has the Son has the life. He who doesn`t have God`s Son doesn`t have the life.
+12. He who has the Son has the life. He who doesn't have God's Son doesn't have the life.
 
 13. These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may continue to believe in the name of the Son of God.
 
@@ -212,11 +212,11 @@
 
 15. And if we know that he listens to us, whatever we ask, we know that we have the petitions which we have asked of him.
 
-16. If anyone sees his brother sinning a sin not leading to death, he shall ask, and God will give him life for those who sin not leading to death. There is a sin leading to death. I don`t say that he should make a request concerning this.
+16. If anyone sees his brother sinning a sin not leading to death, he shall ask, and God will give him life for those who sin not leading to death. There is a sin leading to death. I don't say that he should make a request concerning this.
 
 17. All unrighteousness is sin, and there is a sin not leading to death.
 
-18. We know that whoever is born of God doesn`t sin, but he who was born of God keeps himself, and the evil one doesn`t touch him.
+18. We know that whoever is born of God doesn't sin, but he who was born of God keeps himself, and the evil one doesn't touch him.
 
 19. We know that we are of God, and the whole world lies in the power of the evil one.
 

@@ -12,11 +12,11 @@
 
 5. "Before I formed you in the belly, I knew you. Before you came forth out of the womb, I sanctified you. I have appointed you a prophet to the nations."
 
-6. Then I said, "Ah, Lord Yahweh! Behold, I don`t know how to speak; for I am a child."
+6. Then I said, "Ah, Lord Yahweh! Behold, I don't know how to speak; for I am a child."
 
-7. But Yahweh said to me, Don`t say, I am a child; for to whoever I shall send you, you shall go, and whatever I shall command you, you shall speak.
+7. But Yahweh said to me, Don't say, I am a child; for to whoever I shall send you, you shall go, and whatever I shall command you, you shall speak.
 
-8. Don`t be afraid because of them; for I am with you to deliver you, says Yahweh.
+8. Don't be afraid because of them; for I am with you to deliver you, says Yahweh.
 
 9. Then Yahweh put forth his hand, and touched my mouth; and Yahweh said to me, Behold, I have put my words in your mouth:
 
@@ -34,7 +34,7 @@
 
 16. I will utter my judgments against them touching all their wickedness, in that they have forsaken me, and have burned incense to other gods, and worshiped the works of their own hands.
 
-17. You therefore gird up your waist, and arise, and speak to them all that I command you: don`t be dismayed at them, lest I dismay you before them.
+17. You therefore gird up your waist, and arise, and speak to them all that I command you: don't be dismayed at them, lest I dismay you before them.
 
 18. For, behold, I have made you this day a fortified city, and an iron pillar, and bronze walls, against the whole land, against the kings of Judah, against its princes, against its priests, and against the people of the land.
 
@@ -57,9 +57,9 @@
 
 7. I brought you into a plentiful land, to eat its fruit and its goodness; but when you entered, you defiled my land, and made my heritage an abomination.
 
-8. The priests didn`t say, Where is Yahweh? and those who handle the law didn`t know me: the rulers also transgressed against me, and the prophets prophesied by Baal, and walked after things that do not profit.
+8. The priests didn't say, Where is Yahweh? and those who handle the law didn't know me: the rulers also transgressed against me, and the prophets prophesied by Baal, and walked after things that do not profit.
 
-9. Therefore I will yet contend with you, says Yahweh, and I will contend with your children`s children.
+9. Therefore I will yet contend with you, says Yahweh, and I will contend with your children's children.
 
 10. For pass over to the islands of Kittim, and see; and send to Kedar, and consider diligently; and see if there has been such a thing.
 
@@ -75,7 +75,7 @@
 
 16. The children also of Memphis and Tahpanhes have broken the crown of your head.
 
-17. Haven`t you procured this to yourself, in that you have forsaken Yahweh your God, when he led you by the way?
+17. Haven't you procured this to yourself, in that you have forsaken Yahweh your God, when he led you by the way?
 
 18. Now what have you to do in the way to Egypt, to drink the waters of the Shihor? or what have you to do in the way to Assyria, to drink the waters of the River?
 
@@ -120,11 +120,11 @@
 
 ## Chapter 3
 
-1. They say, If a man puts away his wife, and she goes from him, and become another man`s, will he return to her again? Won`t that land be greatly polluted? But you have played the prostitute with many lovers; yet return again to me, says Yahweh.
+1. They say, If a man puts away his wife, and she goes from him, and become another man's, will he return to her again? Won't that land be greatly polluted? But you have played the prostitute with many lovers; yet return again to me, says Yahweh.
 
 2. Lift up your eyes to the bare heights, and see! Where have you not been lain with? By the ways have you sat for them, as an Arabian in the wilderness; and you have polluted the land with your prostitution and with your wickedness.
 
-3. Therefore the showers have been withheld, and there has been no latter rain; yet you have a prostitute`s forehead, you refused to be ashamed.
+3. Therefore the showers have been withheld, and there has been no latter rain; yet you have a prostitute's forehead, you refused to be ashamed.
 
 4. Will you not from this time cry to me, My Father, you are the guide of my youth?
 
@@ -132,9 +132,9 @@
 
 6. Moreover Yahweh said to me in the days of Josiah the king, Have you seen that which backsliding Israel has done? she is gone up on every high mountain and under every green tree, and there has played the prostitute.
 
-7. I said after she had done all these things, She will return to me; but she didn`t return: and her treacherous sister Judah saw it.
+7. I said after she had done all these things, She will return to me; but she didn't return: and her treacherous sister Judah saw it.
 
-8. I saw, when, for this very cause that backsliding Israel had committed adultery, I had put her away and given her a bill of divorce, yet treacherous Judah, her sister, didn`t fear; but she also went and played the prostitute.
+8. I saw, when, for this very cause that backsliding Israel had committed adultery, I had put her away and given her a bill of divorce, yet treacherous Judah, her sister, didn't fear; but she also went and played the prostitute.
 
 9. It happened through the lightness of her prostitution, that the land was polluted, and she committed adultery with stones and with stocks.
 
@@ -177,17 +177,17 @@
 
 2. and you shall swear, As Yahweh lives, in truth, in justice, and in righteousness; and the nations shall bless themselves in him, and in him shall they glory.
 
-3. For thus says Yahweh to the men of Judah and to Jerusalem, Break up your fallow ground, and don`t sow among thorns.
+3. For thus says Yahweh to the men of Judah and to Jerusalem, Break up your fallow ground, and don't sow among thorns.
 
 4. Circumcise yourselves to Yahweh, and take away the foreskins of your heart, you men of Judah and inhabitants of Jerusalem; lest my wrath go forth like fire, and burn so that none can quench it, because of the evil of your doings.
 
 5. Declare in Judah, and publish in Jerusalem; and say, Blow the trumpet in the land! Cry aloud and say, Assemble yourselves, and let us go into the fortified cities.
 
-6. Set up a standard toward Zion: flee for safety, don`t stay; for I will bring evil from the north, and a great destruction.
+6. Set up a standard toward Zion: flee for safety, don't stay; for I will bring evil from the north, and a great destruction.
 
 7. A lion is gone up from his thicket, and a destroyer of nations; he is on his way, he is gone forth from his place, to make your land desolate, that your cities be laid waste, without inhabitant.
 
-8. For this gird yourself with sackcloth, lament and wail; for the fierce anger of Yahweh hasn`t turned back from us.
+8. For this gird yourself with sackcloth, lament and wail; for the fierce anger of Yahweh hasn't turned back from us.
 
 9. It shall happen at that day, says Yahweh, that the heart of the king shall perish, and the heart of the princes; and the priests shall be astonished, and the prophets shall wonder.
 
@@ -209,13 +209,13 @@
 
 18. Your way and your doings have procured these things to you; this is your wickedness; for it is bitter, for it reaches to your heart.
 
-19. My anguish, my anguish! I am pained at my very heart; my heart is disquieted in me; I can`t hold my peace; because you have heard, O my soul, the sound of the trumpet, the alarm of war.
+19. My anguish, my anguish! I am pained at my very heart; my heart is disquieted in me; I can't hold my peace; because you have heard, O my soul, the sound of the trumpet, the alarm of war.
 
 20. Destruction on destruction is cried; for the whole land is laid waste: suddenly are my tents destroyed, [and] my curtains in a moment.
 
 21. How long shall I see the standard, and hear the sound of the trumpet?
 
-22. For my people are foolish, they don`t know me; they are foolish children, and they have no understanding; they are wise to do evil, but to do good they have no knowledge.
+22. For my people are foolish, they don't know me; they are foolish children, and they have no understanding; they are wise to do evil, but to do good they have no knowledge.
 
 23. I saw the earth, and, behold, it was waste and void; and the heavens, and they had no light.
 
@@ -242,21 +242,21 @@
 
 2. Though they say, As Yahweh lives; surely they swear falsely.
 
-3. O Yahweh, don`t your eyes look on truth? you have stricken them, but they were not grieved; you have consumed them, but they have refused to receive correction: they have made their faces harder than a rock; they have refused to return.
+3. O Yahweh, don't your eyes look on truth? you have stricken them, but they were not grieved; you have consumed them, but they have refused to receive correction: they have made their faces harder than a rock; they have refused to return.
 
-4. Then I said, Surely these are poor; they are foolish; for they don`t know the way of Yahweh, nor the law of their God:
+4. Then I said, Surely these are poor; they are foolish; for they don't know the way of Yahweh, nor the law of their God:
 
 5. I will get me to the great men, and will speak to them; for they know the way of Yahweh, and the law of their God. But these with one accord have broken the yoke, and burst the bonds.
 
 6. Therefore a lion out of the forest shall kill them, a wolf of the evenings shall destroy them, a leopard shall watch against their cities; everyone who goes out there shall be torn in pieces; because their transgressions are many, [and] their backsliding is increased.
 
-7. How can I pardon you? your children have forsaken me, and sworn by them that are no gods: when I had fed them to the full, they committed adultery, and assembled themselves in troops at the prostitutes` houses.
+7. How can I pardon you? your children have forsaken me, and sworn by them that are no gods: when I had fed them to the full, they committed adultery, and assembled themselves in troops at the prostitutes' houses.
 
-8. They were as fed horses roaming at large; everyone neighed after his neighbor`s wife.
+8. They were as fed horses roaming at large; everyone neighed after his neighbor's wife.
 
 9. Shall I not visit for these things? says Yahweh; and shall not my soul be avenged on such a nation as this?
 
-10. Go up on her walls, and destroy; but don`t make a full end: take away her branches; for they are not Yahweh`s.
+10. Go up on her walls, and destroy; but don't make a full end: take away her branches; for they are not Yahweh's.
 
 11. For the house of Israel and the house of Judah have dealt very treacherously against me, says Yahweh.
 
@@ -266,7 +266,7 @@
 
 14. Therefore thus says Yahweh, the God of Armies, Because you speak this word, behold, I will make my words in your mouth fire, and this people wood, and it shall devour them.
 
-15. Behold, I will bring a nation on you from far, house of Israel, says Yahweh: it is a mighty nation, it is an ancient nation, a nation whose language you don`t know, neither understand what they say.
+15. Behold, I will bring a nation on you from far, house of Israel, says Yahweh: it is a mighty nation, it is an ancient nation, a nation whose language you don't know, neither understand what they say.
 
 16. Their quiver is an open tomb, they are all mighty men.
 
@@ -278,9 +278,9 @@
 
 20. Declare this in the house of Jacob, and publish it in Judah, saying,
 
-21. Hear now this, foolish people, and without understanding; who have eyes, and don`t see; who have ears, and don`t hear:
+21. Hear now this, foolish people, and without understanding; who have eyes, and don't see; who have ears, and don't hear:
 
-22. Don`t you fear me? says Yahweh: won`t you tremble at my presence, who have placed the sand for the bound of the sea, by a perpetual decree, that it can`t pass it? and though its waves toss themselves, yet they can`t prevail; though they roar, yet they can`t pass over it.
+22. Don't you fear me? says Yahweh: won't you tremble at my presence, who have placed the sand for the bound of the sea, by a perpetual decree, that it can't pass it? and though its waves toss themselves, yet they can't prevail; though they roar, yet they can't pass over it.
 
 23. But this people has a revolting and a rebellious heart; they are revolted and gone.
 
@@ -292,7 +292,7 @@
 
 27. As a cage is full of birds, so are their houses full of deceit: therefore they are become great, and grew rich.
 
-28. They are grew fat, they shine: yes, they overpass in deeds of wickedness; they don`t plead the cause, the cause of the fatherless, that they may prosper; and the right of the needy they don`t judge.
+28. They are grew fat, they shine: yes, they overpass in deeds of wickedness; they don't plead the cause, the cause of the fatherless, that they may prosper; and the right of the needy they don't judge.
 
 29. Shall I not visit for these things? says Yahweh; shall not my soul be avenged on such a nation as this?
 
@@ -321,7 +321,7 @@
 
 9. Thus says Yahweh of Armies, They shall thoroughly glean the remnant of Israel as a vine: turn again your hand as a grape gatherer into the baskets.
 
-10. To whom shall I speak and testify, that they may hear? behold, their ear is uncircumcised, and they can`t listen: behold, the word of Yahweh is become to them a reproach; they have no delight in it.
+10. To whom shall I speak and testify, that they may hear? behold, their ear is uncircumcised, and they can't listen: behold, the word of Yahweh is become to them a reproach; they have no delight in it.
 
 11. Therefore I am full of the wrath of Yahweh; I am weary with holding in: pour it out on the children in the street, and on the assembly of young men together; for even the husband with the wife shall be taken, the aged with him who is full of days.
 
@@ -351,7 +351,7 @@
 
 24. We have heard its report; our hands wax feeble: anguish has taken hold of us, [and] pangs as of a woman in travail.
 
-25. Don`t go forth into the field, nor walk by the way; for the sword of the enemy, [and] terror, are on every side.
+25. Don't go forth into the field, nor walk by the way; for the sword of the enemy, [and] terror, are on every side.
 
 26. Daughter of my people, gird yourself with sackcloth, and wallow in ashes! Mourn, as for an only son, most bitter lamentation; for the destroyer shall suddenly come on us.
 
@@ -368,19 +368,19 @@
 
 1. The word that came to Jeremiah from Yahweh, saying,
 
-2. Stand in the gate of Yahweh`s house, and proclaim there this word, and say, Hear the word of Yahweh, all you of Judah, who enter in at these gates to worship Yahweh.
+2. Stand in the gate of Yahweh's house, and proclaim there this word, and say, Hear the word of Yahweh, all you of Judah, who enter in at these gates to worship Yahweh.
 
 3. Thus says Yahweh of Armies, the God of Israel, Amend your ways and your doings, and I will cause you to dwell in this place.
 
-4. Don`t trust in lying words, saying, The temple of Yahweh, the temple of Yahweh, the temple of Yahweh, are these.
+4. Don't trust in lying words, saying, The temple of Yahweh, the temple of Yahweh, the temple of Yahweh, are these.
 
 5. For if you thoroughly amend your ways and your doings; if you thoroughly execute justice between a man and his neighbor;
 
-6. if you don`t oppress the foreigner, the fatherless, and the widow, and don`t shed innocent blood in this place, neither walk after other gods to your own hurt:
+6. if you don't oppress the foreigner, the fatherless, and the widow, and don't shed innocent blood in this place, neither walk after other gods to your own hurt:
 
 7. then will I cause you to dwell in this place, in the land that I gave to your fathers, from of old even forevermore.
 
-8. Behold, you trust in lying words, that can`t profit.
+8. Behold, you trust in lying words, that can't profit.
 
 9. Will you steal, murder, and commit adultery, and swear falsely, and burn incense to Baal, and walk after other gods that you have not known,
 
@@ -390,15 +390,15 @@
 
 12. But go now to my place which was in Shiloh, where I caused my name to dwell at the first, and see what I did to it for the wickedness of my people Israel.
 
-13. Now, because you have done all these works, says Yahweh, and I spoke to you, rising up early and speaking, but you didn`t hear; and I called you, but you didn`t answer:
+13. Now, because you have done all these works, says Yahweh, and I spoke to you, rising up early and speaking, but you didn't hear; and I called you, but you didn't answer:
 
 14. therefore will I do to the house which is called by my name, in which you trust, and to the place which I gave to you and to your fathers, as I did to Shiloh.
 
 15. I will cast you out of my sight, as I have cast out all your brothers, even the whole seed of Ephraim.
 
-16. Therefore don`t pray for this people, neither lift up a cry nor prayer for them, neither make intercession to me; for I will not hear you.
+16. Therefore don't pray for this people, neither lift up a cry nor prayer for them, neither make intercession to me; for I will not hear you.
 
-17. Don`t you see what they do in the cities of Judah and in the streets of Jerusalem?
+17. Don't you see what they do in the cities of Judah and in the streets of Jerusalem?
 
 18. The children gather wood, and the fathers kindle the fire, and the women knead the dough, to make cakes to the queen of the sky, and to pour out drink offerings to other gods, that they may provoke me to anger.
 
@@ -408,15 +408,15 @@
 
 21. Thus says Yahweh of Armies, the God of Israel: Add your burnt offerings to your sacrifices, and eat meat.
 
-22. For I didn`t speak to your fathers, nor command them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices:
+22. For I didn't speak to your fathers, nor command them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices:
 
 23. but this thing I commanded them, saying, Listen to my voice, and I will be your God, and you shall be my people; and walk in all the way that I command you, that it may be well with you.
 
-24. But they didn`t listen nor turn their ear, but walked in [their own] counsels [and] in the stubbornness of their evil heart, and went backward, and not forward.
+24. But they didn't listen nor turn their ear, but walked in [their own] counsels [and] in the stubbornness of their evil heart, and went backward, and not forward.
 
 25. Since the day that your fathers came forth out of the land of Egypt to this day, I have sent to you all my servants the prophets, daily rising up early and sending them:
 
-26. yet they didn`t listen to me, nor inclined their ear, but made their neck stiff: they did worse than their fathers.
+26. yet they didn't listen to me, nor inclined their ear, but made their neck stiff: they did worse than their fathers.
 
 27. You shall speak all these words to them; but they will not listen to you: you shall also call to them; but they will not answer you.
 
@@ -426,7 +426,7 @@
 
 30. For the children of Judah have done that which is evil in my sight, says Yahweh: they have set their abominations in the house which is called by my name, to defile it.
 
-31. They have built the high places of Topheth, which is in the valley of the son of Hinnom, to burn their sons and their daughters in the fire; which I didn`t command, nor did it come into my mind.
+31. They have built the high places of Topheth, which is in the valley of the son of Hinnom, to burn their sons and their daughters in the fire; which I didn't command, nor did it come into my mind.
 
 32. Therefore, behold, the days come, says Yahweh, that it shall no more be called Topheth, nor The valley of the son of Hinnom, but The valley of Slaughter: for they shall bury in Topheth, until there be no place [to bury].
 
@@ -447,9 +447,9 @@
 
 5. Why then is this people of Jerusalem slidden back by a perpetual backsliding? they hold fast deceit, they refuse to return.
 
-6. I listened and heard, but they didn`t speak aright: no man repents him of his wickedness, saying, What have I done? everyone turns to his course, as a horse that rushes headlong in the battle.
+6. I listened and heard, but they didn't speak aright: no man repents him of his wickedness, saying, What have I done? everyone turns to his course, as a horse that rushes headlong in the battle.
 
-7. Yes, the stork in the sky knows her appointed times; and the turtledove and the swallow and the crane observe the time of their coming; but my people don`t know Yahweh`s law.
+7. Yes, the stork in the sky knows her appointed times; and the turtledove and the swallow and the crane observe the time of their coming; but my people don't know Yahweh's law.
 
 8. How do you say, We are wise, and the law of Yahweh is with us? But, behold, the false pen of the scribes has worked falsely.
 
@@ -473,13 +473,13 @@
 
 18. Oh that I could comfort myself against sorrow! My heart is faint within me.
 
-19. Behold, the voice of the cry of the daughter of my people from a land that is very far off: isn`t Yahweh in Zion? Isn`t her King in her? Why have they provoked me to anger with their engraved images, and with foreign vanities?
+19. Behold, the voice of the cry of the daughter of my people from a land that is very far off: isn't Yahweh in Zion? Isn't her King in her? Why have they provoked me to anger with their engraved images, and with foreign vanities?
 
 20. The harvest is past, the summer is ended, and we are not saved.
 
 21. For the hurt of the daughter of my people am I hurt: I mourn; dismay has taken hold on me.
 
-22. Is there no balm in Gilead? is there no physician there? why then isn`t the health of the daughter of my people recovered?
+22. Is there no balm in Gilead? is there no physician there? why then isn't the health of the daughter of my people recovered?
 
 
 ## Chapter 9
@@ -488,9 +488,9 @@
 
 2. Oh that I had in the wilderness a lodging place of wayfaring men; that I might leave my people, and go from them! for they are all adulterers, an assembly of treacherous men.
 
-3. They bend their tongue, [as it were] their bow, for falsehood; and they are grown strong in the land, but not for truth: for they proceed from evil to evil, and they don`t know me, says Yahweh.
+3. They bend their tongue, [as it were] their bow, for falsehood; and they are grown strong in the land, but not for truth: for they proceed from evil to evil, and they don't know me, says Yahweh.
 
-4. Take heed everyone of his neighbor, and don`t trust in any brother; for every brother will utterly supplant, and every neighbor will go about with slanders.
+4. Take heed everyone of his neighbor, and don't trust in any brother; for every brother will utterly supplant, and every neighbor will go about with slanders.
 
 5. They will deceive everyone his neighbor, and will not speak the truth: they have taught their tongue to speak lies; they weary themselves to commit iniquity.
 
@@ -528,7 +528,7 @@
 
 22. Speak, Thus says Yahweh, The dead bodies of men shall fall as dung on the open field, and as the handful after the harvester; and none shall gather [them].
 
-23. Thus says Yahweh, Don`t let the wise man glory in his wisdom, neither let the mighty man glory in his might, don`t let the rich man glory in his riches;
+23. Thus says Yahweh, Don't let the wise man glory in his wisdom, neither let the mighty man glory in his might, don't let the rich man glory in his riches;
 
 24. but let him who glories glory in this, that he has understanding, and knows me, that I am Yahweh who exercises loving kindness, justice, and righteousness, in the earth: for in these things I delight, says Yahweh.
 
@@ -541,13 +541,13 @@
 
 1. Hear the word which Yahweh speaks to you, house of Israel!
 
-2. Thus says Yahweh, "Don`t learn the way of the nations, and don`t be dismayed at the signs of the sky; for the nations are dismayed at them.
+2. Thus says Yahweh, "Don't learn the way of the nations, and don't be dismayed at the signs of the sky; for the nations are dismayed at them.
 
 3. For the customs of the peoples are vanity; for one cuts a tree out of the forest, the work of the hands of the workman with the axe.
 
 4. They deck it with silver and with gold; they fasten it with nails and with hammers, that it not move.
 
-5. They are like a palm tree, of turned work, and don`t speak: they must be carried, because they can`t go. Don`t be afraid of them; for they can`t do evil, neither is it in them to do good."
+5. They are like a palm tree, of turned work, and don't speak: they must be carried, because they can't go. Don't be afraid of them; for they can't do evil, neither is it in them to do good."
 
 6. There is none like you, Yahweh; you are great, and your name is great in might.
 
@@ -587,7 +587,7 @@
 
 24. Yahweh, correct me, but in measure: not in your anger, lest you bring me to nothing.
 
-25. Pour out your wrath on the nations that don`t know you, and on the families that don`t call on your name: for they have devoured Jacob, yes, they have devoured him and consumed him, and have laid waste his habitation.
+25. Pour out your wrath on the nations that don't know you, and on the families that don't call on your name: for they have devoured Jacob, yes, they have devoured him and consumed him, and have laid waste his habitation.
 
 
 ## Chapter 11
@@ -596,7 +596,7 @@
 
 2. Hear the words of this covenant, and speak to the men of Judah, and to the inhabitants of Jerusalem;
 
-3. and say to them, Thus says Yahweh, the God of Israel: Cursed is the man who doesn`t hear the words of this covenant,
+3. and say to them, Thus says Yahweh, the God of Israel: Cursed is the man who doesn't hear the words of this covenant,
 
 4. which I commanded your fathers in the day that I brought them forth out of the land of Egypt, out of the iron furnace, saying, Obey my voice, and do them, according to all which I command you: so you shall be my people, and I will be your God;
 
@@ -606,7 +606,7 @@
 
 7. For I earnestly protested to your fathers in the day that I brought them up out of the land of Egypt, even to this day, rising early and protesting, saying, Obey my voice.
 
-8. Yet they didn`t obey, nor turn their ear, but walked everyone in the stubbornness of their evil heart: therefore I brought on them all the words of this covenant, which I commanded them to do, but they didn`t do them.
+8. Yet they didn't obey, nor turn their ear, but walked everyone in the stubbornness of their evil heart: therefore I brought on them all the words of this covenant, which I commanded them to do, but they didn't do them.
 
 9. Yahweh said to me, A conspiracy is found among the men of Judah, and among the inhabitants of Jerusalem.
 
@@ -618,7 +618,7 @@
 
 13. For according to the number of your cities are your gods, Judah; and according to the number of the streets of Jerusalem have you set up altars to the shameful thing, even altars to burn incense to Baal.
 
-14. Therefore don`t pray for this people, neither lift up cry nor prayer for them; for I will not hear them in the time that they cry to me because of their trouble.
+14. Therefore don't pray for this people, neither lift up cry nor prayer for them; for I will not hear them in the time that they cry to me because of their trouble.
 
 15. What has my beloved to do in my house, seeing she has worked lewdness [with] many, and the holy flesh is passed from you? when you do evil, then you rejoice.
 
@@ -628,7 +628,7 @@
 
 18. Yahweh gave me knowledge of it, and I knew it: then you showed me their doings.
 
-19. But I was like a gentle lamb that is led to the slaughter; and I didn`t know that they had devised devices against me, [saying], Let us destroy the tree with its fruit, and let us cut him off from the land of the living, that his name may be no more remembered.
+19. But I was like a gentle lamb that is led to the slaughter; and I didn't know that they had devised devices against me, [saying], Let us destroy the tree with its fruit, and let us cut him off from the land of the living, that his name may be no more remembered.
 
 20. But, Yahweh of Armies, who judges righteously, who tests the heart and the mind, I shall see your vengeance on them; for to you have I revealed my cause.
 
@@ -651,7 +651,7 @@
 
 5. If you have run with the footmen, and they have wearied you, then how can you contend with horses? and though in a land of peace you are secure, yet how will you do in the pride of the Jordan?
 
-6. For even your brothers, and the house of your father, even they have dealt treacherously with you; even they have cried aloud after you: don`t believe them, though they speak beautiful words to you.
+6. For even your brothers, and the house of your father, even they have dealt treacherously with you; even they have cried aloud after you: don't believe them, though they speak beautiful words to you.
 
 7. I have forsaken my house, I have cast off my heritage; I have given the dearly beloved of my soul into the hand of her enemies.
 
@@ -678,7 +678,7 @@
 
 ## Chapter 13
 
-1. Thus says Yahweh to me, Go, and buy yourself a linen belt, and put it on your waist, and don`t put it in water.
+1. Thus says Yahweh to me, Go, and buy yourself a linen belt, and put it on your waist, and don't put it in water.
 
 2. So I bought a belt according to the word of Yahweh, and put it on my waist.
 
@@ -702,15 +702,15 @@
 
 12. Therefore you shall speak to them this word: Thus says Yahweh, the God of Israel, Every bottle shall be filled with wine: and they shall tell you, Do we not certainly know that every bottle shall be filled with wine?
 
-13. Then you shall tell them, Thus says Yahweh, Behold, I will fill all the inhabitants of this land, even the kings who sit on David`s throne, and the priests, and the prophets, and all the inhabitants of Jerusalem, with drunkenness.
+13. Then you shall tell them, Thus says Yahweh, Behold, I will fill all the inhabitants of this land, even the kings who sit on David's throne, and the priests, and the prophets, and all the inhabitants of Jerusalem, with drunkenness.
 
 14. I will dash them one against another, even the fathers and the sons together, says Yahweh: I will not pity, nor spare, nor have compassion, that I should not destroy them.
 
-15. Hear, and give ear; don`t be proud; for Yahweh has spoken.
+15. Hear, and give ear; don't be proud; for Yahweh has spoken.
 
 16. Give glory to Yahweh your God, before he causes darkness, and before your feet stumble on the dark mountains, and, while you look for light, he turns it into the shadow of death, and makes it gross darkness.
 
-17. But if you will not hear it, my soul shall weep in secret for [your] pride; and my eye shall weep sore, and run down with tears, because Yahweh`s flock is taken captive.
+17. But if you will not hear it, my soul shall weep in secret for [your] pride; and my eye shall weep sore, and run down with tears, because Yahweh's flock is taken captive.
 
 18. Say to the king and to the queen mother, Humble yourselves, sit down; for your headdresses have come down, even the crown of your glory.
 
@@ -747,23 +747,23 @@
 
 6. The wild donkeys stand on the bare heights, they pant for air like jackals; their eyes fail, because there is no herbage.
 
-7. Though our iniquities testify against us, work for your name`s sake, Yahweh; for our backslidings are many; we have sinned against you.
+7. Though our iniquities testify against us, work for your name's sake, Yahweh; for our backslidings are many; we have sinned against you.
 
 8. You hope of Israel, its Savior in the time of trouble, why should you be as a foreigner in the land, and as a wayfaring man who turns aside to stay for a night?
 
-9. Why should you be like a scared man, as a mighty man who can`t save? Yet you, Yahweh, are in the midst of us, and we are called by your name; don`t leave us.
+9. Why should you be like a scared man, as a mighty man who can't save? Yet you, Yahweh, are in the midst of us, and we are called by your name; don't leave us.
 
 10. Thus says Yahweh to this people, Even so have they loved to wander; they have not refrained their feet: therefore Yahweh does not accept them; now he will remember their iniquity, and visit their sins.
 
-11. Yahweh said to me, Don`t pray for this people for [their] good.
+11. Yahweh said to me, Don't pray for this people for [their] good.
 
 12. When they fast, I will not hear their cry; and when they offer burnt offering and meal offering, I will not accept them; but I will consume them by the sword, and by the famine, and by the pestilence.
 
 13. Then said I, Ah, Lord Yahweh! behold, the prophets tell them, You shall not see the sword, neither shall you have famine; but I will give you assured peace in this place.
 
-14. Then Yahweh said to me, The prophets prophesy lies in my name; I didn`t send them, neither have I commanded them, neither spoke I to them: they prophesy to you a lying vision, and divination, and a thing of nothing, and the deceit of their own heart.
+14. Then Yahweh said to me, The prophets prophesy lies in my name; I didn't send them, neither have I commanded them, neither spoke I to them: they prophesy to you a lying vision, and divination, and a thing of nothing, and the deceit of their own heart.
 
-15. Therefore thus says Yahweh concerning the prophets who prophesy in my name, and I didn`t send them, yet they say, Sword and famine shall not be in this land: By sword and famine shall those prophets be consumed.
+15. Therefore thus says Yahweh concerning the prophets who prophesy in my name, and I didn't send them, yet they say, Sword and famine shall not be in this land: By sword and famine shall those prophets be consumed.
 
 16. The people to whom they prophesy shall be cast out in the streets of Jerusalem because of the famine and the sword; and they shall have none to bury them--them, their wives, nor their sons, nor their daughters: for I will pour their wickedness on them.
 
@@ -775,9 +775,9 @@
 
 20. We acknowledge, Yahweh, our wickedness, and the iniquity of our fathers; for we have sinned against you.
 
-21. Do not abhor [us], for your name`s sake; do not disgrace the throne of your glory: remember, don`t break your covenant with us.
+21. Do not abhor [us], for your name's sake; do not disgrace the throne of your glory: remember, don't break your covenant with us.
 
-22. Are there any among the vanities of the nations that can cause rain? or can the sky give showers? Aren`t you he, Yahweh our God? therefore we will wait for you; for you have made all these things.
+22. Are there any among the vanities of the nations that can cause rain? or can the sky give showers? Aren't you he, Yahweh our God? therefore we will wait for you; for you have made all these things.
 
 
 ## Chapter 15
@@ -794,7 +794,7 @@
 
 6. You have rejected me, says Yahweh, you have gone backward: therefore have I stretched out my hand against you, and destroyed you; I am weary with repenting.
 
-7. I have winnowed them with a fan in the gates of the land; I have bereaved [them] of children, I have destroyed my people; they didn`t return from their ways.
+7. I have winnowed them with a fan in the gates of the land; I have bereaved [them] of children, I have destroyed my people; they didn't return from their ways.
 
 8. Their widows are increased to me above the sand of the seas; I have brought on them against the mother of the young men a destroyer at noonday: I have caused anguish and terrors to fall on her suddenly.
 
@@ -808,13 +808,13 @@
 
 13. Your substance and your treasures will I give for a spoil without price, and that for all your sins, even in all your borders.
 
-14. I will make [them] to pass with your enemies into a land which you don`t know; for a fire is kindled in my anger, which shall burn on you.
+14. I will make [them] to pass with your enemies into a land which you don't know; for a fire is kindled in my anger, which shall burn on you.
 
-15. Yahweh, you know; remember me, and visit me, and avenge me of my persecutors; don`t take me away in your longsuffering: know that for your sake I have suffered reproach.
+15. Yahweh, you know; remember me, and visit me, and avenge me of my persecutors; don't take me away in your longsuffering: know that for your sake I have suffered reproach.
 
 16. Your words were found, and I ate them; and your words were to me a joy and the rejoicing of my heart: for I am called by your name, Yahweh, God of Armies.
 
-17. I didn`t sit in the assembly of those who make merry, nor rejoiced; I sat alone because of your hand; for you have filled me with indignation.
+17. I didn't sit in the assembly of those who make merry, nor rejoiced; I sat alone because of your hand; for you have filled me with indignation.
 
 18. Why is my pain perpetual, and my wound incurable, which refuses to be healed? will you indeed be to me as a deceitful [brook], as waters that fail?
 
@@ -835,7 +835,7 @@
 
 4. They shall die grievous deaths: they shall not be lamented, neither shall they be buried; they shall be as dung on the surface of the ground; and they shall be consumed by the sword, and by famine; and their dead bodies shall be food for the birds of the sky, and for the animals of the earth.
 
-5. For thus says Yahweh, Don`t enter into the house of mourning, neither go to lament, neither bemoan them; for I have taken away my peace from this people, says Yahweh, even loving kindness and tender mercies.
+5. For thus says Yahweh, Don't enter into the house of mourning, neither go to lament, neither bemoan them; for I have taken away my peace from this people, says Yahweh, even loving kindness and tender mercies.
 
 6. Both great and small shall die in this land; they shall not be buried, neither shall men lament for them, nor cut themselves, nor make themselves bald for them;
 
@@ -849,7 +849,7 @@
 
 11. Then you shall tell them, Because your fathers have forsaken me, says Yahweh, and have walked after other gods, and have served them, and have worshiped them, and have forsaken me, and have not kept my law;
 
-12. and you have done evil more than your fathers; for, behold, you walk every one after the stubbornness of his evil heart, so that you don`t listen to me:
+12. and you have done evil more than your fathers; for, behold, you walk every one after the stubbornness of his evil heart, so that you don't listen to me:
 
 13. therefore will I cast you forth out of this land into the land that you have not known, neither you nor your fathers; and there you shall serve other gods day and night; for I will show you no favor.
 
@@ -878,7 +878,7 @@
 
 3. My mountain in the field, I will give your substance and all your treasures for a spoil, [and] your high places, because of sin, throughout all your borders.
 
-4. You, even of yourself, shall discontinue from your heritage that I gave you; and I will cause you to serve your enemies in the land which you don`t know: for you have kindled a fire in my anger which shall burn forever.
+4. You, even of yourself, shall discontinue from your heritage that I gave you; and I will cause you to serve your enemies in the land which you don't know: for you have kindled a fire in my anger which shall burn forever.
 
 5. Thus says Yahweh: Cursed is the man who trusts in man, and makes flesh his arm, and whose heart departs from Yahweh.
 
@@ -904,9 +904,9 @@
 
 16. As for me, I have not hurried from being a shepherd after you; neither have I desired the woeful day; you know: that which came out of my lips was before your face.
 
-17. Don`t be a terror to me: you are my refuge in the day of evil.
+17. Don't be a terror to me: you are my refuge in the day of evil.
 
-18. Let them be disappointed who persecute me, but let not me be disappointed; let them be dismayed, but don`t let me be dismayed; bring on them the day of evil, and destroy them with double destruction.
+18. Let them be disappointed who persecute me, but let not me be disappointed; let them be dismayed, but don't let me be dismayed; bring on them the day of evil, and destroy them with double destruction.
 
 19. Thus said Yahweh to me: Go, and stand in the gate of the children of the people, through which the kings of Judah come in, and by which they go out, and in all the gates of Jerusalem;
 
@@ -916,7 +916,7 @@
 
 22. neither carry forth a burden out of your houses on the Sabbath day holy, neither do any work: but make the Sabbath day, as I commanded your fathers.
 
-23. But they didn`t listen, neither turn their ear, but made their neck stiff, that they might not hear, and might not receive instruction.
+23. But they didn't listen, neither turn their ear, but made their neck stiff, that they might not hear, and might not receive instruction.
 
 24. It shall happen, if you diligently listen to me, says Yahweh, to bring in no burden through the gates of this city on the Sabbath day, but to make the Sabbath day holy, to do no work therein;
 
@@ -931,15 +931,15 @@
 
 1. The word which came to Jeremiah from Yahweh, saying,
 
-2. Arise, and go down to the potter`s house, and there I will cause you to hear my words.
+2. Arise, and go down to the potter's house, and there I will cause you to hear my words.
 
-3. Then I went down to the potter`s house, and behold, he was making a work on the wheels.
+3. Then I went down to the potter's house, and behold, he was making a work on the wheels.
 
 4. When the vessel that he made of the clay was marred in the hand of the potter, he made it again another vessel, as seemed good to the potter to make it.
 
 5. Then the word of Yahweh came to me, saying,
 
-6. House of Israel, can`t I do with you as this potter? says Yahweh. Behold, as the clay in the potter`s hand, so are you in my hand, house of Israel.
+6. House of Israel, can't I do with you as this potter? says Yahweh. Behold, as the clay in the potter's hand, so are you in my hand, house of Israel.
 
 7. At what instant I shall speak concerning a nation, and concerning a kingdom, to pluck up and to break down and to destroy it;
 
@@ -973,20 +973,20 @@
 
 22. Let a cry be heard from their houses, when you shall bring a troop suddenly on them; for they have dug a pit to take me, and hid snares for my feet.
 
-23. Yet, Yahweh, you know all their counsel against me to kill me; don`t forgive their iniquity, neither blot out their sin from your sight; but let them be overthrown before you; deal you with them in the time of your anger.
+23. Yet, Yahweh, you know all their counsel against me to kill me; don't forgive their iniquity, neither blot out their sin from your sight; but let them be overthrown before you; deal you with them in the time of your anger.
 
 
 ## Chapter 19
 
-1. Thus said Yahweh, Go, and buy a potter`s earthen bottle, and [take] of the elders of the people, and of the elders of the priests;
+1. Thus said Yahweh, Go, and buy a potter's earthen bottle, and [take] of the elders of the people, and of the elders of the priests;
 
 2. and go forth to the valley of the son of Hinnom, which is by the entry of the gate Harsith, and proclaim there the words that I shall tell you;
 
 3. and say, Hear the word of Yahweh, kings of Judah, and inhabitants of Jerusalem: thus says Yahweh of Armies, the God of Israel, Behold, I will bring evil on this place, which whoever hears, his ears shall tingle.
 
-4. Because they have forsaken me, and have estranged this place, and have burned incense in it to other gods, that they didn`t know, they and their fathers and the kings of Judah; and have filled this place with the blood of innocents,
+4. Because they have forsaken me, and have estranged this place, and have burned incense in it to other gods, that they didn't know, they and their fathers and the kings of Judah; and have filled this place with the blood of innocents,
 
-5. and have built the high places of Baal, to burn their sons in the fire for burnt offerings to Baal; which I didn`t command, nor spoke it, neither came it into my mind:
+5. and have built the high places of Baal, to burn their sons in the fire for burnt offerings to Baal; which I didn't command, nor spoke it, neither came it into my mind:
 
 6. therefore, behold, the days come, says Yahweh, that this place shall no more be called Topheth, nor The valley of the son of Hinnom, but The valley of Slaughter.
 
@@ -998,13 +998,13 @@
 
 10. Then you shall break the bottle in the sight of the men who go with you,
 
-11. and shall tell them, Thus says Yahweh of Armies: Even so will I break this people and this city, as one breaks a potter`s vessel, that can`t be made whole again; and they shall bury in Topheth, until there be no place to bury.
+11. and shall tell them, Thus says Yahweh of Armies: Even so will I break this people and this city, as one breaks a potter's vessel, that can't be made whole again; and they shall bury in Topheth, until there be no place to bury.
 
 12. Thus will I do to this place, says Yahweh, and to its inhabitants, even making this city as Topheth:
 
 13. and the houses of Jerusalem, and the houses of the kings of Judah, which are defiled, shall be as the place of Topheth, even all the houses on whose roofs they have burned incense to all the army of the sky, and have poured out drink offerings to other gods.
 
-14. Then came Jeremiah from Topheth, where Yahweh had sent him to prophesy; and he stood in the court of Yahweh`s house, and said to all the people:
+14. Then came Jeremiah from Topheth, where Yahweh had sent him to prophesy; and he stood in the court of Yahweh's house, and said to all the people:
 
 15. Thus says Yahweh of Armies, the God of Israel, Behold, I will bring on this city and on all its towns all the evil that I have pronounced against it; because they have made their neck stiff, that they may not hear my words.
 
@@ -1027,7 +1027,7 @@
 
 8. For as often as I speak, I cry out; I cry, Violence and destruction! because the word of Yahweh is made a reproach to me, and a derision, all the day.
 
-9. If I say, I will not make mention of him, nor speak any more in his name, then there is in my heart as it were a burning fire shut up in my bones, and I am weary with forbearing, and I can`t [contain].
+9. If I say, I will not make mention of him, nor speak any more in his name, then there is in my heart as it were a burning fire shut up in my bones, and I am weary with forbearing, and I can't [contain].
 
 10. For I have heard the defaming of many, terror on every side. Denounce, and we will denounce him, [say] all my familiar friends, those who watch for my fall; perhaps he will be persuaded, and we shall prevail against him, and we shall take our revenge on him.
 
@@ -1037,13 +1037,13 @@
 
 13. Sing to Yahweh, praise Yahweh; for he has delivered the soul of the needy from the hand of evildoers.
 
-14. Cursed is the day in which I was born: don`t let the day in which my mother bore me be blessed.
+14. Cursed is the day in which I was born: don't let the day in which my mother bore me be blessed.
 
 15. Cursed is the man who brought news to my father, saying, A boy is born to you; making him very glad.
 
-16. Let that man be as the cities which Yahweh overthrew, and didn`t repent: and let him hear a cry in the morning, and shouting at noontime;
+16. Let that man be as the cities which Yahweh overthrew, and didn't repent: and let him hear a cry in the morning, and shouting at noontime;
 
-17. because he didn`t kill me from the womb; and so my mother would have been my grave, and her womb always great.
+17. because he didn't kill me from the womb; and so my mother would have been my grave, and her womb always great.
 
 18. Why came I forth out of the womb to see labor and sorrow, that my days should be consumed with shame?
 
@@ -1099,19 +1099,19 @@
 
 9. Then they shall answer, Because they forsook the covenant of Yahweh their God, and worshiped other gods, and served them.
 
-10. Don`t weep for the dead, neither bemoan him; but weep bitterly for him who goes away; for he shall return no more, nor see his native country.
+10. Don't weep for the dead, neither bemoan him; but weep bitterly for him who goes away; for he shall return no more, nor see his native country.
 
 11. For thus says Yahweh touching Shallum the son of Josiah, king of Judah, who reigned instead of Josiah his father, [and] who went forth out of this place: He shall not return there any more.
 
 12. But in the place where they have led him captive, there shall he die, and he shall see this land no more.
 
-13. Woe to him who builds his house by unrighteousness, and his chambers by injustice; who uses his neighbor`s service without wages, and doesn`t give him his hire;
+13. Woe to him who builds his house by unrighteousness, and his chambers by injustice; who uses his neighbor's service without wages, and doesn't give him his hire;
 
 14. who says, I will build me a wide house and spacious chambers, and cuts him out windows; and it is ceiling with cedar, and painted with vermilion.
 
-15. Shall you reign, because you strive to excel in cedar? Didn`t your father eat and drink, and do justice and righteousness? then it was well with him.
+15. Shall you reign, because you strive to excel in cedar? Didn't your father eat and drink, and do justice and righteousness? then it was well with him.
 
-16. He judged the cause of the poor and needy; then it was well. Wasn`t this to know me? says Yahweh.
+16. He judged the cause of the poor and needy; then it was well. Wasn't this to know me? says Yahweh.
 
 17. But your eyes and your heart are not but for your covetousness, and for shedding innocent blood, and for oppression, and for violence, to do it.
 
@@ -1121,7 +1121,7 @@
 
 20. Go up to Lebanon, and cry; and lift up your voice in Bashan, and cry from Abarim; for all your lovers are destroyed.
 
-21. I spoke to you in your prosperity; but you said, I will not hear. This has been your manner from your youth, that you didn`t obey my voice.
+21. I spoke to you in your prosperity; but you said, I will not hear. This has been your manner from your youth, that you didn't obey my voice.
 
 22. The wind shall feed all your shepherds, and your lovers shall go into captivity: surely then you will be ashamed and confounded for all your wickedness.
 
@@ -1135,7 +1135,7 @@
 
 27. But to the land whereunto their soul longs to return, there shall they not return.
 
-28. Is this man Coniah a despised broken vessel? is he a vessel in which none delights? why are they cast out, he and his seed, and are cast into the land which they don`t know?
+28. Is this man Coniah a despised broken vessel? is he a vessel in which none delights? why are they cast out, he and his seed, and are cast into the land which they don't know?
 
 29. O earth, earth, earth, hear the word of Yahweh.
 
@@ -1174,7 +1174,7 @@
 
 15. Therefore thus says Yahweh of Armies concerning the prophets: Behold, I will feed them with wormwood, and make them drink the water of gall; for from the prophets of Jerusalem is ungodliness gone forth into all the land.
 
-16. Thus says Yahweh of Armies, Don`t listen to the words of the prophets who prophesy to you: they teach you vanity; they speak a vision of their own heart, and not out of the mouth of Yahweh.
+16. Thus says Yahweh of Armies, Don't listen to the words of the prophets who prophesy to you: they teach you vanity; they speak a vision of their own heart, and not out of the mouth of Yahweh.
 
 17. They say continually to those who despise me, Yahweh has said, You shall have peace; and to everyone who walks in the stubbornness of his own heart they say, No evil shall come on you.
 
@@ -1184,13 +1184,13 @@
 
 20. The anger of Yahweh shall not return, until he has executed, and until he have performed the intents of his heart: in the latter days you shall understand it perfectly.
 
-21. I sent not these prophets, yet they ran: I didn`t speak to them, yet they prophesied.
+21. I sent not these prophets, yet they ran: I didn't speak to them, yet they prophesied.
 
 22. But if they had stood in my council, then had they caused my people to hear my words, and had turned them from their evil way, and from the evil of their doings.
 
 23. Am I a God at hand, says Yahweh, and not a God afar off?
 
-24. Can any hide himself in secret places so that I shall not see him? says Yahweh. Don`t I fill heaven and earth? says Yahweh.
+24. Can any hide himself in secret places so that I shall not see him? says Yahweh. Don't I fill heaven and earth? says Yahweh.
 
 25. I have heard what the prophets have said, who prophesy lies in my name, saying, I have dreamed, I have dreamed.
 
@@ -1200,13 +1200,13 @@
 
 28. The prophet who has a dream, let him tell a dream; and he who has my word, let him speak my word faithfully. What is the straw to the wheat? says Yahweh.
 
-29. Isn`t my word like fire? says Yahweh; and like a hammer that breaks the rock in pieces?
+29. Isn't my word like fire? says Yahweh; and like a hammer that breaks the rock in pieces?
 
 30. Therefore, behold, I am against the prophets, says Yahweh, who steal my words everyone from his neighbor.
 
 31. Behold, I am against the prophets, says Yahweh, who use their tongues, and say, He says.
 
-32. Behold, I am against those who prophesy lying dreams, says Yahweh, and do tell them, and cause my people to err by their lies, and by their vain boasting: yet I didn`t send them, nor commanded them; neither do they profit this people at all, says Yahweh.
+32. Behold, I am against those who prophesy lying dreams, says Yahweh, and do tell them, and cause my people to err by their lies, and by their vain boasting: yet I didn't send them, nor commanded them; neither do they profit this people at all, says Yahweh.
 
 33. When this people, or the prophet, or a priest, shall ask you, saying, What is the burden of Yahweh? Then you shall tell them, What burden! I will cast you off, says Yahweh.
 
@@ -1214,7 +1214,7 @@
 
 35. You shall say everyone to his neighbor, and everyone to his brother, What has Yahweh answered? and, What has Yahweh spoken?
 
-36. You shall mention the burden of Yahweh no more: for every man`s own word shall be his burden; for you have perverted the words of the living God, of Yahweh of Armies our God.
+36. You shall mention the burden of Yahweh no more: for every man's own word shall be his burden; for you have perverted the words of the living God, of Yahweh of Armies our God.
 
 37. You shall say to the prophet, What has Yahweh answered you? and, What has Yahweh spoken?
 
@@ -1231,7 +1231,7 @@
 
 2. One basket had very good figs, like the figs that are first-ripe; and the other basket had very bad figs, which could not be eaten, they were so bad.
 
-3. Then said Yahweh to me, What do you see, Jeremiah? I said, Figs; the good figs, very good; and the bad, very bad, that can`t be eaten, they are so bad.
+3. Then said Yahweh to me, What do you see, Jeremiah? I said, Figs; the good figs, very good; and the bad, very bad, that can't be eaten, they are so bad.
 
 4. The word of Yahweh came to me, saying,
 
@@ -1241,7 +1241,7 @@
 
 7. I will give them a heart to know me, that I am Yahweh: and they shall be my people, and I will be their God; for they shall return to me with their whole heart.
 
-8. As the bad figs, which can`t be eaten, they are so bad, surely thus says Yahweh, So will I give up Zedekiah the king of Judah, and his princes, and the residue of Jerusalem, who remain in this land, and those who dwell in the land of Egypt,
+8. As the bad figs, which can't be eaten, they are so bad, surely thus says Yahweh, So will I give up Zedekiah the king of Judah, and his princes, and the residue of Jerusalem, who remain in this land, and those who dwell in the land of Egypt,
 
 9. I will even give them up to be tossed back and forth among all the kingdoms of the earth for evil; to be a reproach and a proverb, a taunt and a curse, in all places where I shall drive them.
 
@@ -1260,7 +1260,7 @@
 
 5. saying, Return now everyone from his evil way, and from the evil of your doings, and dwell in the land that Yahweh has given to you and to your fathers, from of old and even forevermore;
 
-6. and don`t go after other gods to serve them or worship them, and don`t provoke me to anger with the work of your hands; and I will do you no harm.
+6. and don't go after other gods to serve them or worship them, and don't provoke me to anger with the work of your hands; and I will do you no harm.
 
 7. Yet you have not listened to me, says Yahweh; that you may provoke me to anger with the work of your hands to your own hurt.
 
@@ -1282,7 +1282,7 @@
 
 16. They shall drink, and reel back and forth, and be mad, because of the sword that I will send among them.
 
-17. Then took I the cup at Yahweh`s hand, and made all the nations to drink, to whom Yahweh had sent me:
+17. Then took I the cup at Yahweh's hand, and made all the nations to drink, to whom Yahweh had sent me:
 
 18. [to wit], Jerusalem, and the cities of Judah, and its kings, and its princes, to make them a desolation, an astonishment, a hissing, and a curse, as it is this day;
 
@@ -1331,7 +1331,7 @@
 
 1. In the beginning of the reign of Jehoiakim the son of Josiah, king of Judah, came this word from Yahweh, saying,
 
-2. Thus says Yahweh: Stand in the court of Yahweh`s house, and speak to all the cities of Judah, which come to worship in Yahweh`s house, all the words that I command you to speak to them; don`t diminish a word.
+2. Thus says Yahweh: Stand in the court of Yahweh's house, and speak to all the cities of Judah, which come to worship in Yahweh's house, all the words that I command you to speak to them; don't diminish a word.
 
 3. It may be they will listen, and turn every man from his evil way; that I may repent me of the evil which I purpose to do to them because of the evil of their doings.
 
@@ -1347,7 +1347,7 @@
 
 9. Why have you prophesied in the name of Yahweh, saying, This house shall be like Shiloh, and this city shall be desolate, without inhabitant? All the people were gathered to Jeremiah in the house of Yahweh.
 
-10. When the princes of Judah heard these things, they came up from the king`s house to the house of Yahweh; and they sat in the entry of the new gate of Yahweh`s [house].
+10. When the princes of Judah heard these things, they came up from the king's house to the house of Yahweh; and they sat in the entry of the new gate of Yahweh's [house].
 
 11. Then spoke the priests and the prophets to the princes and to all the people, saying, This man is worthy of death; for he has prophesied against this city, as you have heard with your ears.
 
@@ -1365,7 +1365,7 @@
 
 18. Micah the Morashtite prophesied in the days of Hezekiah king of Judah; and he spoke to all the people of Judah, saying, Thus says Yahweh of Armies: Zion shall be plowed as a field, and Jerusalem shall become heaps, and the mountain of the house as the high places of a forest.
 
-19. Did Hezekiah king of Judah and all Judah put him to death? Didn`t he fear Yahweh, and entreat the favor of Yahweh, and Yahweh relented of the disaster which he had pronounced against them? Thus should we commit great evil against our own souls.
+19. Did Hezekiah king of Judah and all Judah put him to death? Didn't he fear Yahweh, and entreat the favor of Yahweh, and Yahweh relented of the disaster which he had pronounced against them? Thus should we commit great evil against our own souls.
 
 20. There was also a man who prophesied in the name of Yahweh, Uriah the son of Shemaiah of Kiriath Jearim; and he prophesied against this city and against this land according to all the words of Jeremiah:
 
@@ -1392,11 +1392,11 @@
 
 6. Now have I given all these lands into the hand of Nebuchadnezzar the king of Babylon, my servant; and the animals of the field also have I given him to serve him.
 
-7. All the nations shall serve him, and his son, and his son`s son, until the time of his own land come: and then many nations and great kings shall make him their bondservant.
+7. All the nations shall serve him, and his son, and his son's son, until the time of his own land come: and then many nations and great kings shall make him their bondservant.
 
 8. It shall happen, that the nation and the kingdom which will not serve the same Nebuchadnezzar king of Babylon, and that will not put their neck under the yoke of the king of Babylon, that nation will I punish, says Yahweh, with the sword, and with the famine, and with the pestilence, until I have consumed them by his hand.
 
-9. But as for you, don`t you listen to your prophets, nor to your diviners, nor to your dreams, nor to your soothsayers, nor to your sorcerers, who speak to you, saying, You shall not serve the king of Babylon:
+9. But as for you, don't you listen to your prophets, nor to your diviners, nor to your dreams, nor to your soothsayers, nor to your sorcerers, who speak to you, saying, You shall not serve the king of Babylon:
 
 10. for they prophesy a lie to you, to remove you far from your land, and that I should drive you out, and you should perish.
 
@@ -1406,19 +1406,19 @@
 
 13. Why will you die, you and your people, by the sword, by the famine, and by the pestilence, as Yahweh has spoken concerning the nation that will not serve the king of Babylon?
 
-14. Don`t listen to the words of the prophets who speak to you, saying, You shall not serve the king of Babylon; for they prophesy a lie to you.
+14. Don't listen to the words of the prophets who speak to you, saying, You shall not serve the king of Babylon; for they prophesy a lie to you.
 
 15. For I have not sent them, says Yahweh, but they prophesy falsely in my name; that I may drive you out, and that you may perish, you, and the prophets who prophesy to you.
 
-16. Also I spoke to the priests and to all this people, saying, Thus says Yahweh: Don`t listen to the words of your prophets who prophesy to you, saying, Behold, the vessels of Yahweh`s house shall now shortly be brought again from Babylon; for they prophesy a lie to you.
+16. Also I spoke to the priests and to all this people, saying, Thus says Yahweh: Don't listen to the words of your prophets who prophesy to you, saying, Behold, the vessels of Yahweh's house shall now shortly be brought again from Babylon; for they prophesy a lie to you.
 
-17. Don`t listen to them; serve the king of Babylon, and live: why should this city become a desolation?
+17. Don't listen to them; serve the king of Babylon, and live: why should this city become a desolation?
 
-18. But if they be prophets, and if the word of Yahweh be with them, let them now make intercession to Yahweh of Armies, that the vessels which are left in the house of Yahweh, and in the house of the king of Judah, and at Jerusalem, don`t go to Babylon.
+18. But if they be prophets, and if the word of Yahweh be with them, let them now make intercession to Yahweh of Armies, that the vessels which are left in the house of Yahweh, and in the house of the king of Judah, and at Jerusalem, don't go to Babylon.
 
 19. For thus says Yahweh of Armies concerning the pillars, and concerning the sea, and concerning the bases, and concerning the residue of the vessels that are left in this city,
 
-20. which Nebuchadnezzar king of Babylon didn`t take, when he carried away captive Jeconiah the son of Jehoiakim, king of Judah, from Jerusalem to Babylon, and all the nobles of Judah and Jerusalem;
+20. which Nebuchadnezzar king of Babylon didn't take, when he carried away captive Jeconiah the son of Jehoiakim, king of Judah, from Jerusalem to Babylon, and all the nobles of Judah and Jerusalem;
 
 21. yes, thus says Yahweh of Armies, the God of Israel, concerning the vessels that are left in the house of Yahweh, and in the house of the king of Judah, and at Jerusalem:
 
@@ -1431,13 +1431,13 @@
 
 2. Thus speaks Yahweh of Armies, the God of Israel, saying, I have broken the yoke of the king of Babylon.
 
-3. Within two full years will I bring again into this place all the vessels of Yahweh`s house, that Nebuchadnezzar king of Babylon took away from this place, and carried to Babylon:
+3. Within two full years will I bring again into this place all the vessels of Yahweh's house, that Nebuchadnezzar king of Babylon took away from this place, and carried to Babylon:
 
 4. and I will bring again to this place Jeconiah the son of Jehoiakim, king of Judah, with all the captives of Judah, who went to Babylon, says Yahweh; for I will break the yoke of the king of Babylon.
 
 5. Then the prophet Jeremiah said to the prophet Hananiah in the presence of the priests, and in the presence of all the people who stood in the house of Yahweh,
 
-6. even the prophet Jeremiah said, Amen: Yahweh do so; Yahweh perform your words which you have prophesied, to bring again the vessels of Yahweh`s house, and all them of the captivity, from Babylon to this place.
+6. even the prophet Jeremiah said, Amen: Yahweh do so; Yahweh perform your words which you have prophesied, to bring again the vessels of Yahweh's house, and all them of the captivity, from Babylon to this place.
 
 7. Nevertheless hear you now this word that I speak in your ears, and in the ears of all the people:
 
@@ -1445,7 +1445,7 @@
 
 9. The prophet who prophesies of peace, when the word of the prophet shall happen, then shall the prophet be known, that Yahweh has truly sent him.
 
-10. Then Hananiah the prophet took the bar from off the prophet Jeremiah`s neck, and broke it.
+10. Then Hananiah the prophet took the bar from off the prophet Jeremiah's neck, and broke it.
 
 11. Hananiah spoke in the presence of all the people, saying, Thus says Yahweh: Even so will I break the yoke of Nebuchadnezzar king of Babylon within two full years from off the neck of all the nations. The prophet Jeremiah went his way.
 
@@ -1474,11 +1474,11 @@
 
 5. Build houses, and dwell in them; and plant gardens, and eat the fruit of them.
 
-6. Take wives, and father sons and daughters; and take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters; and multiply there, and don`t be diminished.
+6. Take wives, and father sons and daughters; and take wives for your sons, and give your daughters to husbands, that they may bear sons and daughters; and multiply there, and don't be diminished.
 
 7. Seek the peace of the city where I have caused you to be carried away captive, and pray to Yahweh for it; for in its peace you shall have peace.
 
-8. For thus says Yahweh of Armies, the God of Israel: Don`t let your prophets who are in the midst of you, and your diviners, deceive you; neither listen to your dreams which you cause to be dreamed.
+8. For thus says Yahweh of Armies, the God of Israel: Don't let your prophets who are in the midst of you, and your diviners, deceive you; neither listen to your dreams which you cause to be dreamed.
 
 9. For they prophesy falsely to you in my name: I have not sent them, says Yahweh.
 
@@ -1494,9 +1494,9 @@
 
 15. Because you have said, Yahweh has raised us up prophets in Babylon;
 
-16. thus says Yahweh concerning the king who sits on the throne of David, and concerning all the people who dwell in this city, your brothers who haven`t gone forth with you into captivity;
+16. thus says Yahweh concerning the king who sits on the throne of David, and concerning all the people who dwell in this city, your brothers who haven't gone forth with you into captivity;
 
-17. thus says Yahweh of Armies; Behold, I will send on them the sword, the famine, and the pestilence, and will make them like vile figs, that can`t be eaten, they are so bad.
+17. thus says Yahweh of Armies; Behold, I will send on them the sword, the famine, and the pestilence, and will make them like vile figs, that can't be eaten, they are so bad.
 
 18. I will pursue after them with the sword, with the famine, and with the pestilence, and will deliver them to be tossed back and forth among all the kingdoms of the earth, to be an object of horror, and an astonishment, and a hissing, and a reproach, among all the nations where I have driven them;
 
@@ -1508,7 +1508,7 @@
 
 22. and of them shall be taken up a curse by all the captives of Judah who are in Babylon, saying, Yahweh make you like Zedekiah and like Ahab, whom the king of Babylon roasted in the fire;
 
-23. because they have worked folly in Israel, and have committed adultery with their neighbors` wives, and have spoken words in my name falsely, which I didn`t command them; and I am he who knows, and am witness, says Yahweh.
+23. because they have worked folly in Israel, and have committed adultery with their neighbors' wives, and have spoken words in my name falsely, which I didn't command them; and I am he who knows, and am witness, says Yahweh.
 
 24. Concerning Shemaiah the Nehelamite you shall speak, saying,
 
@@ -1524,7 +1524,7 @@
 
 30. Then came the word of Yahweh to Jeremiah, saying,
 
-31. Send to all them of the captivity, saying, Thus says Yahweh concerning Shemaiah the Nehelamite: Because Shemaiah has prophesied to you, and I didn`t send him, and he has caused you to trust in a lie;
+31. Send to all them of the captivity, saying, Thus says Yahweh concerning Shemaiah the Nehelamite: Because Shemaiah has prophesied to you, and I didn't send him, and he has caused you to trust in a lie;
 
 32. therefore thus says Yahweh, Behold, I will punish Shemaiah the Nehelamite, and his seed; he shall not have a man to dwell among this people, neither shall he see the good that I will do to my people, says Yahweh, because he has spoken rebellion against Yahweh.
 
@@ -1543,13 +1543,13 @@
 
 6. Ask now, and see whether a man does travail with child: why do I see every man with his hands on his waist, as a woman in travail, and all faces are turned into paleness?
 
-7. Alas! for that day is great, so that none is like it: it is even the time of Jacob`s trouble; but he shall be saved out of it.
+7. Alas! for that day is great, so that none is like it: it is even the time of Jacob's trouble; but he shall be saved out of it.
 
 8. It shall come to pass in that day, says Yahweh of Armies, that I will break his yoke from off your neck, and will burst your bonds; and strangers shall no more make him their bondservant;
 
 9. but they shall serve Yahweh their God, and David their king, whom I will raise up to them.
 
-10. Therefore don`t you be afraid, O Jacob my servant, says Yahweh; neither be dismayed, Israel: for, behold, I will save you from afar, and your seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.
+10. Therefore don't you be afraid, O Jacob my servant, says Yahweh; neither be dismayed, Israel: for, behold, I will save you from afar, and your seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.
 
 11. For I am with you, says Yahweh, to save you: for I will make a full end of all the nations where I have scattered you, but I will not make a full end of you; but I will correct you in measure, and will in no way leave you unpunished.
 
@@ -1557,7 +1557,7 @@
 
 13. There is none to plead your cause, that you may be bound up: you have no healing medicines.
 
-14. All your lovers have forgotten you; they don`t seek you: for I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your iniquity, because your sins were increased.
+14. All your lovers have forgotten you; they don't seek you: for I have wounded you with the wound of an enemy, with the chastisement of a cruel one, for the greatness of your iniquity, because your sins were increased.
 
 15. Why do you cry for your hurt? Your pain is incurable: for the greatness of your iniquity, because your sins were increased, I have done these things to you.
 
@@ -1565,7 +1565,7 @@
 
 17. For I will restore health to you, and I will heal you of your wounds, says Yahweh; because they have called you an outcast, [saying], It is Zion, whom no man seeks after.
 
-18. Thus says Yahweh: Behold, I will turn again the captivity of Jacob`s tents, and have compassion on his dwelling places; and the city shall be built on its own hill, and the palace shall be inhabited after its own manner.
+18. Thus says Yahweh: Behold, I will turn again the captivity of Jacob's tents, and have compassion on his dwelling places; and the city shall be built on its own hill, and the palace shall be inhabited after its own manner.
 
 19. Out of them shall proceed thanksgiving and the voice of those who make merry: and I will multiply them, and they shall not be few; I will also glorify them, and they shall not be small.
 
@@ -1638,7 +1638,7 @@
 
 28. It shall happen that, like as I have watched over them to pluck up and to break down and to overthrow and to destroy and to afflict, so will I watch over them to build and to plant, says Yahweh.
 
-29. In those days they shall say no more, The fathers have eaten sour grapes, and the children`s teeth are set on edge.
+29. In those days they shall say no more, The fathers have eaten sour grapes, and the children's teeth are set on edge.
 
 30. But everyone shall die for his own iniquity: every man who eats the sour grapes, his teeth shall be set on edge.
 
@@ -1667,7 +1667,7 @@
 
 1. The word that came to Jeremiah from Yahweh in the tenth year of Zedekiah king of Judah, which was the eighteenth year of Nebuchadnezzar.
 
-2. Now at that time the king of Babylon`s army was besieging Jerusalem; and Jeremiah the prophet was shut up in the court of the guard, which was in the king of Judah`s house.
+2. Now at that time the king of Babylon's army was besieging Jerusalem; and Jeremiah the prophet was shut up in the court of the guard, which was in the king of Judah's house.
 
 3. For Zedekiah king of Judah had shut him up, saying, Why do you prophesy, and say, Thus says Yahweh, Behold, I will give this city into the hand of the king of Babylon, and he shall take it;
 
@@ -1679,15 +1679,15 @@
 
 7. Behold, Hanamel the son of Shallum your uncle shall come to you, saying, Buy my field that is in Anathoth; for the right of redemption is yours to buy it.
 
-8. So Hanamel my uncle`s son came to me in the court of the guard according to the word of Yahweh, and said to me, Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the redemption is yours; buy it for yourself. Then I knew that this was the word of Yahweh.
+8. So Hanamel my uncle's son came to me in the court of the guard according to the word of Yahweh, and said to me, Please buy my field that is in Anathoth, which is in the land of Benjamin; for the right of inheritance is yours, and the redemption is yours; buy it for yourself. Then I knew that this was the word of Yahweh.
 
-9. I bought the field that was in Anathoth of Hanamel my uncle`s son, and weighed him the money, even seventeen shekels of silver.
+9. I bought the field that was in Anathoth of Hanamel my uncle's son, and weighed him the money, even seventeen shekels of silver.
 
 10. I subscribed the deed, and sealed it, and called witnesses, and weighed him the money in the balances.
 
 11. So I took the deed of the purchase, both that which was sealed, containing the terms and conditions, and that which was open;
 
-12. and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle`s son, and in the presence of the witnesses who subscribed the deed of the purchase, before all the Jews who sat in the court of the guard.
+12. and I delivered the deed of the purchase to Baruch the son of Neriah, the son of Mahseiah, in the presence of Hanamel my uncle's son, and in the presence of the witnesses who subscribed the deed of the purchase, before all the Jews who sat in the court of the guard.
 
 13. I commanded Baruch before them, saying,
 
@@ -1709,7 +1709,7 @@
 
 22. and gave them this land, which you swore to their fathers to give them, a land flowing with milk and honey;
 
-23. and they came in, and possessed it, but they didn`t obey your voice, neither walked in your law; they have done nothing of all that you commanded them to do: therefore you have caused all this evil to come on them.
+23. and they came in, and possessed it, but they didn't obey your voice, neither walked in your law; they have done nothing of all that you commanded them to do: therefore you have caused all this evil to come on them.
 
 24. Behold, the mounds, they are come to the city to take it; and the city is given into the hand of the Chaldeans who fight against it, because of the sword, and of the famine, and of the pestilence; and what you have spoken has happened; and behold, you see it.
 
@@ -1733,7 +1733,7 @@
 
 34. But they set their abominations in the house which is called by my name, to defile it.
 
-35. They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through [the fire] to Molech; which I didn`t command them, neither did it come into my mind, that they should do this abomination, to cause Judah to sin.
+35. They built the high places of Baal, which are in the valley of the son of Hinnom, to cause their sons and their daughters to pass through [the fire] to Molech; which I didn't command them, neither did it come into my mind, that they should do this abomination, to cause Judah to sin.
 
 36. Now therefore thus says Yahweh, the God of Israel, concerning this city, about which you say, It is given into the hand of the king of Babylon by the sword, and by the famine, and by the pestilence:
 
@@ -1760,7 +1760,7 @@
 
 2. Thus says Yahweh who does it, Yahweh who forms it to establish it; Yahweh is his name:
 
-3. Call to me, and I will answer you, and will show you great things, and difficult, which you don`t know.
+3. Call to me, and I will answer you, and will show you great things, and difficult, which you don't know.
 
 4. For thus says Yahweh, the God of Israel, concerning the houses of this city, and concerning the houses of the kings of Judah, which are broken down [to make a defense] against the mounds and against the sword;
 
@@ -1798,11 +1798,11 @@
 
 21. then may also my covenant be broken with David my servant, that he shall not have a son to reign on his throne; and with the Levites the priests, my ministers.
 
-22. As the army of the sky can`t be numbered, neither the sand of the sea measured; so will I multiply the seed of David my servant, and the Levites who minister to me.
+22. As the army of the sky can't be numbered, neither the sand of the sea measured; so will I multiply the seed of David my servant, and the Levites who minister to me.
 
 23. The word of Yahweh came to Jeremiah, saying,
 
-24. Don`t consider what this people has spoken, saying, The two families which Yahweh did choose, he has cast them off? thus do they despise my people, that they should be no more a nation before them.
+24. Don't consider what this people has spoken, saying, The two families which Yahweh did choose, he has cast them off? thus do they despise my people, that they should be no more a nation before them.
 
 25. Thus says Yahweh: If my covenant of day and night fails, if I have not appointed the ordinances of heaven and earth;
 
@@ -1823,7 +1823,7 @@
 
 6. Then Jeremiah the prophet spoke all these words to Zedekiah king of Judah in Jerusalem,
 
-7. when the king of Babylon`s army was fighting against Jerusalem, and against all the cities of Judah that were left, against Lachish and against Azekah; for these [alone] remained of the cities of Judah [as] fortified cities.
+7. when the king of Babylon's army was fighting against Jerusalem, and against all the cities of Judah that were left, against Lachish and against Azekah; for these [alone] remained of the cities of Judah [as] fortified cities.
 
 8. The word that came to Jeremiah from Yahweh, after that the king Zedekiah had made a covenant with all the people who were at Jerusalem, to proclaim liberty to them;
 
@@ -1837,7 +1837,7 @@
 
 13. Thus says Yahweh, the God of Israel: I made a covenant with your fathers in the day that I brought them forth out of the land of Egypt, out of the house of bondage, saying,
 
-14. At the end of seven years you shall let go every man his brother who is a Hebrew, who has been sold to you, and has served you six years, you shall let him go free from you: but your fathers didn`t listen to me, neither inclined their ear.
+14. At the end of seven years you shall let go every man his brother who is a Hebrew, who has been sold to you, and has served you six years, you shall let him go free from you: but your fathers didn't listen to me, neither inclined their ear.
 
 15. You had now turned, and had done that which is right in my eyes, in proclaiming liberty every man to his neighbor; and you had made a covenant before me in the house which is called by my name:
 
@@ -1851,7 +1851,7 @@
 
 20. I will even give them into the hand of their enemies, and into the hand of those who seek their life; and their dead bodies shall be for food to the birds of the sky, and to the animals of the earth.
 
-21. Zedekiah king of Judah and his princes will I give into the hand of their enemies, and into the hand of those who seek their life, and into the hand of the king of Babylon`s army, who have gone away from you.
+21. Zedekiah king of Judah and his princes will I give into the hand of their enemies, and into the hand of those who seek their life, and into the hand of the king of Babylon's army, who have gone away from you.
 
 22. Behold, I will command, says Yahweh, and cause them to return to this city; and they shall fight against it, and take it, and burn it with fire: and I will make the cities of Judah a desolation, without inhabitant.
 
@@ -1884,9 +1884,9 @@
 
 13. Thus says Yahweh of Armies, the God of Israel: Go, and tell the men of Judah and the inhabitants of Jerusalem, Will you not receive instruction to listen to my words? says Yahweh.
 
-14. The words of Jonadab the son of Rechab, that he commanded his sons, not to drink wine, are performed; and to this day they drink none, for they obey their father`s commandment: but I have spoken to you, rising up early and speaking; and you have not listened to me.
+14. The words of Jonadab the son of Rechab, that he commanded his sons, not to drink wine, are performed; and to this day they drink none, for they obey their father's commandment: but I have spoken to you, rising up early and speaking; and you have not listened to me.
 
-15. I have sent also to you all my servants the prophets, rising up early and sending them, saying, Return now every man from his evil way, and amend your doings, and don`t go after other gods to serve them, and you shall dwell in the land which I have given to you and to your fathers: but you have not inclined your ear, nor listened to me.
+15. I have sent also to you all my servants the prophets, rising up early and sending them, saying, Return now every man from his evil way, and amend your doings, and don't go after other gods to serve them, and you shall dwell in the land which I have given to you and to your fathers: but you have not inclined your ear, nor listened to me.
 
 16. Because the sons of Jonadab the son of Rechab have performed the commandment of their father which he commanded them, but this people has not listened to me;
 
@@ -1907,21 +1907,21 @@
 
 4. Then Jeremiah called Baruch the son of Neriah; and Baruch wrote from the mouth of Jeremiah all the words of Yahweh, which he had spoken to him, on a scroll of a book.
 
-5. Jeremiah commanded Baruch, saying, I am shut up; I can`t go into the house of Yahweh:
+5. Jeremiah commanded Baruch, saying, I am shut up; I can't go into the house of Yahweh:
 
-6. therefore you go, and read in the scroll, which you have written from my mouth, the words of Yahweh in the ears of the people in Yahweh`s house on the fast day; and also you shall read them in the ears of all Judah who come out of their cities.
+6. therefore you go, and read in the scroll, which you have written from my mouth, the words of Yahweh in the ears of the people in Yahweh's house on the fast day; and also you shall read them in the ears of all Judah who come out of their cities.
 
 7. It may be they will present their supplication before Yahweh, and will return everyone from his evil way; for great is the anger and the wrath that Yahweh has pronounced against this people.
 
-8. Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading in the book the words of Yahweh in Yahweh`s house.
+8. Baruch the son of Neriah did according to all that Jeremiah the prophet commanded him, reading in the book the words of Yahweh in Yahweh's house.
 
 9. Now it happened in the fifth year of Jehoiakim the son of Josiah, king of Judah, in the ninth month, that all the people in Jerusalem, and all the people who came from the cities of Judah to Jerusalem, proclaimed a fast before Yahweh.
 
-10. Then read Baruch in the book the words of Jeremiah in the house of Yahweh, in the chamber of Gemariah the son of Shaphan, the scribe, in the upper court, at the entry of the new gate of Yahweh`s house, in the ears of all the people.
+10. Then read Baruch in the book the words of Jeremiah in the house of Yahweh, in the chamber of Gemariah the son of Shaphan, the scribe, in the upper court, at the entry of the new gate of Yahweh's house, in the ears of all the people.
 
 11. When Micaiah the son of Gemariah, the son of Shaphan, had heard out of the book all the words of Yahweh,
 
-12. he went down into the king`s house, into the scribe`s chamber: and behold, all the princes were sitting there, [to wit], Elishama the scribe, and Delaiah the son of Shemaiah, and Elnathan the son of Achbor, and Gemariah the son of Shaphan, and Zedekiah the son of Hananiah, and all the princes.
+12. he went down into the king's house, into the scribe's chamber: and behold, all the princes were sitting there, [to wit], Elishama the scribe, and Delaiah the son of Shemaiah, and Elnathan the son of Achbor, and Gemariah the son of Shaphan, and Zedekiah the son of Hananiah, and all the princes.
 
 13. Then Micaiah declared to them all the words that he had heard, when Baruch read the book in the ears of the people.
 
@@ -1949,7 +1949,7 @@
 
 25. Moreover Elnathan and Delaiah and Gemariah had made intercession to the king that he would not burn the scroll; but he would not hear them.
 
-26. The king commanded Jerahmeel the king`s son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to take Baruch the scribe and Jeremiah the prophet; but Yahweh hid them.
+26. The king commanded Jerahmeel the king's son, and Seraiah the son of Azriel, and Shelemiah the son of Abdeel, to take Baruch the scribe and Jeremiah the prophet; but Yahweh hid them.
 
 27. Then the word of Yahweh came to Jeremiah, after that the king had burned the scroll, and the words which Baruch wrote at the mouth of Jeremiah, saying,
 
@@ -1959,7 +1959,7 @@
 
 30. Therefore thus says Yahweh concerning Jehoiakim king of Judah: He shall have none to sit on the throne of David; and his dead body shall be cast out in the day to the heat, and in the night to the frost.
 
-31. I will punish him and his seed and his servants for their iniquity; and I will bring on them, and on the inhabitants of Jerusalem, and on the men of Judah, all the evil that I have pronounced against them, but they didn`t listen.
+31. I will punish him and his seed and his servants for their iniquity; and I will bring on them, and on the inhabitants of Jerusalem, and on the men of Judah, all the evil that I have pronounced against them, but they didn't listen.
 
 32. Then took Jeremiah another scroll, and gave it to Baruch the scribe, the son of Neriah, who wrote therein from the mouth of Jeremiah all the words of the book which Jehoiakim king of Judah had burned in the fire; and there were added besides to them many like words.
 
@@ -1974,25 +1974,25 @@
 
 4. Now Jeremiah came in and went out among the people; for they had not put him into prison.
 
-5. Pharaoh`s army was come forth out of Egypt; and when the Chaldeans who were besieging Jerusalem heard news of them, they broke up from Jerusalem.
+5. Pharaoh's army was come forth out of Egypt; and when the Chaldeans who were besieging Jerusalem heard news of them, they broke up from Jerusalem.
 
 6. Then came the word of Yahweh to the prophet Jeremiah, saying,
 
-7. Thus says Yahweh, the God of Israel, You shall tell the king of Judah, who sent you to me to inquire of me: Behold, Pharaoh`s army, which is come forth to help you, shall return to Egypt into their own land.
+7. Thus says Yahweh, the God of Israel, You shall tell the king of Judah, who sent you to me to inquire of me: Behold, Pharaoh's army, which is come forth to help you, shall return to Egypt into their own land.
 
 8. The Chaldeans shall come again, and fight against this city; and they shall take it, and burn it with fire.
 
-9. Thus says Yahweh, Don`t deceive yourselves, saying, The Chaldeans shall surely depart from us; for they shall not depart.
+9. Thus says Yahweh, Don't deceive yourselves, saying, The Chaldeans shall surely depart from us; for they shall not depart.
 
 10. For though you had struck the whole army of the Chaldeans who fight against you, and there remained but wounded men among them, yes would they rise up every man in his tent, and burn this city with fire.
 
-11. It happened that, when the army of the Chaldeans was broken up from Jerusalem for fear of Pharaoh`s army,
+11. It happened that, when the army of the Chaldeans was broken up from Jerusalem for fear of Pharaoh's army,
 
 12. then Jeremiah went forth out of Jerusalem to go into the land of Benjamin, to receive his portion there, in the midst of the people.
 
 13. When he was in the gate of Benjamin, a captain of the guard was there, whose name was Irijah, the son of Shelemiah, the son of Hananiah; and he laid hold on Jeremiah the prophet, saying, You are falling away to the Chaldeans.
 
-14. Then said Jeremiah, It is false; I am not falling away to the Chaldeans. But he didn`t listen to him; so Irijah laid hold on Jeremiah, and brought him to the princes.
+14. Then said Jeremiah, It is false; I am not falling away to the Chaldeans. But he didn't listen to him; so Irijah laid hold on Jeremiah, and brought him to the princes.
 
 15. The princes were angry with Jeremiah, and struck him, and put him in prison in the house of Jonathan the scribe; for they had made that the prison.
 
@@ -2006,7 +2006,7 @@
 
 20. Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the scribe, lest I die there.
 
-21. Then Zedekiah the king commanded, and they committed Jeremiah into the court of the guard; and they gave him daily a loaf of bread out of the bakers` street, until all the bread in the city was spent. Thus Jeremiah remained in the court of the guard.
+21. Then Zedekiah the king commanded, and they committed Jeremiah into the court of the guard; and they gave him daily a loaf of bread out of the bakers' street, until all the bread in the city was spent. Thus Jeremiah remained in the court of the guard.
 
 
 ## Chapter 38
@@ -2017,15 +2017,15 @@
 
 3. Thus says Yahweh, This city shall surely be given into the hand of the army of the king of Babylon, and he shall take it.
 
-4. Then the princes said to the king, Let this man, we pray you, be put to death; because he weakens the hands of the men of war who remain in this city, and the hands of all the people, in speaking such words to them: for this man doesn`t seek the welfare of this people, but the hurt.
+4. Then the princes said to the king, Let this man, we pray you, be put to death; because he weakens the hands of the men of war who remain in this city, and the hands of all the people, in speaking such words to them: for this man doesn't seek the welfare of this people, but the hurt.
 
 5. Zedekiah the king said, Behold, he is in your hand; for the king is not he who can do anything against you.
 
-6. Then took they Jeremiah, and cast him into the dungeon of Malchijah the king`s son, that was in the court of the guard: and they let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire.
+6. Then took they Jeremiah, and cast him into the dungeon of Malchijah the king's son, that was in the court of the guard: and they let down Jeremiah with cords. In the dungeon there was no water, but mire; and Jeremiah sank in the mire.
 
-7. Now when Ebedmelech the Ethiopian, a eunuch, who was in the king`s house, heard that they had put Jeremiah in the dungeon (the king then sitting in the gate of Benjamin),
+7. Now when Ebedmelech the Ethiopian, a eunuch, who was in the king's house, heard that they had put Jeremiah in the dungeon (the king then sitting in the gate of Benjamin),
 
-8. Ebedmelech went forth out of the king`s house, and spoke to the king, saying,
+8. Ebedmelech went forth out of the king's house, and spoke to the king, saying,
 
 9. My lord the king, these men have done evil in all that they have done to Jeremiah the prophet, whom they have cast into the dungeon; and he is likely to die in the place where he is, because of the famine; for there is no more bread in the city.
 
@@ -2043,9 +2043,9 @@
 
 16. So Zedekiah the king swore secretly to Jeremiah, saying, As Yahweh lives, who made us this soul, I will not put you to death, neither will I give you into the hand of these men who seek your life.
 
-17. Then said Jeremiah to Zedekiah, Thus says Yahweh, the God of Armies, the God of Israel: If you will go forth to the king of Babylon`s princes, then your soul shall live, and this city shall not be burned with fire; and you shall live, and your house.
+17. Then said Jeremiah to Zedekiah, Thus says Yahweh, the God of Armies, the God of Israel: If you will go forth to the king of Babylon's princes, then your soul shall live, and this city shall not be burned with fire; and you shall live, and your house.
 
-18. But if you will not go forth to the king of Babylon`s princes, then shall this city be given into the hand of the Chaldeans, and they shall burn it with fire, and you shall not escape out of their hand.
+18. But if you will not go forth to the king of Babylon's princes, then shall this city be given into the hand of the Chaldeans, and they shall burn it with fire, and you shall not escape out of their hand.
 
 19. Zedekiah the king said to Jeremiah, I am afraid of the Jews who are fallen away to the Chaldeans, lest they deliver me into their hand, and they mock me.
 
@@ -2053,15 +2053,15 @@
 
 21. But if you refuse to go forth, this is the word that Yahweh has shown me:
 
-22. behold, all the women who are left in the king of Judah`s house shall be brought forth to the king of Babylon`s princes, and those women shall say, Your familiar friends have set you on, and have prevailed over you: [now that] your feet are sunk in the mire, they are turned away back.
+22. behold, all the women who are left in the king of Judah's house shall be brought forth to the king of Babylon's princes, and those women shall say, Your familiar friends have set you on, and have prevailed over you: [now that] your feet are sunk in the mire, they are turned away back.
 
 23. They shall bring out all your wives and your children to the Chaldeans; and you shall not escape out of their hand, but shall be taken by the hand of the king of Babylon: and you shall cause this city to be burned with fire.
 
 24. Then said Zedekiah to Jeremiah, Let no man know of these words, and you shall not die.
 
-25. But if the princes hear that I have talked with you, and they come to you, and tell you, Declare to us now what you have said to the king; don`t hide it from us, and we will not put you to death; also what the king said to you:
+25. But if the princes hear that I have talked with you, and they come to you, and tell you, Declare to us now what you have said to the king; don't hide it from us, and we will not put you to death; also what the king said to you:
 
-26. then you shall tell them, I presented my supplication before the king, that he would not cause me to return to Jonathan`s house, to die there.
+26. then you shall tell them, I presented my supplication before the king, that he would not cause me to return to Jonathan's house, to die there.
 
 27. Then came all the princes to Jeremiah, and asked him; and he told them according to all these words that the king had commanded. So they left off speaking with him; for the matter was not perceived.
 
@@ -2076,15 +2076,15 @@
 
 3. that all the princes of the king of Babylon came in, and sat in the middle gate, [to wit], Nergal Sharezer, Samgarnebo, Sarsechim, Rabsaris, Nergal Sharezer, Rabmag, with all the rest of the princes of the king of Babylon.
 
-4. It happened that, when Zedekiah the king of Judah and all the men of war saw them, then they fled, and went forth out of the city by night, by the way of the king`s garden, through the gate between the two walls; and he went out toward the Arabah.
+4. It happened that, when Zedekiah the king of Judah and all the men of war saw them, then they fled, and went forth out of the city by night, by the way of the king's garden, through the gate between the two walls; and he went out toward the Arabah.
 
 5. But the army of the Chaldeans pursued after them, and overtook Zedekiah in the plains of Jericho: and when they had taken him, they brought him up to Nebuchadnezzar king of Babylon to Riblah in the land of Hamath; and he gave judgment on him.
 
 6. Then the king of Babylon killed the sons of Zedekiah in Riblah before his eyes: also the king of Babylon killed all the nobles of Judah.
 
-7. Moreover he put out Zedekiah`s eyes, and bound him in fetters, to carry him to Babylon.
+7. Moreover he put out Zedekiah's eyes, and bound him in fetters, to carry him to Babylon.
 
-8. The Chaldeans burned the king`s house, and the houses of the people, with fire, and broke down the walls of Jerusalem.
+8. The Chaldeans burned the king's house, and the houses of the people, with fire, and broke down the walls of Jerusalem.
 
 9. Then Nebuzaradan the captain of the guard carried away captive into Babylon the residue of the people who remained in the city, the deserters also who fell away to him, and the residue of the people who remained.
 
@@ -2115,7 +2115,7 @@
 
 3. and Yahweh has brought it, and done according as he spoke: because you have sinned against Yahweh, and have not obeyed his voice, therefore this thing has come on you.
 
-4. Now, behold, I release you this day from the chains which are on your hand. If it seems good to you to come with me into Babylon, come, and I will take care of you; but if it seems bad to you to come with me into Babylon, don`t: behold, all the land is before you; where it seems good and right to you to go, there go.
+4. Now, behold, I release you this day from the chains which are on your hand. If it seems good to you to come with me into Babylon, come, and I will take care of you; but if it seems bad to you to come with me into Babylon, don't: behold, all the land is before you; where it seems good and right to you to go, there go.
 
 5. Now while he was not yet gone back, Go back then, [said he], to Gedaliah the son of Ahikam, the son of Shaphan, whom the king of Babylon has made governor over the cities of Judah, and dwell with him among the people; or go wherever it seems right to you to go. So the captain of the guard gave him food and a present, and let him go.
 
@@ -2125,7 +2125,7 @@
 
 8. then they came to Gedaliah to Mizpah, [to wit], Ishmael the son of Nethaniah, and Johanan and Jonathan the sons of Kareah, and Seraiah the son of Tanhumeth, and the sons of Ephai the Netophathite, and Jezaniah the son of the Maacathite, they and their men.
 
-9. Gedaliah the son of Ahikam the son of Shaphan swore to them and to their men, saying, Don`t be afraid to serve the Chaldeans: dwell in the land, and serve the king of Babylon, and it shall be well with you.
+9. Gedaliah the son of Ahikam the son of Shaphan swore to them and to their men, saying, Don't be afraid to serve the Chaldeans: dwell in the land, and serve the king of Babylon, and it shall be well with you.
 
 10. As for me, behold, I will dwell at Mizpah, to stand before the Chaldeans who shall come to us: but you, gather wine and summer fruits and oil, and put them in your vessels, and dwell in your cities that you have taken.
 
@@ -2135,7 +2135,7 @@
 
 13. Moreover Johanan the son of Kareah, and all the captains of the forces who were in the fields, came to Gedaliah to Mizpah,
 
-14. and said to him, Do you know that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life? But Gedaliah the son of Ahikam didn`t believe them.
+14. and said to him, Do you know that Baalis the king of the children of Ammon has sent Ishmael the son of Nethaniah to take your life? But Gedaliah the son of Ahikam didn't believe them.
 
 15. Then Johanan the son of Kareah spoke to Gedaliah in Mizpah secretly, saying, Please let me go, and I will kill Ishmael the son of Nethaniah, and no man shall know it: why should he take your life, that all the Jews who are gathered to you should be scattered, and the remnant of Judah perish?
 
@@ -2158,11 +2158,11 @@
 
 7. It was so, when they came into the midst of the city, that Ishmael the son of Nethaniah killed them, [and cast them] into the midst of the pit, he, and the men who were with him.
 
-8. But ten men were found among those who said to Ishmael, Don`t kill us; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey. So he stopped, and didn`t kill them among their brothers.
+8. But ten men were found among those who said to Ishmael, Don't kill us; for we have stores hidden in the field, of wheat, and of barley, and of oil, and of honey. So he stopped, and didn't kill them among their brothers.
 
 9. Now the pit in which Ishmael cast all the dead bodies of the men whom he had killed, by the side of Gedaliah (the same was who which Asa the king had made for fear of Baasha king of Israel), Ishmael the son of Nethaniah filled it with those who were killed.
 
-10. Then Ishmael carried away captive all the residue of the people who were in Mizpah, even the king`s daughters, and all the people who remained in Mizpah, whom Nebuzaradan the captain of the guard had committed to Gedaliah the son of Ahikam; Ishmael the son of Nethaniah carried them away captive, and departed to go over to the children of Ammon.
+10. Then Ishmael carried away captive all the residue of the people who were in Mizpah, even the king's daughters, and all the people who remained in Mizpah, whom Nebuzaradan the captain of the guard had committed to Gedaliah the son of Ahikam; Ishmael the son of Nethaniah carried them away captive, and departed to go over to the children of Ammon.
 
 11. But when Johanan the son of Kareah, and all the captains of the forces who were with him, heard of all the evil that Ishmael the son of Nethaniah had done,
 
@@ -2191,7 +2191,7 @@
 
 4. Then Jeremiah the prophet said to them, I have heard you; behold, I will pray to Yahweh your God according to your words; and it shall happen that whatever thing Yahweh shall answer you, I will declare it to you; I will keep nothing back from you.
 
-5. Then they said to Jeremiah, Yahweh be a true and faithful witness among us, if we don`t do according to all the word with which Yahweh your God shall send you to us.
+5. Then they said to Jeremiah, Yahweh be a true and faithful witness among us, if we don't do according to all the word with which Yahweh your God shall send you to us.
 
 6. Whether it be good, or whether it be evil, we will obey the voice of Yahweh our God, to whom we send you; that it may be well with us, when we obey the voice of Yahweh our God.
 
@@ -2203,11 +2203,11 @@
 
 10. If you will still abide in this land, then will I build you, and not pull you down, and I will plant you, and not pluck you up; for I grieve over the distress that I have brought on you.
 
-11. Don`t be afraid of the king of Babylon, of whom you are afraid; don`t be afraid of him, says Yahweh: for I am with you to save you, and to deliver you from his hand.
+11. Don't be afraid of the king of Babylon, of whom you are afraid; don't be afraid of him, says Yahweh: for I am with you to save you, and to deliver you from his hand.
 
 12. I will grant you mercy, that he may have mercy on you, and cause you to return to your own land.
 
-13. But if you say, We will not dwell in this land; so that you don`t obey the voice of Yahweh your God,
+13. But if you say, We will not dwell in this land; so that you don't obey the voice of Yahweh your God,
 
 14. saying, No; but we will go into the land of Egypt, where we shall see no war, nor hear the sound of the trumpet, nor have hunger of bread; and there will we dwell:
 
@@ -2219,7 +2219,7 @@
 
 18. For thus says Yahweh of Armies, the God of Israel: As my anger and my wrath has been poured forth on the inhabitants of Jerusalem, so shall my wrath be poured forth on you, when you shall enter into Egypt; and you shall be an object of horror, and an astonishment, and a curse, and a reproach; and you shall see this place no more.
 
-19. Yahweh has spoken concerning you, remnant of Judah, Don`t you go into Egypt: know certainly that I have testified to you this day.
+19. Yahweh has spoken concerning you, remnant of Judah, Don't you go into Egypt: know certainly that I have testified to you this day.
 
 20. For you have dealt deceitfully against your own souls; for you sent me to Yahweh your God, saying, Pray for us to Yahweh our God; and according to all that Yahweh our God shall say, so declare to us, and we will do it:
 
@@ -2236,17 +2236,17 @@
 
 3. but Baruch the son of Neriah sets you on against us, to deliver us into the hand of the Chaldeans, that they may put us to death, and carry us away captive to Babylon.
 
-4. So Johanan the son of Kareah, and all the captains of the forces, and all the people, didn`t obey the voice of Yahweh, to dwell in the land of Judah.
+4. So Johanan the son of Kareah, and all the captains of the forces, and all the people, didn't obey the voice of Yahweh, to dwell in the land of Judah.
 
 5. But Johanan the son of Kareah, and all the captains of the forces, took all the remnant of Judah, who were returned from all the nations where they had been driven, to sojourn in the land of Judah;
 
-6. the men, and the women, and the children, and the king`s daughters, and every person who Nebuzaradan the captain of the guard had left with Gedaliah the son of Ahikam, the son of Shaphan; and Jeremiah the prophet, and Baruch the son of Neriah;
+6. the men, and the women, and the children, and the king's daughters, and every person who Nebuzaradan the captain of the guard had left with Gedaliah the son of Ahikam, the son of Shaphan; and Jeremiah the prophet, and Baruch the son of Neriah;
 
-7. and they came into the land of Egypt; for they didn`t obey the voice of Yahweh: and they came to Tahpanhes.
+7. and they came into the land of Egypt; for they didn't obey the voice of Yahweh: and they came to Tahpanhes.
 
 8. Then came the word of Yahweh to Jeremiah in Tahpanhes, saying,
 
-9. Take great stones in your hand, and hide them in mortar in the brick work, which is at the entry of Pharaoh`s house in Tahpanhes, in the sight of the men of Judah;
+9. Take great stones in your hand, and hide them in mortar in the brick work, which is at the entry of Pharaoh's house in Tahpanhes, in the sight of the men of Judah;
 
 10. and tell them, Thus says Yahweh of Armies, the God of Israel: Behold, I will send and take Nebuchadnezzar the king of Babylon, my servant, and will set his throne on these stones that I have hidden; and he shall spread his royal pavilion over them.
 
@@ -2263,11 +2263,11 @@
 
 2. Thus says Yahweh of Armies, the God of Israel: You have seen all the evil that I have brought on Jerusalem, and on all the cities of Judah; and behold, this day they are a desolation, and no man dwells therein,
 
-3. because of their wickedness which they have committed to provoke me to anger, in that they went to burn incense, [and] to serve other gods, that they didn`t know, neither they, nor you, nor your fathers.
+3. because of their wickedness which they have committed to provoke me to anger, in that they went to burn incense, [and] to serve other gods, that they didn't know, neither they, nor you, nor your fathers.
 
-4. However I sent to you all my servants the prophets, rising up early and sending them, saying, Oh, don`t do this abominable thing that I hate.
+4. However I sent to you all my servants the prophets, rising up early and sending them, saying, Oh, don't do this abominable thing that I hate.
 
-5. But they didn`t listen, nor inclined their ear to turn from their wickedness, to burn no incense to other gods.
+5. But they didn't listen, nor inclined their ear to turn from their wickedness, to burn no incense to other gods.
 
 6. Therefore my wrath and my anger was poured forth, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is this day.
 
@@ -2299,7 +2299,7 @@
 
 20. Then Jeremiah said to all the people, to the men, and to the women, even to all the people who had given him an answer, saying,
 
-21. The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn`t Yahweh remember them, and didn`t it come into his mind?
+21. The incense that you burned in the cities of Judah, and in the streets of Jerusalem, you and your fathers, your kings and your princes, and the people of the land, didn't Yahweh remember them, and didn't it come into his mind?
 
 22. so that Yahweh could no longer bear, because of the evil of your doings, and because of the abominations which you have committed; therefore your land has become a desolation, and an astonishment, and a curse, without inhabitant, as it is this day.
 
@@ -2330,7 +2330,7 @@
 
 4. You shall tell him, Thus says Yahweh: Behold, that which I have built will I break down, and that which I have planted I will pluck up; and this in the whole land.
 
-5. Do you seek great things for yourself? Don`t seek them; for, behold, I will bring evil on all flesh, says Yahweh; but your life will I give to you for a prey in all places where you go.
+5. Do you seek great things for yourself? Don't seek them; for, behold, I will bring evil on all flesh, says Yahweh; but your life will I give to you for a prey in all places where you go.
 
 
 ## Chapter 46
@@ -2343,9 +2343,9 @@
 
 4. Harness the horses, and get up, you horsemen, and stand forth with your helmets; furbish the spears, put on the coats of mail.
 
-5. Why have I seen it? they are dismayed and are turned backward; and their mighty ones are beaten down, and have fled apace, and don`t look back: terror is on every side, says Yahweh.
+5. Why have I seen it? they are dismayed and are turned backward; and their mighty ones are beaten down, and have fled apace, and don't look back: terror is on every side, says Yahweh.
 
-6. Don`t let the swift flee away, nor the mighty man escape; in the north by the river Euphrates have they stumbled and fallen.
+6. Don't let the swift flee away, nor the mighty man escape; in the north by the river Euphrates have they stumbled and fallen.
 
 7. Who is this who rises up like the Nile, whose waters toss themselves like the rivers?
 
@@ -2363,7 +2363,7 @@
 
 14. Declare in Egypt, and publish in Migdol, and publish in Memphis and in Tahpanhes: say, Stand forth, and prepare; for the sword has devoured around you.
 
-15. Why are your strong ones swept away? they didn`t stand, because Yahweh did drive them.
+15. Why are your strong ones swept away? they didn't stand, because Yahweh did drive them.
 
 16. He made many to stumble, yes, they fell one on another: and they said, Arise, and let us go again to our own people, and to the land of our birth, from the oppressing sword.
 
@@ -2375,11 +2375,11 @@
 
 20. Egypt is a very beautiful heifer; [but] destruction out of the north is come, it is come.
 
-21. Also her hired men in the midst of her are like calves of the stall; for they also are turned back, they are fled away together, they didn`t stand: for the day of their calamity is come on them, the time of their visitation.
+21. Also her hired men in the midst of her are like calves of the stall; for they also are turned back, they are fled away together, they didn't stand: for the day of their calamity is come on them, the time of their visitation.
 
 22. The sound of it shall go like the serpent; for they shall march with an army, and come against her with axes, as wood cutters.
 
-23. They shall cut down her forest, says Yahweh, though it can`t be searched; because they are more than the locusts, and are innumerable.
+23. They shall cut down her forest, says Yahweh, though it can't be searched; because they are more than the locusts, and are innumerable.
 
 24. The daughter of Egypt shall be disappointed; she shall be delivered into the hand of the people of the north.
 
@@ -2387,9 +2387,9 @@
 
 26. and I will deliver them into the hand of those who seek their lives, and into the hand of Nebuchadnezzar king of Babylon, and into the hand of his servants; and afterwards it shall be inhabited, as in the days of old, says Yahweh.
 
-27. But don`t you be afraid, Jacob my servant, neither be dismayed, Israel: for, behold, I will save you from afar, and your seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.
+27. But don't you be afraid, Jacob my servant, neither be dismayed, Israel: for, behold, I will save you from afar, and your seed from the land of their captivity; and Jacob shall return, and shall be quiet and at ease, and none shall make him afraid.
 
-28. Don`t you be afraid, O Jacob my servant, says Yahweh; for I am with you: for I will make a full end of all the nations where I have driven you; but I will not make a full end of you, but I will correct you in measure, and will in no way leave you unpunished.
+28. Don't you be afraid, O Jacob my servant, says Yahweh; for I am with you: for I will make a full end of all the nations where I have driven you; but I will not make a full end of you, but I will correct you in measure, and will in no way leave you unpunished.
 
 
 ## Chapter 47
@@ -2398,7 +2398,7 @@
 
 2. Thus says Yahweh: Behold, waters rise up out of the north, and shall become an overflowing stream, and shall overflow the land and all that is therein, the city and those who dwell therein; and the men shall cry, and all the inhabitants of the land shall wail.
 
-3. At the noise of the stamping of the hoofs of his strong ones, at the rushing of his chariots, at the rumbling of his wheels, the fathers don`t look back to their children for feebleness of hands;
+3. At the noise of the stamping of the hoofs of his strong ones, at the rushing of his chariots, at the rumbling of his wheels, the fathers don't look back to their children for feebleness of hands;
 
 4. because of the day that comes to destroy all the Philistines, to cut off from Tyre and Sidon every helper who remains: for Yahweh will destroy the Philistines, the remnant of the isle of Caphtor.
 
@@ -2463,7 +2463,7 @@
 
 26. Make him drunken; for he magnified himself against Yahweh: and Moab shall wallow in his vomit, and he also shall be in derision.
 
-27. For wasn`t Israel a derision to you? was he found among thieves? for as often as you speak of him, you shake your head.
+27. For wasn't Israel a derision to you? was he found among thieves? for as often as you speak of him, you shake your head.
 
 28. You inhabitants of Moab, leave the cities, and dwell in the rock; and be like the dove that makes her nest over the mouth of the abyss.
 
@@ -2524,13 +2524,13 @@
 
 8. Flee, turn back, dwell in the depths, inhabitants of Dedan; for I will bring the calamity of Esau on him, the time that I shall visit him.
 
-9. If grape gatherers came to you, would they not leave some gleaning grapes? if thieves by night, wouldn`t they destroy until they had enough?
+9. If grape gatherers came to you, would they not leave some gleaning grapes? if thieves by night, wouldn't they destroy until they had enough?
 
 10. But I have made Esau bare, I have uncovered his secret places, and he shall not be able to hide himself: his seed is destroyed, and his brothers, and his neighbors; and he is no more.
 
 11. Leave your fatherless children, I will preserve them alive; and let your widows trust in me.
 
-12. For thus says Yahweh: Behold, they to whom it didn`t pertain to drink of the cup shall certainly drink; and are you he who shall altogether go unpunished? You shall not go unpunished, but you shall surely drink.
+12. For thus says Yahweh: Behold, they to whom it didn't pertain to drink of the cup shall certainly drink; and are you he who shall altogether go unpunished? You shall not go unpunished, but you shall surely drink.
 
 13. For I have sworn by myself, says Yahweh, that Bozrah shall become an astonishment, a reproach, a waste, and a curse; and all its cities shall be perpetual wastes.
 
@@ -2552,7 +2552,7 @@
 
 22. Behold, he shall come up and fly as the eagle, and spread out his wings against Bozrah: and the heart of the mighty men of Edom at that day shall be as the heart of a woman in her pangs.
 
-23. Of Damascus. Hamath is confounded, and Arpad; for they have heard evil news, they are melted away: there is sorrow on the sea; it can`t be quiet.
+23. Of Damascus. Hamath is confounded, and Arpad; for they have heard evil news, they are melted away: there is sorrow on the sea; it can't be quiet.
 
 24. Damascus has grown feeble, she turns herself to flee, and trembling has seized on her: anguish and sorrows have taken hold of her, as of a woman in travail.
 
@@ -2591,7 +2591,7 @@
 
 1. The word that Yahweh spoke concerning Babylon, concerning the land of the Chaldeans, by Jeremiah the prophet.
 
-2. Declare among the nations and publish, and set up a standard; publish, and don`t conceal: say, Babylon is taken, Bel is disappointed, Merodach is dismayed; her images are disappointed, her idols are dismayed.
+2. Declare among the nations and publish, and set up a standard; publish, and don't conceal: say, Babylon is taken, Bel is disappointed, Merodach is dismayed; her images are disappointed, her idols are dismayed.
 
 3. For out of the north there comes up a nation against her, which shall make her land desolate, and none shall dwell therein: they are fled, they are gone, both man and animal.
 
@@ -2635,7 +2635,7 @@
 
 23. How is the hammer of the whole earth cut apart and broken! how is Babylon become a desolation among the nations!
 
-24. I have laid a snare for you, and you are also taken, Babylon, and you weren`t aware: you are found, and also caught, because you have striven against Yahweh.
+24. I have laid a snare for you, and you are also taken, Babylon, and you weren't aware: you are found, and also caught, because you have striven against Yahweh.
 
 25. Yahweh has opened his armory, and has brought forth the weapons of his indignation; for the Lord, Yahweh of Armies, has a work [to do] in the land of the Chaldeans.
 
@@ -2688,15 +2688,15 @@
 
 2. I will send to Babylon strangers, who shall winnow her; and they shall empty her land: for in the day of trouble they shall be against her around.
 
-3. Against [him who] bends let the archer bend his bow, and against [him who] lifts himself up in his coat of mail: and don`t spare her young men; utterly destroy all her army.
+3. Against [him who] bends let the archer bend his bow, and against [him who] lifts himself up in his coat of mail: and don't spare her young men; utterly destroy all her army.
 
 4. They shall fall down slain in the land of the Chaldeans, and thrust through in her streets.
 
 5. For Israel is not forsaken, nor Judah, of his God, of Yahweh of Armies; though their land is full of guilt against the Holy One of Israel.
 
-6. Flee out of the midst of Babylon, and save every man his life; don`t be cut off in her iniquity: for it is the time of Yahweh`s vengeance; he will render to her a recompense.
+6. Flee out of the midst of Babylon, and save every man his life; don't be cut off in her iniquity: for it is the time of Yahweh's vengeance; he will render to her a recompense.
 
-7. Babylon has been a golden cup in Yahweh`s hand, who made all the earth drunken: the nations have drunk of her wine; therefore the nations are mad.
+7. Babylon has been a golden cup in Yahweh's hand, who made all the earth drunken: the nations have drunk of her wine; therefore the nations are mad.
 
 8. Babylon is suddenly fallen and destroyed: wail for her; take balm for her pain, if so be she may be healed.
 
@@ -2758,7 +2758,7 @@
 
 37. Babylon shall become heaps, a dwelling place for jackals, an astonishment, and a hissing, without inhabitant.
 
-38. They shall roar together like young lions; they shall growl as lions` cubs.
+38. They shall roar together like young lions; they shall growl as lions' cubs.
 
 39. When they are heated, I will make their feast, and I will make them drunken, that they may rejoice, and sleep a perpetual sleep, and not wake, says Yahweh.
 
@@ -2774,7 +2774,7 @@
 
 45. My people, go away from the midst of her, and save yourselves every man from the fierce anger of Yahweh.
 
-46. Don`t let your heart faint, neither fear for the news that shall be heard in the land; for news shall come one year, and after that in another year [shall come] news, and violence in the land, ruler against ruler.
+46. Don't let your heart faint, neither fear for the news that shall be heard in the land; for news shall come one year, and after that in another year [shall come] news, and violence in the land, ruler against ruler.
 
 47. Therefore, behold, the days come, that I will execute judgment on the engraved images of Babylon; and her whole land shall be confounded; and all her slain shall fall in the midst of her.
 
@@ -2782,9 +2782,9 @@
 
 49. As Babylon has caused the slain of Israel to fall, so at Babylon shall fall the slain of all the land.
 
-50. You who have escaped the sword, go, don`t stand still; remember Yahweh from afar, and let Jerusalem come into your mind.
+50. You who have escaped the sword, go, don't stand still; remember Yahweh from afar, and let Jerusalem come into your mind.
 
-51. We are confounded, because we have heard reproach; confusion has covered our faces: for strangers are come into the sanctuaries of Yahweh`s house.
+51. We are confounded, because we have heard reproach; confusion has covered our faces: for strangers are come into the sanctuaries of Yahweh's house.
 
 52. Therefore, behold, the days come, says Yahweh, that I will execute judgment on her engraved images; and through all her land the wounded shall groan.
 
@@ -2815,7 +2815,7 @@
 
 ## Chapter 52
 
-1. Zedekiah was twenty-one years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother`s name was Hamutal the daughter of Jeremiah of Libnah.
+1. Zedekiah was twenty-one years old when he began to reign; and he reigned eleven years in Jerusalem: and his mother's name was Hamutal the daughter of Jeremiah of Libnah.
 
 2. He did that which was evil in the sight of Yahweh, according to all that Jehoiakim had done.
 
@@ -2827,7 +2827,7 @@
 
 6. In the fourth month, in the ninth day of the month, the famine was sore in the city, so that there was no bread for the people of the land.
 
-7. Then a breach was made in the city, and all the men of war fled, and went forth out of the city by night by the way of the gate between the two walls, which was by the king`s garden; (now the Chaldeans were against the city all around;) and they went toward the Arabah.
+7. Then a breach was made in the city, and all the men of war fled, and went forth out of the city by night by the way of the gate between the two walls, which was by the king's garden; (now the Chaldeans were against the city all around;) and they went toward the Arabah.
 
 8. But the army of the Chaldeans pursued after the king, and overtook Zedekiah in the plains of Jericho; and all his army was scattered from him.
 
@@ -2839,7 +2839,7 @@
 
 12. Now in the fifth month, in the tenth day of the month, which was the nineteenth year of king Nebuchadnezzar, king of Babylon, came Nebuzaradan the captain of the guard, who stood before the king of Babylon, into Jerusalem:
 
-13. and he burned the house of Yahweh, and the king`s house; and all the houses of Jerusalem, even every great house, burned he with fire.
+13. and he burned the house of Yahweh, and the king's house; and all the houses of Jerusalem, even every great house, burned he with fire.
 
 14. All the army of the Chaldeans, who were with the captain of the guard, broke down all the walls of Jerusalem all around.
 
@@ -2863,7 +2863,7 @@
 
 24. The captain of the guard took Seraiah the chief priest, and Zephaniah the second priest, and the three keepers of the threshold:
 
-25. and out of the city he took an officer who was set over the men of war; and seven men of those who saw the king`s face, who were found in the city; and the scribe of the captain of the army, who mustered the people of the land; and sixty men of the people of the land, who were found in the midst of the city.
+25. and out of the city he took an officer who was set over the men of war; and seven men of those who saw the king's face, who were found in the city; and the scribe of the captain of the army, who mustered the people of the land; and sixty men of the people of the land, who were found in the midst of the city.
 
 26. Nebuzaradan the captain of the guard took them, and brought them to the king of Babylon to Riblah.
 

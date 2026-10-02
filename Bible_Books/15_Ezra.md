@@ -10,7 +10,7 @@
 
 4. Whoever is left, in any place where he sojourns, let the men of his place help him with silver, and with gold, and with goods, and with animals, besides the freewill offering for the house of God which is in Jerusalem.
 
-5. Then rose up the heads of fathers` [houses] of Judah and Benjamin, and the priests, and the Levites, even all whose spirit God had stirred to go up to build the house of Yahweh which is in Jerusalem.
+5. Then rose up the heads of fathers' [houses] of Judah and Benjamin, and the priests, and the Levites, even all whose spirit God had stirred to go up to build the house of Yahweh which is in Jerusalem.
 
 6. All those who were around them strengthened their hands with vessels of silver, with gold, with goods, and with animals, and with precious things, besides all that was willingly offered.
 
@@ -135,15 +135,15 @@
 
 54. the children of Neziah, the children of Hatipha.
 
-55. The children of Solomon`s servants: the children of Sotai, the children of Hassophereth, the children of Peruda,
+55. The children of Solomon's servants: the children of Sotai, the children of Hassophereth, the children of Peruda,
 
 56. the children of Jaalah, the children of Darkon, the children of Giddel,
 
 57. the children of Shephatiah, the children of Hattil, the children of Pochereth Hazzebaim, the children of Ami.
 
-58. All the Nethinim, and the children of Solomon`s servants, were three hundred ninety-two.
+58. All the Nethinim, and the children of Solomon's servants, were three hundred ninety-two.
 
-59. These were those who went up from Tel Melah, Tel Harsha, Cherub, Addan, [and] Immer; but they could not show their fathers` houses, and their seed, whether they were of Israel:
+59. These were those who went up from Tel Melah, Tel Harsha, Cherub, Addan, [and] Immer; but they could not show their fathers' houses, and their seed, whether they were of Israel:
 
 60. the children of Delaiah, the children of Tobiah, the children of Nekoda, six hundred fifty-two.
 
@@ -161,9 +161,9 @@
 
 67. their camels, four hundred thirty-five; [their] donkeys, six thousand seven hundred and twenty.
 
-68. Some of the heads of fathers` [houses], when they came to the house of Yahweh which is in Jerusalem, offered willingly for the house of God to set it up in its place:
+68. Some of the heads of fathers' [houses], when they came to the house of Yahweh which is in Jerusalem, offered willingly for the house of God to set it up in its place:
 
-69. they gave after their ability into the treasury of the work sixty-one thousand darics of gold, and five thousand minas of silver, and one hundred priests` garments.
+69. they gave after their ability into the treasury of the work sixty-one thousand darics of gold, and five thousand minas of silver, and one hundred priests' garments.
 
 70. So the priests, and the Levites, and some of the people, and the singers, and the porters, and the Nethinim, lived in their cities, and all Israel in their cities.
 
@@ -192,7 +192,7 @@
 
 11. They sang one to another in praising and giving thanks to Yahweh, [saying], For he is good, for his loving kindness endures forever toward Israel. All the people shouted with a great shout, when they praised Yahweh, because the foundation of the house of Yahweh was laid.
 
-12. But many of the priests and Levites and heads of fathers` [houses], the old men who had seen the first house, when the foundation of this house was laid before their eyes, wept with a loud voice; and many shouted aloud for joy:
+12. But many of the priests and Levites and heads of fathers' [houses], the old men who had seen the first house, when the foundation of this house was laid before their eyes, wept with a loud voice; and many shouted aloud for joy:
 
 13. so that the people could not discern the noise of the shout of joy from the noise of the weeping of the people; for the people shouted with a loud shout, and the noise was heard afar off.
 
@@ -201,9 +201,9 @@
 
 1. Now when the adversaries of Judah and Benjamin heard that the children of the captivity were building a temple to Yahweh, the God of Israel;
 
-2. then they drew near to Zerubbabel, and to the heads of fathers` [houses], and said to them, Let us build with you; for we seek your God, as you do; and we sacrifice to him since the days of Esar Haddon king of Assyria, who brought us up here.
+2. then they drew near to Zerubbabel, and to the heads of fathers' [houses], and said to them, Let us build with you; for we seek your God, as you do; and we sacrifice to him since the days of Esar Haddon king of Assyria, who brought us up here.
 
-3. But Zerubbabel, and Jeshua, and the rest of the heads of fathers` [houses] of Israel, said to them, You have nothing to do with us in building a house to our God; but we ourselves together will build to Yahweh, the God of Israel, as king Cyrus the king of Persia has commanded us.
+3. But Zerubbabel, and Jeshua, and the rest of the heads of fathers' [houses] of Israel, said to them, You have nothing to do with us in building a house to our God; but we ourselves together will build to Yahweh, the God of Israel, as king Cyrus the king of Persia has commanded us.
 
 4. Then the people of the land weakened the hands of the people of Judah, and troubled them in building,
 
@@ -225,7 +225,7 @@
 
 13. Be it known now to the king that if this city is built, and the walls finished, they will not pay tribute, custom, or toll, and in the end it will be hurtful to the kings.
 
-14. Now because we eat the salt of the palace, and it is not appropriate for us to see the king`s dishonor, therefore have we sent and informed the king;
+14. Now because we eat the salt of the palace, and it is not appropriate for us to see the king's dishonor, therefore have we sent and informed the king;
 
 15. that search may be made in the book of the records of your fathers: so you shall find in the book of the records, and know that this city is a rebellious city, and hurtful to kings and provinces, and that they have moved sedition within the same of old time; for which cause was this city laid waste.
 
@@ -243,7 +243,7 @@
 
 22. Take heed that you not be slack herein: why should damage grow to the hurt of the kings?
 
-23. Then when the copy of king Artaxerxes` letter was read before Rehum, and Shimshai the scribe, and their companions, they went in haste to Jerusalem to the Jews, and made them to cease by force and power.
+23. Then when the copy of king Artaxerxes' letter was read before Rehum, and Shimshai the scribe, and their companions, they went in haste to Jerusalem to the Jews, and made them to cease by force and power.
 
 24. Then ceased the work of the house of God which is at Jerusalem; and it ceased until the second year of the reign of Darius king of Persia.
 
@@ -282,7 +282,7 @@
 
 16. Then came the same Sheshbazzar, and laid the foundations of the house of God which is in Jerusalem: and since that time even until now has it been in building, and yet it is not completed.
 
-17. Now therefore, if it seem good to the king, let there be search made in the king`s treasure house, which is there at Babylon, whether it be so, that a decree was made of Cyrus the king to build this house of God at Jerusalem; and let the king send his pleasure to us concerning this matter.
+17. Now therefore, if it seem good to the king, let there be search made in the king's treasure house, which is there at Babylon, whether it be so, that a decree was made of Cyrus the king to build this house of God at Jerusalem; and let the king send his pleasure to us concerning this matter.
 
 
 ## Chapter 6
@@ -293,7 +293,7 @@
 
 3. In the first year of Cyrus the king, Cyrus the king made a decree: Concerning the house of God at Jerusalem, let the house be built, the place where they offer sacrifices, and let its foundations be strongly laid; its height sixty cubits, and its breadth sixty cubits;
 
-4. with three courses of great stones, and a course of new timber: and let the expenses be given out of the king`s house.
+4. with three courses of great stones, and a course of new timber: and let the expenses be given out of the king's house.
 
 5. Also let the gold and silver vessels of the house of God, which Nebuchadnezzar took forth out of the temple which is at Jerusalem, and brought to Babylon, be restored, and brought again to the temple which is at Jerusalem, everyone to its place; and you shall put them in the house of God.
 
@@ -301,7 +301,7 @@
 
 7. Leave the work of this house of God alone; let the governor of the Jews and the elders of the Jews build this house of God in its place.
 
-8. Moreover I make a decree what you shall do to these elders of the Jews for the building of this house of God: that of the king`s goods, even of the tribute beyond the River, expenses be given with all diligence to these men, that they be not hindered.
+8. Moreover I make a decree what you shall do to these elders of the Jews for the building of this house of God: that of the king's goods, even of the tribute beyond the River, expenses be given with all diligence to these men, that they be not hindered.
 
 9. That which they have need of, both young bulls, and rams, and lambs, for burnt offerings to the God of heaven; [also] wheat, salt, wine, and oil, according to the word of the priests who are at Jerusalem, let it be given them day by day without fail;
 
@@ -372,7 +372,7 @@
 
 19. The vessels that are given to you for the service of the house of your God, deliver before the God of Jerusalem.
 
-20. Whatever more shall be needful for the house of your God, which you shall have occasion to bestow, bestow it out of the king`s treasure house.
+20. Whatever more shall be needful for the house of your God, which you shall have occasion to bestow, bestow it out of the king's treasure house.
 
 21. I, even I Artaxerxes the king, do make a decree to all the treasurers who are beyond the River, that whatever Ezra the priest, the scribe of the law of the God of heaven, shall require of you, it be done with all diligence,
 
@@ -382,18 +382,18 @@
 
 24. Also we inform you, that touching any of the priests and Levites, the singers, porters, Nethinim, or servants of this house of God, it shall not be lawful to impose tribute, custom, or toll, on them.
 
-25. You, Ezra, after the wisdom of your God who is in your hand, appoint magistrates and judges, who may judge all the people who are beyond the River, all such as know the laws of your God; and teach him who doesn`t know them.
+25. You, Ezra, after the wisdom of your God who is in your hand, appoint magistrates and judges, who may judge all the people who are beyond the River, all such as know the laws of your God; and teach him who doesn't know them.
 
 26. Whoever will not do the law of your God, and the law of the king, let judgment be executed on him with all diligence, whether it be to death, or to banishment, or to confiscation of goods, or to imprisonment.
 
-27. Blessed be Yahweh, the God of our fathers, who has put such a thing as this in the king`s heart, to beautify the house of Yahweh which is in Jerusalem;
+27. Blessed be Yahweh, the God of our fathers, who has put such a thing as this in the king's heart, to beautify the house of Yahweh which is in Jerusalem;
 
-28. and has extended loving kindness to me before the king, and his counselors, and before all the king`s mighty princes. I was strengthened according to the hand of Yahweh my God on me, and I gathered together out of Israel chief men to go up with me.
+28. and has extended loving kindness to me before the king, and his counselors, and before all the king's mighty princes. I was strengthened according to the hand of Yahweh my God on me, and I gathered together out of Israel chief men to go up with me.
 
 
 ## Chapter 8
 
-1. Now these are the heads of their fathers` [houses], and this is the genealogy of those who went up with me from Babylon, in the reign of Artaxerxes the king:
+1. Now these are the heads of their fathers' [houses], and this is the genealogy of those who went up with me from Babylon, in the reign of Artaxerxes the king:
 
 2. Of the sons of Phinehas, Gershom. Of the sons of Ithamar, Daniel. Of the sons of David, Hattush.
 
@@ -449,7 +449,7 @@
 
 28. I said to them, You are holy to Yahweh, and the vessels are holy; and the silver and the gold are a freewill offering to Yahweh, the God of your fathers.
 
-29. Watch, and keep them, until you weigh them before the chiefs of the priests and the Levites, and the princes of the fathers` [houses] of Israel, at Jerusalem, in the chambers of the house of Yahweh.
+29. Watch, and keep them, until you weigh them before the chiefs of the priests and the Levites, and the princes of the fathers' [houses] of Israel, at Jerusalem, in the chambers of the house of Yahweh.
 
 30. So the priests and the Levites received the weight of the silver and the gold, and the vessels, to bring them to Jerusalem to the house of our God.
 
@@ -463,7 +463,7 @@
 
 35. The children of the captivity, who had come out of exile, offered burnt offerings to the God of Israel, twelve bulls for all Israel, ninety-six rams, seventy-seven lambs, and twelve male goats for a sin offering: all this was a burnt offering to Yahweh.
 
-36. They delivered the king`s commissions to the king`s satraps, and to the governors beyond the River: and they furthered the people and the house of God.
+36. They delivered the king's commissions to the king's satraps, and to the governors beyond the River: and they furthered the people and the house of God.
 
 
 ## Chapter 9
@@ -490,11 +490,11 @@
 
 11. which you have commanded by your servants the prophets, saying, The land, to which you go to possess it, is an unclean land through the uncleanness of the peoples of the lands, through their abominations, which have filled it from one end to another with their filthiness:
 
-12. now therefore don`t give your daughters to their sons, neither take their daughters to your sons, nor seek their peace or their prosperity forever; that you may be strong, and eat the good of the land, and leave it for an inheritance to your children forever.
+12. now therefore don't give your daughters to their sons, neither take their daughters to your sons, nor seek their peace or their prosperity forever; that you may be strong, and eat the good of the land, and leave it for an inheritance to your children forever.
 
 13. After all that is come on us for our evil deeds, and for our great guilt, seeing that you our God have punished us less than our iniquities deserve, and have given us such a remnant,
 
-14. shall we again break your commandments, and join in affinity with the peoples that do these abominations? wouldn`t you be angry with us until you had consumed us, so that there should be no remnant, nor any to escape?
+14. shall we again break your commandments, and join in affinity with the peoples that do these abominations? wouldn't you be angry with us until you had consumed us, so that there should be no remnant, nor any to escape?
 
 15. Yahweh, the God of Israel, you are righteous; for we are left a remnant that is escaped, as it is this day: behold, we are before you in our guiltiness; for none can stand before you because of this.
 
@@ -515,7 +515,7 @@
 
 7. They made proclamation throughout Judah and Jerusalem to all the children of the captivity, that they should gather themselves together to Jerusalem;
 
-8. and that whoever didn`t come within three days, according to the counsel of the princes and the elders, all his substance should be forfeited, and himself separated from the assembly of the captivity.
+8. and that whoever didn't come within three days, according to the counsel of the princes and the elders, all his substance should be forfeited, and himself separated from the assembly of the captivity.
 
 9. Then all the men of Judah and Benjamin gathered themselves together to Jerusalem within the three days; it was the ninth month, on the twentieth [day] of the month: and all the people sat in the broad place before the house of God, trembling because of this matter, and for the great rain.
 
@@ -531,7 +531,7 @@
 
 15. Only Jonathan the son of Asahel and Jahzeiah the son of Tikvah stood up against this [matter]: and Meshullam and Shabbethai the Levite helped them.
 
-16. The children of the captivity did so. Ezra the priest, [with] certain heads of fathers` [houses], after their fathers` houses, and all of them by their names, were set apart; and they sat down in the first day of the tenth month to examine the matter.
+16. The children of the captivity did so. Ezra the priest, [with] certain heads of fathers' [houses], after their fathers' houses, and all of them by their names, were set apart; and they sat down in the first day of the tenth month to examine the matter.
 
 17. They made an end with all the men who had married foreign women by the first day of the first month.
 

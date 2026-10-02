@@ -18,7 +18,7 @@
 
 8. Jerusalem has grievously sinned; therefore she is become as an       unclean thing; all who honored her despise her, because they have seen her nakedness: yes, she sighs, and turns backward.
 
-9. Her filthiness was in her skirts; she didn`t remember her latter       end; therefore is she come down wonderfully; she has no comforter: see, Yahweh, my affliction; for the enemy has magnified himself.
+9. Her filthiness was in her skirts; she didn't remember her latter       end; therefore is she come down wonderfully; she has no comforter: see, Yahweh, my affliction; for the enemy has magnified himself.
 
 10. The adversary has spread out his hand on all her pleasant things: for she has seen that the nations are entered into her sanctuary, concerning whom you commanded that they should not enter into your       assembly.
 
@@ -49,7 +49,7 @@
 
 ## Chapter 2
 
-1. How has the Lord covered the daughter of Zion with a cloud in       his anger! He has cast down from heaven to the earth the beauty of Israel, And hasn`t remembered his footstool in the day of his anger.
+1. How has the Lord covered the daughter of Zion with a cloud in       his anger! He has cast down from heaven to the earth the beauty of Israel, And hasn't remembered his footstool in the day of his anger.
 
 2. The Lord has swallowed up all the habitations of Jacob, and has       not pitied: He has thrown down in his wrath the strongholds of the daughter of       Judah; He has brought them down to the ground; he has profaned the kingdom and       its princes.
 
@@ -71,7 +71,7 @@
 
 11. My eyes do fail with tears, my heart is troubled; My liver is poured on the earth, because of the destruction of the       daughter of my people, Because the young children and the infants swoon in the streets of the       city.
 
-12. They tell their mothers, Where is grain and wine? When they swoon as the wounded in the streets of the city, When their soul is poured out into their mothers` bosom.
+12. They tell their mothers, Where is grain and wine? When they swoon as the wounded in the streets of the city, When their soul is poured out into their mothers' bosom.
 
 13. What shall I testify to you? what shall I liken to you, daughter       of Jerusalem? What shall I compare to you, that I may comfort you, virgin daughter of       Zion? For your breach is great like the sea: who can heal you?
 
@@ -83,7 +83,7 @@
 
 17. Yahweh has done that which he purposed; he has fulfilled his       word that he commanded in the days of old; He has thrown down, and has not pitied: He has caused the enemy to rejoice over you; he has exalted the horn of       your adversaries.
 
-18. Their heart cried to the Lord: wall of the daughter of Zion, let tears run down like a river day and       night; Give yourself no respite; don`t let the apple of your eye cease.
+18. Their heart cried to the Lord: wall of the daughter of Zion, let tears run down like a river day and       night; Give yourself no respite; don't let the apple of your eye cease.
 
 19. Arise, cry out in the night, at the beginning of the watches; Pour out your heart like water before the face of the Lord: Lift up your hands toward him for the life of your young children, that       faint for hunger at the head of every street.
 
@@ -91,7 +91,7 @@
 
 21. The youth and the old man lie on the ground in the streets; My virgins and my young men are fallen by the sword: You have killed them in the day of your anger; you have slaughtered,       [and] not pitied.
 
-22. You have called, as in the day of a solemn assembly, my terrors       on every side; There was none that escaped or remained in the day of Yahweh`s anger: Those that I have dandled and brought up has my enemy consumed.
+22. You have called, as in the day of a solemn assembly, my terrors       on every side; There was none that escaped or remained in the day of Yahweh's anger: Those that I have dandled and brought up has my enemy consumed.
 
 
 ## Chapter 3
@@ -108,7 +108,7 @@
 
 6. He has made me to dwell in dark places, as those that have been       long dead.
 
-7. He has walled me about, that I can`t go forth; he has made my       chain heavy.
+7. He has walled me about, that I can't go forth; he has made my       chain heavy.
 
 8. Yes, when I cry, and call for help, he shuts out my prayer.
 
@@ -138,7 +138,7 @@
 
 21. This I recall to my mind; therefore have I hope.
 
-22. [It is of] Yahweh`s loving kindnesses that we are not consumed,       because his compassion doesn`t fail.
+22. [It is of] Yahweh's loving kindnesses that we are not consumed,       because his compassion doesn't fail.
 
 23. They are new every morning; great is your faithfulness.
 
@@ -166,11 +166,11 @@
 
 35. To turn aside the right of a man before the face of the Most       High,
 
-36. To subvert a man in his cause, the Lord doesn`t approve.
+36. To subvert a man in his cause, the Lord doesn't approve.
 
-37. Who is he who says, and it comes to pass, when the Lord doesn`t       command it?
+37. Who is he who says, and it comes to pass, when the Lord doesn't       command it?
 
-38. Doesn`t evil and good come out of the mouth of the Most High?
+38. Doesn't evil and good come out of the mouth of the Most High?
 
 39. Why does a living man complain, a man for the punishment of his       sins?
 
@@ -192,7 +192,7 @@
 
 48. My eye runs down with streams of water, for the destruction of       the daughter of my people.
 
-49. My eye pours down, and doesn`t cease, without any intermission,
+49. My eye pours down, and doesn't cease, without any intermission,
 
 50. Until Yahweh look down, and see from heaven.
 
@@ -206,9 +206,9 @@
 
 55. I called on your name, Yahweh, out of the lowest dungeon.
 
-56. You heard my voice; don`t hide your ear at my breathing, at my       cry.
+56. You heard my voice; don't hide your ear at my breathing, at my       cry.
 
-57. You drew near in the day that I called on you; you said, Don`t       be afraid.
+57. You drew near in the day that I called on you; you said, Don't       be afraid.
 
 58. Lord, you have pleaded the causes of my soul; you have redeemed       my life.
 
@@ -253,19 +253,19 @@
 
 11. Yahweh has accomplished his wrath, he has poured out his fierce       anger; He has kindled a fire in Zion, which has devoured its foundations.
 
-12. The kings of the earth didn`t believe, neither all the       inhabitants of the world, That the adversary and the enemy would enter into the gates of       Jerusalem.
+12. The kings of the earth didn't believe, neither all the       inhabitants of the world, That the adversary and the enemy would enter into the gates of       Jerusalem.
 
 13. [It is] because of the sins of her prophets, [and] the       iniquities of her priests, That have shed the blood of the just in the midst of her.
 
-14. They wander as blind men in the streets, they are polluted with       blood, So that men can`t touch their garments.
+14. They wander as blind men in the streets, they are polluted with       blood, So that men can't touch their garments.
 
-15. Depart! they cried to them, Unclean! depart, depart, don`t touch! When they fled away and wandered, men said among the nations, They       shall no more sojourn [here].
+15. Depart! they cried to them, Unclean! depart, depart, don't touch! When they fled away and wandered, men said among the nations, They       shall no more sojourn [here].
 
-16. The anger of Yahweh has scattered them; he will no more regard       them: They didn`t respect the persons of the priests, they didn`t favor the       elders.
+16. The anger of Yahweh has scattered them; he will no more regard       them: They didn't respect the persons of the priests, they didn't favor the       elders.
 
 17. Our eyes do yet fail [in looking] for our vain help: In our watching we have watched for a nation that could not save.
 
-18. They hunt our steps, so that we can`t go in our streets: Our end is near, our days are fulfilled; for our end is come.
+18. They hunt our steps, so that we can't go in our streets: Our end is near, our days are fulfilled; for our end is come.
 
 19. Our pursuers were swifter than the eagles of the sky: They chased us on the mountains, they laid wait for us in the       wilderness.
 

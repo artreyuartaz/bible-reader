@@ -20,14 +20,14 @@
 
 9. He said, "Call his name Lo-Ammi; for you are not my people, and I will not be yours.
 
-10. Yet the number of the children of Israel will be as the sand of the sea, which can`t be measured nor numbered; and it will come to pass that, in the place where it was said to them, `You are not my people,` they will be called `sons of the living God.`
+10. Yet the number of the children of Israel will be as the sand of the sea, which can't be measured nor numbered; and it will come to pass that, in the place where it was said to them, 'You are not my people,' they will be called 'sons of the living God.'
 
 11. The children of Judah and the children of Israel will be gathered together, and they will appoint themselves one head, and will go up from the land; for great will be the day of Jezreel.
 
 
 ## Chapter 2
 
-1. "Say to your brothers, `My people!`    and to your sisters, `My loved one!`
+1. "Say to your brothers, 'My people!'    and to your sisters, 'My loved one!'
 
 2. Contend with your mother!    Contend, for she is not my wife,    neither am I her husband; and let her put away her prostitution from her face,    and her adulteries from between her breasts;
 
@@ -35,11 +35,11 @@
 
 4. Indeed, on her children I will have no mercy;    for they are children of unfaithfulness;
 
-5. For their mother has played the prostitute.    She who conceived them has done shamefully; for she said, `I will go after my lovers,    who give me my bread and my water,    my wool and my flax,    my oil and my drink.`
+5. For their mother has played the prostitute.    She who conceived them has done shamefully; for she said, 'I will go after my lovers,    who give me my bread and my water,    my wool and my flax,    my oil and my drink.'
 
-6. Therefore, behold, I will hedge up your way with thorns,    and I will build a wall against her,    that she can`t find her way.
+6. Therefore, behold, I will hedge up your way with thorns,    and I will build a wall against her,    that she can't find her way.
 
-7. She will follow after her lovers,    but she won`t overtake them; and she will seek them,    but won`t find them. Then she will say, `I will go and return to my first husband;    for then was it better with me than now.`
+7. She will follow after her lovers,    but she won't overtake them; and she will seek them,    but won't find them. Then she will say, 'I will go and return to my first husband;    for then was it better with me than now.'
 
 8. For she did not know that I gave her the grain, the new wine, and       the oil,    and multiplied to her silver and gold, which they used for Baal.
 
@@ -49,7 +49,7 @@
 
 11. I will also cause all her celebrations to cease:    her feasts, her new moons, her Sabbaths, and all her solemn       assemblies.
 
-12. I will lay waste her vines and her fig trees,    about which she has said, `These are my wages that my lovers have       given me;    and I will make them a forest,`    and the animals of the field shall eat them.
+12. I will lay waste her vines and her fig trees,    about which she has said, 'These are my wages that my lovers have       given me;    and I will make them a forest,'    and the animals of the field shall eat them.
 
 13. I will visit on her the days of the Baals,    to which she burned incense, when she decked herself with her earrings and her jewels,    and went after her lovers,    and forgot me," says Yahweh.
 
@@ -57,7 +57,7 @@
 
 15. I will give her vineyards from there,    and the valley of Achor for a door of hope; and she will respond there,    as in the days of her youth,    and as in the day when she came up out of the land of Egypt.
 
-16. It will be in that day," says Yahweh,    "that you will call me `my husband,`    and no longer call me `my master.`
+16. It will be in that day," says Yahweh,    "that you will call me 'my husband,'    and no longer call me 'my master.'
 
 17. For I will take away the names of the Baals out of her mouth,    and they will no longer be mentioned by name.
 
@@ -71,7 +71,7 @@
 
 22. and the earth will respond to the grain, and the new wine,       and the oil;    and they will respond to Jezreel.
 
-23. I will sow her to me in the earth;    and I will have mercy on her who had not obtained mercy;    and I will tell those who were not my people, `You are my people;`    and they will say, `My God!`"
+23. I will sow her to me in the earth;    and I will have mercy on her who had not obtained mercy;    and I will tell those who were not my people, 'You are my people;'    and they will say, 'My God!'"
 
 
 ## Chapter 3
@@ -99,7 +99,7 @@
 
 5. You will stumble in the day,    and the prophet will also stumble with you in the night;    and I will destroy your mother.
 
-6. My people are destroyed for lack of knowledge.    Because you have rejected knowledge, I will also reject you,    that you may be no priest to me. Because you have forgotten your God`s law,    I will also forget your children.
+6. My people are destroyed for lack of knowledge.    Because you have rejected knowledge, I will also reject you,    that you may be no priest to me. Because you have forgotten your God's law,    I will also forget your children.
 
 7. As they were multiplied, so they sinned against me.    I will change their glory into shame.
 
@@ -117,7 +117,7 @@
 
 14. I will not punish your daughters when they play the prostitute,    nor your brides when they commit adultery; because the men consort with prostitutes,    and they sacrifice with the shrine prostitutes;    so the people without understanding will come to ruin.
 
-15. "Though you, Israel, play the prostitute,    yet don`t let Judah offend;    and don`t come to Gilgal,    neither go up to Beth Aven,    nor swear, `As Yahweh lives.`
+15. "Though you, Israel, play the prostitute,    yet don't let Judah offend;    and don't come to Gilgal,    neither go up to Beth Aven,    nor swear, 'As Yahweh lives.'
 
 16. For Israel has behaved extremely stubbornly, like a stubborn       heifer.    Then how will Yahweh feed them like a lamb in a meadow.
 
@@ -136,11 +136,11 @@
 
 3. I know Ephraim,    and Israel is not hidden from me; for now, Ephraim, you have played the prostitute.    Israel is defiled.
 
-4. Their deeds won`t allow them to turn to their God;    for the spirit of prostitution is within them,    and they don`t know Yahweh.
+4. Their deeds won't allow them to turn to their God;    for the spirit of prostitution is within them,    and they don't know Yahweh.
 
 5. The pride of Israel testifies to his face.    Therefore Israel and Ephraim will stumble in their iniquity.    Judah also will stumble with them.
 
-6. They will go with their flocks and with their herds to seek       Yahweh;    but they won`t find him.    He has withdrawn himself from them.
+6. They will go with their flocks and with their herds to seek       Yahweh;    but they won't find him.    He has withdrawn himself from them.
 
 7. They are unfaithful to Yahweh;    for they have borne illegitimate children.    Now the new moon will devour them with their fields.
 
@@ -190,7 +190,7 @@
 
 1. When I would heal Israel,    then the iniquity of Ephraim is uncovered,    also the wickedness of Samaria;    for they commit falsehood,    and the thief enters in,    and the gang of robbers ravages outside.
 
-2. They don`t consider in their hearts that I remember all their       wickedness.    Now their own deeds have engulfed them.    They are before my face.
+2. They don't consider in their hearts that I remember all their       wickedness.    Now their own deeds have engulfed them.    They are before my face.
 
 3. They make the king glad with their wickedness,    and the princes with their lies.
 
@@ -204,9 +204,9 @@
 
 8. Ephraim, he mixes himself among the nations.    Ephraim is a pancake not turned over.
 
-9. Strangers have devoured his strength,    and he doesn`t realize it. Indeed, gray hairs are here and there on him,    and he doesn`t realize it.
+9. Strangers have devoured his strength,    and he doesn't realize it. Indeed, gray hairs are here and there on him,    and he doesn't realize it.
 
-10. The pride of Israel testifies to his face;    yet they haven`t returned to Yahweh their God,    nor sought him, for all this.
+10. The pride of Israel testifies to his face;    yet they haven't returned to Yahweh their God,    nor sought him, for all this.
 
 11. "Ephraim is like an easily deceived dove, without understanding.    They call to Egypt.    They go to Assyria.
 
@@ -214,7 +214,7 @@
 
 13. Woe to them!    For they have wandered from me. Destruction to them!    For they have trespassed against me. Though I would redeem them,    yet they have spoken lies against me.
 
-14. They haven`t cried to me with their heart,    but they howl on their beds. They assemble themselves for grain and new wine.    They turn away from me.
+14. They haven't cried to me with their heart,    but they howl on their beds. They assemble themselves for grain and new wine.    They turn away from me.
 
 15. Though I have taught and strengthened their arms,    yet they plot evil against me.
 
@@ -223,13 +223,13 @@
 
 ## Chapter 8
 
-1. "Put the trumpet to your lips!    Something like an eagle is over Yahweh`s house,    because they have broken my covenant,    and rebelled against my law.
+1. "Put the trumpet to your lips!    Something like an eagle is over Yahweh's house,    because they have broken my covenant,    and rebelled against my law.
 
-2. They cry to me, `My God, we Israel acknowledge you!`
+2. They cry to me, 'My God, we Israel acknowledge you!'
 
 3. Israel has cast off that which is good.    The enemy will pursue him.
 
-4. They have set up kings, but not by me.    They have made princes, and I didn`t approve.    Of their silver and their gold they have made themselves idols,    that they may be cut off.
+4. They have set up kings, but not by me.    They have made princes, and I didn't approve.    Of their silver and their gold they have made themselves idols,    that they may be cut off.
 
 5. Let Samaria throw out his calf idol!    My anger burns against them!    How long will it be until they are capable of purity?
 
@@ -247,20 +247,20 @@
 
 12. I wrote for him the many things of my law;    but they were regarded as a strange thing.
 
-13. As for the sacrifices of my offerings,    they sacrifice flesh and eat it;    But Yahweh doesn`t accept them. Now he will remember their iniquity,    and punish their sins.    They will return to Egypt.
+13. As for the sacrifices of my offerings,    they sacrifice flesh and eat it;    But Yahweh doesn't accept them. Now he will remember their iniquity,    and punish their sins.    They will return to Egypt.
 
 14. For Israel has forgotten his Maker and built palaces;    and Judah has multiplied fortified cities;    but I will send a fire on his cities,    and it will devour its fortresses."
 
 
 ## Chapter 9
 
-1. Don`t rejoice, Israel, to jubilation like the nations;    for you were unfaithful to your God.    You love the wages of a prostitute at every grain threshing floor.
+1. Don't rejoice, Israel, to jubilation like the nations;    for you were unfaithful to your God.    You love the wages of a prostitute at every grain threshing floor.
 
-2. The threshing floor and the winepress won`t feed them,    and the new wine will fail her.
+2. The threshing floor and the winepress won't feed them,    and the new wine will fail her.
 
-3. They won`t dwell in Yahweh`s land;    but Ephraim will return to Egypt,    and they will eat unclean food in Assyria.
+3. They won't dwell in Yahweh's land;    but Ephraim will return to Egypt,    and they will eat unclean food in Assyria.
 
-4. They won`t pour out wine offerings to Yahweh,    neither will they be pleasing to him.    Their sacrifices will be to them like the bread of mourners;    all who eat of it will be polluted;    for their bread will be for their appetite.    It will not come into the house of Yahweh.
+4. They won't pour out wine offerings to Yahweh,    neither will they be pleasing to him.    Their sacrifices will be to them like the bread of mourners;    all who eat of it will be polluted;    for their bread will be for their appetite.    It will not come into the house of Yahweh.
 
 5. What will you do in the day of solemn assembly,    and in the day of the feast of Yahweh?
 
@@ -268,7 +268,7 @@
 
 7. The days of visitation have come.    The days of reckoning have come. Israel will consider the prophet to be a fool,    and the man who is inspired to be insane,    because of the abundance of your sins,    and because your hostility is great.
 
-8. A prophet watches over Ephraim with my God.    A fowler`s snare is on all of his paths,    and hostility in the house of his God.
+8. A prophet watches over Ephraim with my God.    A fowler's snare is on all of his paths,    and hostility in the house of his God.
 
 9. They have deeply corrupted themselves,    as in the days of Gibeah.    He will remember their iniquity.    He will punish them for their sins.
 
@@ -295,7 +295,7 @@
 
 2. Their heart is divided.    Now they will be found guilty.    He will demolish their altars.    He will destroy their sacred stones.
 
-3. Surely now they will say, "We have no king; for we don`t fear       Yahweh;    and the king, what can he do for us?"
+3. Surely now they will say, "We have no king; for we don't fear       Yahweh;    and the king, what can he do for us?"
 
 4. They make promises, swearing falsely in making covenants.    Therefore judgment springs up like poisonous weeds in the furrows of       the field.
 
@@ -307,7 +307,7 @@
 
 8. The high places also of Aven, the sin of Israel, will be       destroyed.    The thorn and the thistle will come up on their altars.    They will tell the mountains, "Cover us!" and the hills, "Fall on       us!"
 
-9. "Israel, you have sinned from the days of Gibeah.    There they remained.    The battle against the children of iniquity doesn`t overtake them in       Gibeah.
+9. "Israel, you have sinned from the days of Gibeah.    There they remained.    The battle against the children of iniquity doesn't overtake them in       Gibeah.
 
 10. When it is my desire, I will chastise them;    and the nations will be gathered against them,    when they are bound to their two transgressions.
 
@@ -328,15 +328,15 @@
 
 2. They called to them, so they went from them.    They sacrificed to the Baals,    and burned incense to engraved images.
 
-3. Yet I taught Ephraim to walk.    I took them by his arms;    but they didn`t know that I healed them.
+3. Yet I taught Ephraim to walk.    I took them by his arms;    but they didn't know that I healed them.
 
 4. I drew them with cords of a man, with ties of love;    and I was to them like those who lift up the yoke on their necks;    and I bent down to him and I fed him.
 
-5. "They won`t return into the land of Egypt;    but the Assyrian will be their king,    because they refused to repent.
+5. "They won't return into the land of Egypt;    but the Assyrian will be their king,    because they refused to repent.
 
 6. The sword will fall on their cities,    and will destroy the bars of their gates,    and will put an end to their plans.
 
-7. My people are determined to turn from me.    Though they call to the Most High,    he certainly won`t exalt them.
+7. My people are determined to turn from me.    Though they call to the Most High,    he certainly won't exalt them.
 
 8. "How can I give you up, Ephraim?    How can I hand you over, Israel?    How can I make you like Admah?    How can I make you like Zeboiim? My heart is turned within me,    my compassion is aroused.
 
@@ -365,7 +365,7 @@
 
 7. A merchant has dishonest scales in his hand.    He loves to defraud.
 
-8. Ephraim said, "Surely I have become rich,    I have found myself wealth.    In all my wealth they won`t find in me any iniquity that is sin."
+8. Ephraim said, "Surely I have become rich,    I have found myself wealth.    In all my wealth they won't find in me any iniquity that is sin."
 
 9. "But I am Yahweh your God from the land of Egypt.    I will yet again make you dwell in tents,    as in the days of the solemn feast.
 
@@ -384,7 +384,7 @@
 
 1. When Ephraim spoke, there was trembling.    He exalted himself in Israel,    but when he became guilty in Baal, he died.
 
-2. Now they sin more and more,    and have made themselves molten images of their silver,    even idols according to their own understanding,    all of them the work of the craftsmen.    They say of them, `They offer human sacrifice and kiss the calves.`
+2. Now they sin more and more,    and have made themselves molten images of their silver,    even idols according to their own understanding,    all of them the work of the craftsmen.    They say of them, 'They offer human sacrifice and kiss the calves.'
 
 3. Therefore they will be like the morning mist,    and like the dew that passes away early,    like the chaff that is driven with the whirlwind out of the       threshing floor,    and like the smoke out of the chimney.
 
@@ -400,13 +400,13 @@
 
 9. You are destroyed, Israel, because you are against me,    against your help.
 
-10. Where is your king now, that he may save you in all your cities?    And your judges, of whom you said, `Give me a king and princes?`
+10. Where is your king now, that he may save you in all your cities?    And your judges, of whom you said, 'Give me a king and princes?'
 
 11. I have given you a king in my anger,    and have taken him away in my wrath.
 
 12. The guilt of Ephraim is stored up.    His sin is stored up.
 
-13. The sorrows of a travailing woman will come on him.    He is an unwise son;    for when it is time, he doesn`t come to the opening of the womb.
+13. The sorrows of a travailing woman will come on him.    He is an unwise son;    for when it is time, he doesn't come to the opening of the womb.
 
 14. I will ransom them from the power of Sheol.    I will redeem them from death!    Death, where are your plagues?    Sheol, where is your destruction?  "Compassion will be hidden from my eyes.
 
@@ -421,7 +421,7 @@
 
 2. Take words with you, and return to Yahweh.    Tell him, "Forgive all our sins,    and accept that which is good:    so we offer our lips like bulls.
 
-3. Assyria can`t save us.    We won`t ride on horses;    neither will we say any more to the work of our hands, `Our gods!`    for in you the fatherless finds mercy."
+3. Assyria can't save us.    We won't ride on horses;    neither will we say any more to the work of our hands, 'Our gods!'    for in you the fatherless finds mercy."
 
 4. "I will heal their waywardness.    I will love them freely;    for my anger is turned away from him.
 

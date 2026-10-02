@@ -2,7 +2,7 @@
 
 ## Yarn
 
-Found only in 1 Kings 10:28, 2 Chr. 1:16. The Heb. word mikveh, i.e., "a stringing together," so rendered, rather signifies a host, or company, or a string of horses. The Authorized Version has: "And Solomon had horses brought out of Egypt, and linen yarn: the king`s merchants received the linen yarn at a price;" but the Revised Version correctly renders: "And the horses which Solomon had were brought out of Egypt; the king`s merchants received them in droves, each drove at a price."
+Found only in 1 Kings 10:28, 2 Chr. 1:16. The Heb. word mikveh, i.e., "a stringing together," so rendered, rather signifies a host, or company, or a string of horses. The Authorized Version has: "And Solomon had horses brought out of Egypt, and linen yarn: the king's merchants received the linen yarn at a price;" but the Revised Version correctly renders: "And the horses which Solomon had were brought out of Egypt; the king's merchants received them in droves, each drove at a price."
 
 ## Year
 
@@ -14,8 +14,8 @@ the Hebrew word rendered "inhabitants" in Josh. 17:7, but probably rather the na
 
 ## Yoke
 
-(1.) Fitted on the neck of oxen for the purpose of binding to them the traces by which they might draw the plough, etc. (Num. 19:2; Deut. 21:3). It was a curved piece of wood called _`ol_.    (2.) In Jer. 27:2; 28:10, 12 the word in the Authorized Version rendered "yoke" is _motah_, which properly means a "staff," or as in the Revised Version, "bar."    These words in the Hebrew are both used figuratively of severe bondage, or affliction, or subjection (Lev. 26:13; 1 Kings 12:4; Isa. 47:6; Lam. 1:14; 3:27). In the New Testament the word "yoke" is also used to denote servitude (Matt. 11:29, 30; Acts 15:10; Gal. 5:1).    (3.) In 1 Sam. 11:7, 1 Kings 19:21, Job 1:3 the word thus translated is _tzemed_, which signifies a pair, two oxen yoked or coupled together, and hence in 1 Sam. 14:14 it represents as much land as a yoke of oxen could plough in a day, like the Latin _jugum_. In Isa. 5:10 this word in the plural is translated "acres."
+(1.) Fitted on the neck of oxen for the purpose of binding to them the traces by which they might draw the plough, etc. (Num. 19:2; Deut. 21:3). It was a curved piece of wood called _'ol_.    (2.) In Jer. 27:2; 28:10, 12 the word in the Authorized Version rendered "yoke" is _motah_, which properly means a "staff," or as in the Revised Version, "bar."    These words in the Hebrew are both used figuratively of severe bondage, or affliction, or subjection (Lev. 26:13; 1 Kings 12:4; Isa. 47:6; Lam. 1:14; 3:27). In the New Testament the word "yoke" is also used to denote servitude (Matt. 11:29, 30; Acts 15:10; Gal. 5:1).    (3.) In 1 Sam. 11:7, 1 Kings 19:21, Job 1:3 the word thus translated is _tzemed_, which signifies a pair, two oxen yoked or coupled together, and hence in 1 Sam. 14:14 it represents as much land as a yoke of oxen could plough in a day, like the Latin _jugum_. In Isa. 5:10 this word in the plural is translated "acres."
 
 ## Yoke-fellow
 
-(Phil. 4:3), one of the apostle`s fellow-labourers. Some have conjectured that Epaphroditus is meant. Wyckliffe renders the phrase "the german felowe", i.e., "thee, germane [=genuine] comrade."
+(Phil. 4:3), one of the apostle's fellow-labourers. Some have conjectured that Epaphroditus is meant. Wyckliffe renders the phrase "the german felowe", i.e., "thee, germane [=genuine] comrade."

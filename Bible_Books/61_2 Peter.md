@@ -51,11 +51,11 @@
 
 2. Many will follow their immoral ways, and as a result, the way of the truth will be maligned.
 
-3. In covetousness they will exploit you with deceptive words: whose sentence now from of old doesn`t linger, and their destruction will not slumber.
+3. In covetousness they will exploit you with deceptive words: whose sentence now from of old doesn't linger, and their destruction will not slumber.
 
-4. For if God didn`t spare angels when they sinned, but cast them down to Tartarus, and committed them to pits of darkness, to be reserved for judgment;
+4. For if God didn't spare angels when they sinned, but cast them down to Tartarus, and committed them to pits of darkness, to be reserved for judgment;
 
-5. and didn`t spare the ancient world, but preserved Noah with seven others, a preacher of righteousness, when he brought a flood on the world of the ungodly;
+5. and didn't spare the ancient world, but preserved Noah with seven others, a preacher of righteousness, when he brought a flood on the world of the ungodly;
 
 6. and turning the cities of Sodom and Gomorrah into ashes, condemned them to destruction, having made them an example to those who would live ungodly;
 
@@ -67,17 +67,17 @@
 
 10. but chiefly those who walk after the flesh in the lust of defilement, and despise authority. Daring, self-willed, they are not afraid to speak evil of dignitaries;
 
-11. whereas angels, though greater in might and power, don`t bring a railing judgment against them before the Lord.
+11. whereas angels, though greater in might and power, don't bring a railing judgment against them before the Lord.
 
 12. But these, as unreasoning creatures, born natural animals to be taken and destroyed, speaking evil in matters about which they are ignorant, will in their destroying surely be destroyed,
 
 13. receiving the wages of unrighteousness; people who count it pleasure to revel in the daytime, spots and blemishes, reveling in their deceit while they feast with you;
 
-14. having eyes full of adultery, and who can`t cease from sin; enticing unsettled souls; having a heart trained in greed; children of cursing;
+14. having eyes full of adultery, and who can't cease from sin; enticing unsettled souls; having a heart trained in greed; children of cursing;
 
 15. forsaking the right way, they went astray, having followed the way of Balaam the son of Beor, who loved the wages of wrongdoing;
 
-16. but he was rebuked for his own disobedience. A mute donkey spoke with a man`s voice and stopped the madness of the prophet.
+16. but he was rebuked for his own disobedience. A mute donkey spoke with a man's voice and stopped the madness of the prophet.
 
 17. These are wells without water, clouds driven by a storm; for whom the blackness of darkness has been reserved forever.
 
@@ -108,7 +108,7 @@
 
 7. But the heavens that now are, and the earth, by the same word have been stored up for fire, being reserved against the day of judgment and destruction of ungodly men.
 
-8. But don`t forget this one thing, beloved, that one day is with the Lord as a thousand years, and a thousand years as one day.
+8. But don't forget this one thing, beloved, that one day is with the Lord as a thousand years, and a thousand years as one day.
 
 9. The Lord is not slow concerning his promise, as some count slowness; but is patient with us, not wishing that any should perish, but that all should come to repentance.
 

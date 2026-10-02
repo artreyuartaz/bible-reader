@@ -10,9 +10,9 @@
 
 4. For there are certain men who crept in secretly, even those who were long ago written about for this condemnation: ungodly men, turning the grace of our God into indecency, and denying our only Master, God, and Lord, Jesus Christ.
 
-5. Now I desire to remind you, though you already know this, that the Lord, having saved a people out of the land of Egypt, afterward destroyed those who didn`t believe.
+5. Now I desire to remind you, though you already know this, that the Lord, having saved a people out of the land of Egypt, afterward destroyed those who didn't believe.
 
-6. Angels who didn`t keep their first domain, but deserted their own dwelling place, he has kept in everlasting bonds under darkness for the judgment of the great day.
+6. Angels who didn't keep their first domain, but deserted their own dwelling place, he has kept in everlasting bonds under darkness for the judgment of the great day.
 
 7. Even as Sodom and Gomorrah, and the cities around them, having, in the same way as these, given themselves over to sexual immorality and gone after strange flesh, are set forth as an example, suffering the punishment of eternal fire.
 
@@ -20,9 +20,9 @@
 
 9. But Michael, the archangel, when contending with the devil and arguing about the body of Moses, dared not bring against him an abusive condemnation, but said, "May the Lord rebuke you!"
 
-10. But these speak evil of whatever things they don`t know. What they understand naturally, like the creatures without reason, they are destroyed in these things.
+10. But these speak evil of whatever things they don't know. What they understand naturally, like the creatures without reason, they are destroyed in these things.
 
-11. Woe to them! For they went in the way of Cain, and ran riotously in the error of Balaam for hire, and perished in Korah`s rebellion.
+11. Woe to them! For they went in the way of Cain, and ran riotously in the error of Balaam for hire, and perished in Korah's rebellion.
 
 12. These are hidden rocky reefs in your love feasts when they feast with you, shepherds who without fear feed themselves; clouds without water, carried along by winds; autumn leaves without fruit, twice dead, plucked up by the roots;
 

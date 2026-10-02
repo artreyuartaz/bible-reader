@@ -16,7 +16,7 @@
 
 7. and to give relief to you who are afflicted with us, when the Lord Jesus is revealed from heaven with his mighty angels in flaming fire,
 
-8. giving vengeance to those who don`t know God, and to those who don`t obey the Good News of our Lord Jesus,
+8. giving vengeance to those who don't know God, and to those who don't obey the Good News of our Lord Jesus,
 
 9. who will pay the penalty: eternal destruction from the face of the Lord and from the glory of his might,
 
@@ -37,7 +37,7 @@
 
 4. he who opposes and exalts himself against all that is called God or that is worshiped; so that he sits as God in the temple of God, setting himself up as God.
 
-5. Don`t you remember that, when I was still with you, I told you these things?
+5. Don't you remember that, when I was still with you, I told you these things?
 
 6. Now you know what is restraining him, to the end that he may be revealed in his own season.
 
@@ -47,11 +47,11 @@
 
 9. even he whose coming is according to the working of Satan with all power and signs and lying wonders,
 
-10. and with all deception of wickedness for those who are being lost, because they didn`t receive the love of the truth, that they might be saved.
+10. and with all deception of wickedness for those who are being lost, because they didn't receive the love of the truth, that they might be saved.
 
 11. Because of this, God sends them a working of error, that they should believe a lie;
 
-12. that they all might be judged who didn`t believe the truth, but had pleasure in unrighteousness.
+12. that they all might be judged who didn't believe the truth, but had pleasure in unrighteousness.
 
 13. But we are bound to always give thanks to God for you, brothers loved by the Lord, because God chose you from the beginning for salvation through sanctification of the Spirit and belief in the truth;
 
@@ -78,23 +78,23 @@
 
 6. Now we command you, brothers, in the name of our Lord Jesus Christ, that you withdraw yourselves from every brother who walks in rebellion, and not after the tradition which they received from us.
 
-7. For you know how you ought to imitate us. For we didn`t behave ourselves rebelliously among you,
+7. For you know how you ought to imitate us. For we didn't behave ourselves rebelliously among you,
 
-8. neither did we eat bread from anyone`s hand without paying for it, but in labor and travail worked night and day, that we might not burden any of you;
+8. neither did we eat bread from anyone's hand without paying for it, but in labor and travail worked night and day, that we might not burden any of you;
 
-9. not because we don`t have the right, but to make ourselves an example to you, that you should imitate us.
+9. not because we don't have the right, but to make ourselves an example to you, that you should imitate us.
 
 10. For even when we were with you, we commanded you this: "If anyone will not work, neither let him eat."
 
-11. For we hear of some who walk among you in rebellion, who don`t work at all, but are busybodies.
+11. For we hear of some who walk among you in rebellion, who don't work at all, but are busybodies.
 
 12. Now those who are that way, we command and exhort in the Lord Jesus Christ, that with quietness they work, and eat their own bread.
 
-13. But you, brothers, don`t be weary in doing well.
+13. But you, brothers, don't be weary in doing well.
 
-14. If any man doesn`t obey our word in this letter, note that man, that you have no company with him, to the end that he may be ashamed.
+14. If any man doesn't obey our word in this letter, note that man, that you have no company with him, to the end that he may be ashamed.
 
-15. Don`t count him as an enemy, but admonish him as a brother.
+15. Don't count him as an enemy, but admonish him as a brother.
 
 16. Now may the Lord of peace himself give you peace at all times in all ways. The Lord be with you all.
 

@@ -18,7 +18,7 @@
 
 8. Mourn like a virgin dressed in sackcloth for the husband of her       youth!
 
-9. The meal offering and the drink offering are cut off       from Yahweh`s house.    The priests, Yahweh`s ministers, mourn.
+9. The meal offering and the drink offering are cut off       from Yahweh's house.    The priests, Yahweh's ministers, mourn.
 
 10. The field is laid waste.    The land mourns, for the grain is destroyed,    The new wine has dried up,    and the oil languishes.
 
@@ -26,13 +26,13 @@
 
 12. The vine has dried up, and the fig tree withered;    the pomegranate tree, the palm tree also, and the apple tree,    even all of the trees of the field are withered;    for joy has withered away from the sons of men.
 
-13. Put on sackcloth and mourn, you priests!    Wail, you ministers of the altar. Come, lie all night in sackcloth, you ministers of my God,    for the meal offering and the drink offering are withheld from your       God`s house.
+13. Put on sackcloth and mourn, you priests!    Wail, you ministers of the altar. Come, lie all night in sackcloth, you ministers of my God,    for the meal offering and the drink offering are withheld from your       God's house.
 
 14. Sanctify a fast.    Call a solemn assembly.    Gather the elders,    and all the inhabitants of the land, to the house of Yahweh, your       God,    and cry to Yahweh.
 
 15. Alas for the day!    For the day of Yahweh is at hand,    and it will come as destruction from the Almighty.
 
-16. Isn`t the food cut off before our eyes;    joy and gladness from the house of our God?
+16. Isn't the food cut off before our eyes;    joy and gladness from the house of our God?
 
 17. The seeds rot under their clods.    The granaries are laid desolate.    The barns are broken down, for the grain has withered.
 
@@ -57,9 +57,9 @@
 
 6. At their presence the peoples are in anguish.    All faces have grown pale.
 
-7. They run like mighty men.    They climb the wall like warriors.    They each march in his line, and they don`t swerve off course.
+7. They run like mighty men.    They climb the wall like warriors.    They each march in his line, and they don't swerve off course.
 
-8. Neither does one jostle another;    they march everyone in his path,    and they burst through the defenses,    and don`t break ranks.
+8. Neither does one jostle another;    they march everyone in his path,    and they burst through the defenses,    and don't break ranks.
 
 9. They rush on the city.    They run on the wall.    They climb up into the houses.    They enter in at the windows like thieves.
 
@@ -77,7 +77,7 @@
 
 16. Gather the people.    Sanctify the assembly.    Assemble the elders.    Gather the children, and those who suck the breasts. Let the bridegroom go forth from his room,    and the bride out of her chamber.
 
-17. Let the priests, the ministers of Yahweh, weep between the porch       and the altar,    and let them say, "Spare your people, Yahweh,    and don`t give your heritage to reproach,    that the nations should rule over them. Why should they say among the peoples,    `Where is their God?`"
+17. Let the priests, the ministers of Yahweh, weep between the porch       and the altar,    and let them say, "Spare your people, Yahweh,    and don't give your heritage to reproach,    that the nations should rule over them. Why should they say among the peoples,    'Where is their God?'"
 
 18. Then Yahweh was jealous for his land,    And had pity on his people.
 
@@ -85,9 +85,9 @@
 
 20. But I will remove the northern army far away from you,    and will drive it into a barren and desolate land,    its front into the eastern sea,    and its back into the western sea;    and its stench will come up,    and its bad smell will rise." Surely he has done great things.
 
-21. Land, don`t be afraid.    Be glad and rejoice, for Yahweh has done great things.
+21. Land, don't be afraid.    Be glad and rejoice, for Yahweh has done great things.
 
-22. Don`t be afraid, you animals of the field;    for the pastures of the wilderness spring up,    for the tree bears its fruit.    The fig tree and the vine yield their strength.
+22. Don't be afraid, you animals of the field;    for the pastures of the wilderness spring up,    for the tree bears its fruit.    The fig tree and the vine yield their strength.
 
 23. "Be glad then, you children of Zion,    and rejoice in Yahweh, your God;    for he gives you the former rain in just measure,    and he causes the rain to come down for you,    the former rain and the latter rain,    as before.
 
@@ -130,7 +130,7 @@
 
 9. Proclaim this among the nations:    "Prepare for war!    Stir up the mighty men. Let all the warriors draw near.    Let them come up.
 
-10. Beat your plowshares into swords,    and your pruning hooks into spears.    Let the weak say, `I am strong.`
+10. Beat your plowshares into swords,    and your pruning hooks into spears.    Let the weak say, 'I am strong.'
 
 11. Hurry and come, all you surrounding nations,    and gather yourselves together." Cause your mighty ones to come down there, Yahweh.
 

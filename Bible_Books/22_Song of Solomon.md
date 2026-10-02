@@ -2,7 +2,7 @@
 
 ## Chapter 1
 
-1. The Song of songs, which is Solomon`s.  Beloved
+1. The Song of songs, which is Solomon's.  Beloved
 
 2. Let him kiss me with the kisses of his mouth;    for your love is better than wine.
 
@@ -10,15 +10,15 @@
 
 4. Take me away with you.    Let us hurry.    The king has brought me into his chambers.  Friends We will be glad and rejoice in you.    We will praise your love more than wine!  Beloved They are right to love you.
 
-5. I am dark, but lovely,    you daughters of Jerusalem,    like Kedar`s tents,    like Solomon`s curtains.
+5. I am dark, but lovely,    you daughters of Jerusalem,    like Kedar's tents,    like Solomon's curtains.
 
-6. Don`t stare at me because I am dark,    because the sun has scorched me. My mother`s sons were angry with me.    They made me keeper of the vineyards.    I haven`t kept my own vineyard.
+6. Don't stare at me because I am dark,    because the sun has scorched me. My mother's sons were angry with me.    They made me keeper of the vineyards.    I haven't kept my own vineyard.
 
 7. Tell me, you whom my soul loves,    where you graze your flock,    where you rest them at noon;    For why should I be as one who is veiled    beside the flocks of your companions?  Lover
 
-8. If you don`t know, most beautiful among women,    follow the tracks of the sheep.    Graze your young goats beside the shepherds` tents.
+8. If you don't know, most beautiful among women,    follow the tracks of the sheep.    Graze your young goats beside the shepherds' tents.
 
-9. I have compared you, my love,    to a steed in Pharaoh`s chariots.
+9. I have compared you, my love,    to a steed in Pharaoh's chariots.
 
 10. Your cheeks are beautiful with earrings,    your neck with strings of jewels.
 
@@ -76,19 +76,19 @@
 
 ## Chapter 3
 
-1. By night on my bed,    I sought him whom my soul loves.    I sought him, but I didn`t find him.
+1. By night on my bed,    I sought him whom my soul loves.    I sought him, but I didn't find him.
 
-2. I will get up now, and go about the city;    in the streets and in the squares I will seek him whom my soul loves.    I sought him, but I didn`t find him.
+2. I will get up now, and go about the city;    in the streets and in the squares I will seek him whom my soul loves.    I sought him, but I didn't find him.
 
 3. The watchmen who go about the city found me;    "Have you seen him whom my soul loves?"
 
-4. I had scarcely passed from them,    when I found him whom my soul loves. I held him, and would not let him go,    until I had brought him into my mother`s house,    into the chamber of her who conceived me.
+4. I had scarcely passed from them,    when I found him whom my soul loves. I held him, and would not let him go,    until I had brought him into my mother's house,    into the chamber of her who conceived me.
 
 5. I adjure you, daughters of Jerusalem,    by the roes, or by the hinds of the field,    that you not stir up, nor awaken love,    until it so desires.
 
 6. Who is this who comes up from the wilderness like pillars of       smoke,    perfumed with myrrh and frankincense,    with all spices of the merchant?
 
-7. Behold, it is Solomon`s carriage!    Sixty mighty men are around it,    of the mighty men of Israel.
+7. Behold, it is Solomon's carriage!    Sixty mighty men are around it,    of the mighty men of Israel.
 
 8. They all handle the sword, and are expert in war.    Every man has his sword on his thigh,    because of fear in the night.
 
@@ -107,7 +107,7 @@
 
 3. Your lips are like scarlet thread.    Your mouth is lovely.    Your temples are like a piece of a pomegranate behind your veil.
 
-4. Your neck is like David`s tower built for an armory,    whereon a thousand shields hang,    all the shields of the mighty men.
+4. Your neck is like David's tower built for an armory,    whereon a thousand shields hang,    all the shields of the mighty men.
 
 5. Your two breasts are like two fawns    that are twins of a roe,    which feed among the lilies.
 
@@ -115,7 +115,7 @@
 
 7. You are all beautiful, my love.    There is no spot in you.
 
-8. Come with me from Lebanon, my bride,    with me from Lebanon.    Look from the top of Amana,    from the top of Senir and Hermon,    from the lions` dens,    from the mountains of the leopards.
+8. Come with me from Lebanon, my bride,    with me from Lebanon.    Look from the top of Amana,    from the top of Senir and Hermon,    from the lions' dens,    from the mountains of the leopards.
 
 9. You have ravished my heart, my sister, my bride.    You have ravished my heart with one of your eyes,    with one chain of your neck.
 
@@ -146,7 +146,7 @@
 
 5. I rose up to open for my beloved.    My hands dripped with myrrh,    my fingers with liquid myrrh,    on the handles of the lock.
 
-6. I opened to my beloved;    but my beloved left; and had gone away. My heart went out when he spoke.    I looked for him, but I didn`t find him.    I called him, but he didn`t answer.
+6. I opened to my beloved;    but my beloved left; and had gone away. My heart went out when he spoke.    I looked for him, but I didn't find him.    I called him, but he didn't answer.
 
 7. The watchmen who go about the city found me.    They beat me.    They bruised me.    The keepers of the walls took my cloak away from me.
 
@@ -175,7 +175,7 @@
 
 2. My beloved has gone down to his garden,    to the beds of spices,    to feed in the gardens, and to gather lilies.
 
-3. I am my beloved`s, and my beloved is mine.    He browses among the lilies,
+3. I am my beloved's, and my beloved is mine.    He browses among the lilies,
 
 4. You are beautiful, my love, as Tirzah,    lovely as Jerusalem,    awesome as an army with banners.
 
@@ -187,20 +187,20 @@
 
 8. There are sixty queens, eighty concubines,    and virgins without number.
 
-9. My dove, my perfect one, is unique.    She is her mother`s only daughter.    She is the favorite one of her who bore her. The daughters saw her, and called her blessed;    the queens and the concubines, and they praised her.
+9. My dove, my perfect one, is unique.    She is her mother's only daughter.    She is the favorite one of her who bore her. The daughters saw her, and called her blessed;    the queens and the concubines, and they praised her.
 
 10. Who is she who looks forth as the morning,    beautiful as the moon,    clear as the sun,    and awesome as an army with banners?
 
 11. I went down into the nut tree grove,    to see the green plants of the valley,    to see whether the vine budded,    and the pomegranates were in flower.
 
-12. Without realizing it,    my desire set me with my royal people`s chariots.  Friends
+12. Without realizing it,    my desire set me with my royal people's chariots.  Friends
 
 13. Return, return, Shulammite!    Return, return, that we may gaze at you.  Lover Why do you desire to gaze at the Shulammite,    as at the dance of Mahanaim?
 
 
 ## Chapter 7
 
-1. How beautiful are your feet in sandals, prince`s daughter!    Your rounded thighs are like jewels,    the work of the hands of a skillful workman.
+1. How beautiful are your feet in sandals, prince's daughter!    Your rounded thighs are like jewels,    the work of the hands of a skillful workman.
 
 2. Your body is like a round goblet,    no mixed wine is wanting. Your waist is like a heap of wheat,    set about with lilies.
 
@@ -218,11 +218,11 @@
 
 9. Your mouth like the best wine,    that goes down smoothly for my beloved,    gliding through the lips of those who are asleep.
 
-10. I am my beloved`s.    His desire is toward me.
+10. I am my beloved's.    His desire is toward me.
 
 11. Come, my beloved, let us go forth into the field.    Let us lodge in the villages.
 
-12. Let`s go early up to the vineyards.    Let`s see whether the vine has budded,    its blossom is open,    and the pomegranates are in flower.    There I will give you my love.
+12. Let's go early up to the vineyards.    Let's see whether the vine has budded,    its blossom is open,    and the pomegranates are in flower.    There I will give you my love.
 
 13. The mandrakes give forth fragrance.    At our doors are all kinds of precious fruits, new and old,    which I have stored up for you, my beloved.
 
@@ -231,7 +231,7 @@
 
 1. Oh that you were like my brother,    who sucked the breasts of my mother! If I found you outside, I would kiss you;    yes, and no one would despise me.
 
-2. I would lead you, bringing you into my mother`s house,    who would instruct me. I would have you drink spiced wine,    of the juice of my pomegranate.
+2. I would lead you, bringing you into my mother's house,    who would instruct me. I would have you drink spiced wine,    of the juice of my pomegranate.
 
 3. His left hand would be under my head.    His right hand would embrace me.
 
@@ -241,7 +241,7 @@
 
 6. Set me as a seal on your heart,    as a seal on your arm;    for love is strong as death.    Jealousy is as cruel as Sheol.    Its flashes are flashes of fire,    a very flame of Yahweh.
 
-7. Many waters can`t quench love,    neither can floods drown it. If a man would give all the wealth of his house for love,    he would be utterly scorned.  Friends
+7. Many waters can't quench love,    neither can floods drown it. If a man would give all the wealth of his house for love,    he would be utterly scorned.  Friends
 
 8. We have a little sister.    She has no breasts. What shall we do for our sister    in the day when she is to be spoken for?
 

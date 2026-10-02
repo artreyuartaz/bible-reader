@@ -6,13 +6,13 @@
 
 2. Hear, heavens,    and listen, earth; for Yahweh has spoken: I have nourished and brought up children,    and they have rebelled against me.
 
-3. The ox knows his owner,    and the donkey his master`s crib;    but Israel doesn`t know,    my people don`t consider.
+3. The ox knows his owner,    and the donkey his master's crib;    but Israel doesn't know,    my people don't consider.
 
 4. Ah sinful nation,    a people loaded with iniquity,    a seed of evildoers,    children who deal corruptly! They have forsaken Yahweh.    They have despised the Holy One of Israel.    They are estranged and backward.
 
 5. Why should you be beaten more,    that you revolt more and more? The whole head is sick,    and the whole heart faint.
 
-6. From the sole of the foot even to the head there is no soundness       in it:    wounds, welts, and open sores.    They haven`t been closed, neither bandaged, neither soothed with oil.
+6. From the sole of the foot even to the head there is no soundness       in it:    wounds, welts, and open sores.    They haven't been closed, neither bandaged, neither soothed with oil.
 
 7. Your country is desolate.    Your cities are burned with fire.    Strangers devour your land in your presence,    and it is desolate,    as overthrown by strangers.
 
@@ -22,11 +22,11 @@
 
 10. Hear the word of Yahweh, you rulers of Sodom!    Listen to the law of our God, you people of Gomorrah!
 
-11. "What are the multitude of your sacrifices to me?," says Yahweh.    "I have had enough of the burnt offerings of rams,    and the fat of fed animals.    I don`t delight in the blood of bulls,    or of lambs,    or of male goats.
+11. "What are the multitude of your sacrifices to me?," says Yahweh.    "I have had enough of the burnt offerings of rams,    and the fat of fed animals.    I don't delight in the blood of bulls,    or of lambs,    or of male goats.
 
 12. When you come to appear before me,    who has required this at your hand, to trample my courts?
 
-13. Bring no more vain offerings.    Incense is an abomination to me;    new moons, Sabbaths, and convocations:    I can`t bear with evil assemblies.
+13. Bring no more vain offerings.    Incense is an abomination to me;    new moons, Sabbaths, and convocations:    I can't bear with evil assemblies.
 
 14. My soul hates your New Moons and your appointed feasts.    They are a burden to me.    I am weary of bearing them.
 
@@ -46,13 +46,13 @@
 
 22. Your silver has become dross,    your wine mixed with water.
 
-23. Your princes are rebellious, and companions of thieves.    Everyone loves bribes, and follows after rewards.    They don`t judge the fatherless,    neither does the cause of the widow come to them.
+23. Your princes are rebellious, and companions of thieves.    Everyone loves bribes, and follows after rewards.    They don't judge the fatherless,    neither does the cause of the widow come to them.
 
 24. Therefore the Lord, Yahweh of Armies,    the Mighty One of Israel, says: "Ah, I will get relief from my adversaries,    and avenge myself of my enemies;
 
 25. and I will turn my hand on you,    thoroughly purge away your dross,    and will take away all your tin.
 
-26. I will restore your judges as at the first,    and your counselors as at the beginning. Afterward you shall be called `The city of righteousness,    a faithful town.`
+26. I will restore your judges as at the first,    and your counselors as at the beginning. Afterward you shall be called 'The city of righteousness,    a faithful town.'
 
 27. Zion shall be redeemed with justice,    and her converts with righteousness.
 
@@ -69,9 +69,9 @@
 
 1. This is what Isaiah the son of Amoz saw concerning Judah and Jerusalem.
 
-2. It shall happen in the latter days, that the mountain of Yahweh`s       house shall be established on the top of the mountains,    and shall be raised above the hills;    and all nations shall flow to it.
+2. It shall happen in the latter days, that the mountain of Yahweh's       house shall be established on the top of the mountains,    and shall be raised above the hills;    and all nations shall flow to it.
 
-3. Many peoples shall go and say,    "Come, let`s go up to the mountain of Yahweh,    to the house of the God of Jacob;    and he will teach us of his ways,    and we will walk in his paths." For out of Zion the law shall go forth,    and the word of Yahweh from Jerusalem.
+3. Many peoples shall go and say,    "Come, let's go up to the mountain of Yahweh,    to the house of the God of Jacob;    and he will teach us of his ways,    and we will walk in his paths." For out of Zion the law shall go forth,    and the word of Yahweh from Jerusalem.
 
 4. He will judge between the nations,    and will decide concerning many peoples;    and they shall beat their swords into plowshares,    and their spears into pruning hooks. Nation shall not lift up sword against nation,    neither shall they learn war any more.
 
@@ -83,7 +83,7 @@
 
 8. Their land also is full of idols.    They worship the work of their own hands,    that which their own fingers have made.
 
-9. Man is brought low,    and mankind is humbled;    therefore don`t forgive them.
+9. Man is brought low,    and mankind is humbled;    therefore don't forgive them.
 
 10. Enter into the rock,    and hide in the dust, from before the terror of Yahweh,    and from the glory of his majesty.
 
@@ -130,7 +130,7 @@
 
 8. For Jerusalem is ruined, and Judah is fallen;    because their tongue and their doings are against Yahweh, to provoke the eyes of his glory.
 
-9. The look of their faces testify against them.    They parade their sin like Sodom.    They don`t hide it.    Woe to their soul!    For they have brought disaster upon themselves.
+9. The look of their faces testify against them.    They parade their sin like Sodom.    They don't hide it.    Woe to their soul!    For they have brought disaster upon themselves.
 
 10. Tell the righteous "Good!"    For they shall eat the fruit of their deeds.
 
@@ -171,7 +171,7 @@
 
 1. Seven women shall take hold of one man in that day, saying, "We will eat our own bread, and wear our own clothing: only let us be called by your name. Take away our reproach."
 
-2. In that day, Yahweh`s branch will be beautiful and glorious, and the fruit of the land will be the beauty and glory of the survivors of Israel.
+2. In that day, Yahweh's branch will be beautiful and glorious, and the fruit of the land will be the beauty and glory of the survivors of Israel.
 
 3. It will happen, that he who is left in Zion, and he who remains in Jerusalem, shall be called holy, even everyone who is written among the living in Jerusalem;
 
@@ -194,7 +194,7 @@
 
 5. Now I will tell you what I will do to my vineyard.    I will take away its hedge, and it will be eaten up.    I will break down its wall of it, and it will be trampled down.
 
-6. I will lay it a wasteland.    It won`t be pruned nor hoed,    but it will grow briers and thorns.    I will also command the clouds that they rain no rain on it."
+6. I will lay it a wasteland.    It won't be pruned nor hoed,    but it will grow briers and thorns.    I will also command the clouds that they rain no rain on it."
 
 7. For the vineyard of Yahweh of Armies is the house of Israel,    and the men of Judah his pleasant plant:    and he looked for justice, but, behold, oppression;    for righteousness, but, behold, a cry of distress.
 
@@ -206,7 +206,7 @@
 
 11. Woe to those who rise up early in the morning, that they may       follow strong drink;    who stay late into the night, until wine inflames them!
 
-12. The harp, lyre, tambourine, and flute, with wine, are at their       feasts;    but they don`t respect the work of Yahweh,    neither have they considered the operation of his hands.
+12. The harp, lyre, tambourine, and flute, with wine, are at their       feasts;    but they don't respect the work of Yahweh,    neither have they considered the operation of his hands.
 
 13. Therefore my people go into captivity for lack of knowledge.    Their honorable men are famished,    and their multitudes are parched with thirst.
 
@@ -232,13 +232,13 @@
 
 24. Therefore as the tongue of fire devours the stubble,    and as the dry grass sinks down in the flame,    so their root shall be as rottenness,    and their blossom shall go up as dust; because they have rejected the law of Yahweh of Armies,    and despised the word of the Holy One of Israel.
 
-25. Therefore Yahweh`s anger burns against his people,    and he has stretched out his hand against them, and has struck them. The mountains tremble,    and their dead bodies are as refuse in the midst of the streets. For all this, his anger is not turned away,    but his hand is still stretched out.
+25. Therefore Yahweh's anger burns against his people,    and he has stretched out his hand against them, and has struck them. The mountains tremble,    and their dead bodies are as refuse in the midst of the streets. For all this, his anger is not turned away,    but his hand is still stretched out.
 
 26. He will lift up a banner to the nations from far,    and he will whistle for them from the end of the earth.    Behold, they will come speedily and swiftly.
 
 27. None shall be weary nor stumble among them;    none shall slumber nor sleep;    neither shall the belt of their waist be untied,    nor the latchet of their shoes be broken:
 
-28. whose arrows are sharp,    and all their bows bent. Their horses` hoofs will be like flint,    and their wheels like a whirlwind.
+28. whose arrows are sharp,    and all their bows bent. Their horses' hoofs will be like flint,    and their wheels like a whirlwind.
 
 29. Their roaring will be like a lioness.    They will roar like young lions. Yes, they shall roar,    and seize their prey and carry it off,    and there will be no one to deliver.
 
@@ -261,9 +261,9 @@
 
 7. He touched my mouth with it, and said, "Behold, this has touched your lips; and your iniquity is taken away, and your sin forgiven."
 
-8. I heard the Lord`s voice, saying, "Whom shall I send, and who will go for us?"     Then I said, "Here I am. Send me!"
+8. I heard the Lord's voice, saying, "Whom shall I send, and who will go for us?"     Then I said, "Here I am. Send me!"
 
-9. He said, "Go, and tell this people, `You hear indeed,    but don`t understand; and you see indeed,    but don`t perceive.`
+9. He said, "Go, and tell this people, 'You hear indeed,    but don't understand; and you see indeed,    but don't perceive.'
 
 10. Make the heart of this people fat.    Make their ears heavy, and shut their eyes; lest they see with their eyes,    and hear with their ears,    and understand with their heart,    and turn again, and be healed."
 
@@ -280,19 +280,19 @@
 
 2. It was told the house of David, saying, "Syria is allied with Ephraim." His heart trembled, and the heart of his people, as the trees of the forest tremble with the wind.
 
-3. Then Yahweh said to Isaiah, "Go out now to meet Ahaz, you, and Shearjashub your son, at the end of the conduit of the upper pool, on the highway of the fuller`s field.
+3. Then Yahweh said to Isaiah, "Go out now to meet Ahaz, you, and Shearjashub your son, at the end of the conduit of the upper pool, on the highway of the fuller's field.
 
-4. Tell him, `Be careful, and keep calm. Don`t be afraid, neither let your heart be faint because of these two tails of smoking torches, for the fierce anger of Rezin and Syria, and of the son of Remaliah.
+4. Tell him, 'Be careful, and keep calm. Don't be afraid, neither let your heart be faint because of these two tails of smoking torches, for the fierce anger of Rezin and Syria, and of the son of Remaliah.
 
 5. Because Syria, Ephraim, and the son of Remaliah, have plotted evil against you, saying,
 
-6. "Let`s go up against Judah, and tear it apart, and let`s divide it among ourselves, and set up a king in its midst, even the son of Tabeel."
+6. "Let's go up against Judah, and tear it apart, and let's divide it among ourselves, and set up a king in its midst, even the son of Tabeel."
 
 7. This is what the Lord Yahweh says: "It shall not stand, neither shall it happen."
 
 8. For the head of Syria is Damascus, and the head of Damascus is Rezin; and within sixty-five years Ephraim shall be broken in pieces, so that it shall not be a people;
 
-9. and the head of Ephraim is Samaria, and the head of Samaria is Remaliah`s son. If you will not believe, surely you shall not be established.`"
+9. and the head of Ephraim is Samaria, and the head of Samaria is Remaliah's son. If you will not believe, surely you shall not be established.'"
 
 10. Yahweh spoke again to Ahaz, saying,
 
@@ -308,7 +308,7 @@
 
 16. For before the child knows to refuse the evil, and choose the good, the land whose two kings you abhor shall be forsaken.
 
-17. Yahweh will bring on you, on your people, and on your father`s house, days that have not come, from the day that Ephraim departed from Judah; even the king of Assyria.
+17. Yahweh will bring on you, on your people, and on your father's house, days that have not come, from the day that Ephraim departed from Judah; even the king of Assyria.
 
 18. It will happen in that day that Yahweh will whistle for the fly that is in the uttermost part of the rivers of Egypt, and for the bee that is in the land of Assyria.
 
@@ -329,17 +329,17 @@
 
 ## Chapter 8
 
-1. Yahweh said to me, "Take a large tablet, and write on it with a man`s pen, `For Maher Shalal Hash Baz;`
+1. Yahweh said to me, "Take a large tablet, and write on it with a man's pen, 'For Maher Shalal Hash Baz;'
 
 2. and I will take for myself faithful witnesses to testify: Uriah the priest, and Zechariah the son of Jeberechiah."
 
-3. I went to the prophetess, and she conceived, and bore a son. Then said Yahweh to me, "Call his name `Maher Shalal Hash Baz.`
+3. I went to the prophetess, and she conceived, and bore a son. Then said Yahweh to me, "Call his name 'Maher Shalal Hash Baz.'
 
-4. For before the child knows how to say, `My father,` and, `My mother,` the riches of Damascus and the spoil of Samaria will be carried away by the king of Assyria."
+4. For before the child knows how to say, 'My father,' and, 'My mother,' the riches of Damascus and the spoil of Samaria will be carried away by the king of Assyria."
 
 5. Yahweh spoke to me yet again, saying,
 
-6. "Because this people have refused the waters of Shiloah that go softly, and rejoice in Rezin and Remaliah`s son;
+6. "Because this people have refused the waters of Shiloah that go softly, and rejoice in Rezin and Remaliah's son;
 
 7. now therefore, behold, the Lord brings upon them the mighty flood waters of the River: the king of Assyria and all his glory. It will come up over all its channels, and go over all its banks.
 
@@ -351,7 +351,7 @@
 
 11. For Yahweh spoke thus to me with a strong hand, and instructed me not to walk in the way of this people, saying,
 
-12. "Don`t say, `A conspiracy!` concerning all about which this people say, `A conspiracy!` neither fear their threats, nor be terrorized.
+12. "Don't say, 'A conspiracy!' concerning all about which this people say, 'A conspiracy!' neither fear their threats, nor be terrorized.
 
 13. Yahweh of Armies is who you must respect as holy. He is the one you must fear. He is the one you must dread.
 
@@ -365,9 +365,9 @@
 
 18. Behold, I and the children whom Yahweh has given me are for signs and for wonders in Israel from Yahweh of Armies, who dwells in Mount Zion.
 
-19. When they tell you, "Consult with those who have familiar spirits and with the wizards, who chirp and who mutter:" shouldn`t a people consult with their God? Should they consult the dead on behalf of the living?
+19. When they tell you, "Consult with those who have familiar spirits and with the wizards, who chirp and who mutter:" shouldn't a people consult with their God? Should they consult the dead on behalf of the living?
 
-20. Turn to the law and to the testimony! If they don`t speak according to this word, surely there is no morning for them.
+20. Turn to the law and to the testimony! If they don't speak according to this word, surely there is no morning for them.
 
 21. They will pass through it, sore distressed and hungry; and it will happen that when they are hungry, they will worry, and curse by their king and by their God. They will turn their faces upward,
 
@@ -433,11 +433,11 @@
 
 6. I will send him against a profane nation, and against the people who anger me will I give him a command to take the spoil and to take the prey, and to tread them down like the mire of the streets.
 
-7. However he doesn`t mean so, neither does his heart think so; but it is in his heart to destroy, and to cut off not a few nations.
+7. However he doesn't mean so, neither does his heart think so; but it is in his heart to destroy, and to cut off not a few nations.
 
-8. For he says, "Aren`t all of my princes kings?
+8. For he says, "Aren't all of my princes kings?
 
-9. Isn`t Calno like Carchemish? Isn`t Hamath like Arpad? Isn`t Samaria like Damascus?"
+9. Isn't Calno like Carchemish? Isn't Hamath like Arpad? Isn't Samaria like Damascus?"
 
 10. As my hand has found the kingdoms of the idols, whose engraved images exceeded those of Jerusalem and of Samaria;
 
@@ -467,7 +467,7 @@
 
 23. For the Lord, Yahweh of Armies, will make a full end, and that determined, in the midst of all the earth.
 
-24. Therefore the Lord, Yahweh of Armies, says "My people who dwell in Zion, don`t be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did.
+24. Therefore the Lord, Yahweh of Armies, says "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did.
 
 25. For yet a very little while, and the indignation against you will be accomplished, and my anger will be directed to his destruction."
 
@@ -506,7 +506,7 @@
 
 7. The cow and the bear will graze.    Their young ones will lie down together.    The lion will eat straw like the ox.
 
-8. The nursing child will play near a cobra`s hole,    and the weaned child will put his hand on the viper`s den.
+8. The nursing child will play near a cobra's hole,    and the weaned child will put his hand on the viper's den.
 
 9. They will not hurt nor destroy in all my holy mountain;    for the earth will be full of the knowledge of Yahweh,    as the waters cover the sea.
 
@@ -516,7 +516,7 @@
 
 12. He will set up a banner for the nations, and will assemble the outcasts of Israel, and gather together the dispersed of Judah from the four corners of the earth.
 
-13. The envy also of Ephraim will depart, and those who persecute Judah will be cut off. Ephraim won`t envy Judah, and Judah won`t persecute Ephraim.
+13. The envy also of Ephraim will depart, and those who persecute Judah will be cut off. Ephraim won't envy Judah, and Judah won't persecute Ephraim.
 
 14. They will fly down on the shoulders of the Philistines on the west. Together they will plunder the children of the east. They will extend their power over Edom and Moab, and the children of Ammon will obey them.
 
@@ -554,7 +554,7 @@
 
 6. Wail; for the day of Yahweh is at hand! It will come as destruction from the Almighty.
 
-7. Therefore all hands will be feeble, and everyone`s heart will melt.
+7. Therefore all hands will be feeble, and everyone's heart will melt.
 
 8. They will be dismayed. Pangs and sorrows will seize them. They will be in pain like a woman in labor. They will look in amazement one at another. Their faces will be faces of flame.
 
@@ -578,7 +578,7 @@
 
 18. Their bows will dash the young men in pieces; and they shall have no pity on the fruit of the womb. Their eyes will not spare children.
 
-19. Babylon, the glory of kingdoms, the beauty of the Chaldeans` pride, will be like when God overthrew Sodom and Gomorrah.
+19. Babylon, the glory of kingdoms, the beauty of the Chaldeans' pride, will be like when God overthrew Sodom and Gomorrah.
 
 20. It will never be inhabited, neither will it be lived in from generation to generation. The Arabian will not pitch a tent there, neither will shepherds make their flocks lie down there.
 
@@ -591,7 +591,7 @@
 
 1. For Yahweh will have compassion on Jacob, and will yet choose Israel, and set them in their own land. The foreigner will join himself with them, and they will unite with the house of Jacob.
 
-2. The peoples will take them, and bring them to their place. The house of Israel will possess them in Yahweh`s land for servants and for handmaids. They will take as captives those whose captives they were; and they shall rule over their oppressors.
+2. The peoples will take them, and bring them to their place. The house of Israel will possess them in Yahweh's land for servants and for handmaids. They will take as captives those whose captives they were; and they shall rule over their oppressors.
 
 3. It will happen in the day that Yahweh will give you rest from your sorrow, from your trouble, and from the hard service in which you were made to serve,
 
@@ -621,7 +621,7 @@
 
 16. Those who see you will stare at you. They will ponder you, saying, "Is this the man who made the earth to tremble, who shook kingdoms;
 
-17. who made the world like a wilderness, and overthrew its cities; who didn`t release his prisoners to their home?"
+17. who made the world like a wilderness, and overthrew its cities; who didn't release his prisoners to their home?"
 
 18. All the kings of the nations, sleep in glory, everyone in his own house.
 
@@ -631,7 +631,7 @@
 
 21. Prepare for slaughter of his children because of the iniquity of their fathers, that they not rise up and possess the earth, and fill the surface of the world with cities.
 
-22. "I will rise up against them," says Yahweh of Armies, "and cut off from Babylon name and remnant, and son and son`s son," says Yahweh.
+22. "I will rise up against them," says Yahweh of Armies, "and cut off from Babylon name and remnant, and son and son's son," says Yahweh.
 
 23. "I will also make it a possession for the porcupine, and pools of water. I will sweep it with the broom of destruction," says Yahweh of Armies.
 
@@ -645,7 +645,7 @@
 
 28. This burden was in the year that king Ahaz died.
 
-29. Don`t rejoice, O Philistia, all of you, because the rod that struck you is broken; for out of the serpent`s root an adder will emerge, and his fruit will be a fiery flying serpent.
+29. Don't rejoice, O Philistia, all of you, because the rod that struck you is broken; for out of the serpent's root an adder will emerge, and his fruit will be a fiery flying serpent.
 
 30. The firstborn of the poor will eat, and the needy will lie down in safety; and I will kill your root with famine, and your remnant will be killed.
 
@@ -681,7 +681,7 @@
 
 2. For it will be that as wandering birds, as a scattered nest, so will the daughters of Moab be at the fords of the Arnon.
 
-3. Give counsel! Execute justice! Make your shade like the night in the midst of the noonday! Hide the outcasts! Don`t betray the fugitive!
+3. Give counsel! Execute justice! Make your shade like the night in the midst of the noonday! Hide the outcasts! Don't betray the fugitive!
 
 4. Let my outcasts dwell with you! As for Moab, be a hiding place for him from the face of the destroyer. For the extortioner is brought to nothing. Destruction ceases. The oppressors are consumed out of the land.
 
@@ -819,16 +819,16 @@
 
 5. They will be dismayed and confounded, because of Ethiopia their expectation, and of Egypt their glory.
 
-6. The inhabitants of this coast land will say in that day, `Behold, this is our expectation, where we fled for help to be delivered from the king of Assyria. And we, how will we escape?`"
+6. The inhabitants of this coast land will say in that day, 'Behold, this is our expectation, where we fled for help to be delivered from the king of Assyria. And we, how will we escape?'"
 
 
 ## Chapter 21
 
 1. The burden of the wilderness of the sea. As whirlwinds in the South sweep through, it comes from the wilderness, from an awesome land.
 
-2. A grievous vision is declared to me. The treacherous man deals treacherously, and the destroyer destroys. Go up, Elam; attack! I have stopped all of Media`s sighing.
+2. A grievous vision is declared to me. The treacherous man deals treacherously, and the destroyer destroys. Go up, Elam; attack! I have stopped all of Media's sighing.
 
-3. Therefore my thighs are filled with anguish. Pains have taken hold on me, like the pains of a woman in labor. I am in so much pain that I can`t hear. I so am dismayed that I can`t see.
+3. Therefore my thighs are filled with anguish. Pains have taken hold on me, like the pains of a woman in labor. I am in so much pain that I can't hear. I so am dismayed that I can't see.
 
 4. My heart flutters. Horror has frightened me. The twilight that I desired has been turned into trembling for me.
 
@@ -867,7 +867,7 @@
 
 3. All your rulers fled away together. They were bound by the archers. All who were found by you were bound together. They fled far away.
 
-4. Therefore I said, "Look away from me. I will weep bitterly. Don`t labor to comfort me for the destruction of the daughter of my people.
+4. Therefore I said, "Look away from me. I will weep bitterly. Don't labor to comfort me for the destruction of the daughter of my people.
 
 5. For it is a day of confusion, and of treading down, and of perplexity, from the Lord, Yahweh of Armies, in the valley of vision; a breaking down of the walls, and a crying to the mountains."
 
@@ -881,7 +881,7 @@
 
 10. You numbered the houses of Jerusalem, and you broke down the houses to fortify the wall.
 
-11. You also made a reservoir between the two walls for the water of the old pool. But you didn`t look to him who had done this, neither did you have respect for him who purposed it long ago.
+11. You also made a reservoir between the two walls for the water of the old pool. But you didn't look to him who had done this, neither did you have respect for him who purposed it long ago.
 
 12. In that day, the Lord, Yahweh of Armies, called to weeping, and to mourning, and to baldness, and to dressing in sackcloth:
 
@@ -891,11 +891,11 @@
 
 15. Thus says the Lord, Yahweh of Armies, "Go, get yourself to this treasurer, even to Shebna, who is over the house, and say,
 
-16. `What are you doing here? Who has you here, that you have dug out a tomb here?` Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!"
+16. 'What are you doing here? Who has you here, that you have dug out a tomb here?' Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!"
 
 17. Behold, Yahweh will overcome you and hurl you away violently. Yes, he will grasp you firmly.
 
-18. He will surely wind you around and around, and throw you like a ball into a large country. There you will die, and there the chariots of your glory will be, you shame of your lord`s house.
+18. He will surely wind you around and around, and throw you like a ball into a large country. There you will die, and there the chariots of your glory will be, you shame of your lord's house.
 
 19. I will thrust you from your office. You will be pulled down from your station.
 
@@ -905,9 +905,9 @@
 
 22. I will lay the key of the house of David on his shoulder. He will open, and no one will shut. He will shut, and no one will open.
 
-23. I will fasten him like a nail in a sure place. He will be for a throne of glory to his father`s house.
+23. I will fasten him like a nail in a sure place. He will be for a throne of glory to his father's house.
 
-24. They will hang on him all the glory of his father`s house, the offspring and the issue, every small vessel, from the cups even to all the pitchers.
+24. They will hang on him all the glory of his father's house, the offspring and the issue, every small vessel, from the cups even to all the pitchers.
 
 25. "In that day," says Yahweh of Armies, "the nail that was fastened in a sure place will give way. It will be cut down, and fall. The burden that was on it will be cut off, for Yahweh has spoken it."
 
@@ -934,7 +934,7 @@
 
 10. Pass through your land like the Nile, daughter of Tarshish. There is no restraint any more.
 
-11. He has stretched out his hand over the sea. He has shaken the kingdoms. Yahweh has ordered the destruction of Canaan`s strongholds.
+11. He has stretched out his hand over the sea. He has shaken the kingdoms. Yahweh has ordered the destruction of Canaan's strongholds.
 
 12. He said, "You shall rejoice no more, you oppressed virgin daughter of Sidon. Arise, pass over to Kittim. Even there you will have no rest."
 
@@ -1033,7 +1033,7 @@
 
 2. Open the gates, that the righteous nation may enter:    the one which keeps faith.
 
-3. You will keep whoever`s mind is steadfast in perfect peace,    because he trusts in you.
+3. You will keep whoever's mind is steadfast in perfect peace,    because he trusts in you.
 
 4. Trust in Yahweh forever;    for in Yah, Yahweh, is an everlasting Rock.
 
@@ -1047,9 +1047,9 @@
 
 9. With my soul have I desired you in the night. Yes, with my spirit within me will I seek you earnestly; for when your judgments are in the earth, the inhabitants of the world learn righteousness.
 
-10. Let favor be shown to the wicked, yet he will not learn righteousness. In the land of uprightness he will deal wrongfully, and will not see Yahweh`s majesty.
+10. Let favor be shown to the wicked, yet he will not learn righteousness. In the land of uprightness he will deal wrongfully, and will not see Yahweh's majesty.
 
-11. Yahweh, your hand is lifted up, yet they don`t see; but they will see your zeal for the people, and be disappointed. Yes, fire will consume your adversaries.
+11. Yahweh, your hand is lifted up, yet they don't see; but they will see your zeal for the people, and be disappointed. Yes, fire will consume your adversaries.
 
 12. Yahweh, you will ordain peace for us, for you have also worked all our works for us.
 
@@ -1131,7 +1131,7 @@
 
 14. Therefore hear the word of Yahweh, you scoffers, that rule this people in Jerusalem:
 
-15. "Because you have said, `We have made a covenant with death, and with Sheol are we in agreement. When the overflowing scourge passes through, it won`t come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.`"
+15. "Because you have said, 'We have made a covenant with death, and with Sheol are we in agreement. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'"
 
 16. Therefore thus says the Lord Yahweh, "Behold, I lay in Zion for a foundation a stone, a tried stone, a precious cornerstone of a sure foundation. He who believes shall not act hastily.
 
@@ -1145,19 +1145,19 @@
 
 21. For Yahweh will rise up as on Mount Perazim. He will be angry as in the valley of Gibeon; that he may do his work, his unusual work, and bring to pass his act, his extraordinary act.
 
-22. Now therefore don`t be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, Yahweh of Armies, on the whole earth.
+22. Now therefore don't be scoffers, lest your bonds be made strong; for I have heard a decree of destruction from the Lord, Yahweh of Armies, on the whole earth.
 
 23. Give ear, and hear my voice! Listen, and hear my speech!
 
 24. Does he who plows to sow plow continually? Does he keep turning the soil and breaking the clods?
 
-25. When he has leveled its surface, doesn`t he plant the dill, and scatter the cumin seed, and put in the wheat in rows, the barley in the appointed place, and the spelt in its place?
+25. When he has leveled its surface, doesn't he plant the dill, and scatter the cumin seed, and put in the wheat in rows, the barley in the appointed place, and the spelt in its place?
 
 26. For his God instructs him in right judgment, and teaches him.
 
 27. For the dill are not threshed with a sharp instrument, neither is a cart wheel turned over the cumin; but the dill is beaten out with a stick, and the cumin with a rod.
 
-28. Bread flour must be ground; so he will not always be threshing it. Although he drives the wheel of his threshing cart over it, his horses don`t grind it.
+28. Bread flour must be ground; so he will not always be threshing it. Although he drives the wheel of his threshing cart over it, his horses don't grind it.
 
 29. This also comes forth from Yahweh of Armies, who is wonderful in counsel, and excellent in wisdom.
 
@@ -1178,15 +1178,15 @@
 
 7. The multitude of all the nations that fight against Ariel, even all who fight against her and her stronghold, and who distress her, will be like a dream, a vision of the night.
 
-8. It will be like when a hungry man dreams, and behold, he eats; but he awakes, and his hunger isn`t satisfied; or like when a thirsty man dreams, and behold, he drinks; but he awakes, and behold, he is faint, and he is still thirsty. The multitude of all the nations that fight against Mount Zion will be like that.
+8. It will be like when a hungry man dreams, and behold, he eats; but he awakes, and his hunger isn't satisfied; or like when a thirsty man dreams, and behold, he drinks; but he awakes, and behold, he is faint, and he is still thirsty. The multitude of all the nations that fight against Mount Zion will be like that.
 
 9. Pause and wonder! Blind yourselves and be blind! They are drunken, but not with wine; they stagger, but not with strong drink.
 
 10. For Yahweh has poured out on you a spirit of deep sleep, and has closed your eyes, the prophets; and he has covered your heads, the seers.
 
-11. All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can`t, for it is sealed:"
+11. All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can't, for it is sealed:"
 
-12. and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can`t read."
+12. and the book is delivered to one who is not educated, saying, "Read this, please;" and he says, "I can't read."
 
 13. The Lord said, "Because this people draws near with their mouth and with their lips to honor me, but they have removed their heart far from me, and their fear of me is a commandment of men which has been taught;
 
@@ -1194,9 +1194,9 @@
 
 15. Woe to those who deeply hide their counsel from Yahweh, and whose works are in the dark, and who say, "Who sees us?" and "Who knows us?"
 
-16. You turn things upside down! Should the potter be thought to be like clay; that the thing made should say about him who made it, "He didn`t make me;" or the thing formed say of him who formed it, "He has no understanding?"
+16. You turn things upside down! Should the potter be thought to be like clay; that the thing made should say about him who made it, "He didn't make me;" or the thing formed say of him who formed it, "He has no understanding?"
 
-17. Isn`t it yet a very little while, and Lebanon will be turned into a fruitful field, and the fruitful field will be regarded as a forest?
+17. Isn't it yet a very little while, and Lebanon will be turned into a fruitful field, and the fruitful field will be regarded as a forest?
 
 18. In that day, the deaf will hear the words of the book, and the eyes of the blind will see out of obscurity and out of darkness.
 
@@ -1223,7 +1223,7 @@
 
 4. For their princes are at Zoan, and their ambassadors have come to Hanes.
 
-5. They shall all be ashamed because of a people that can`t profit them, that are not a help nor profit, but a shame, and also a reproach."
+5. They shall all be ashamed because of a people that can't profit them, that are not a help nor profit, but a shame, and also a reproach."
 
 6. The burden of the animals of the South. Through the land of trouble and anguish, of the lioness and the lion, the viper and fiery flying serpent, they carry their riches on the shoulders of young donkeys, and their treasures on the humps of camels, to an unprofitable people.
 
@@ -1233,7 +1233,7 @@
 
 9. For it is a rebellious people, lying children, children who will not hear the law of Yahweh;
 
-10. who tell the seers, "Don`t see!" and to the prophets, "Don`t prophesy to us right things. Tell us pleasant things. Prophesy deceits.
+10. who tell the seers, "Don't see!" and to the prophets, "Don't prophesy to us right things. Tell us pleasant things. Prophesy deceits.
 
 11. Get out of the way. Turn aside from the path. Cause the Holy One of Israel to cease from before us."
 
@@ -1241,7 +1241,7 @@
 
 13. therefore this iniquity shall be to you like a breach ready to fall, swelling out in a high wall, whose breaking comes suddenly in an instant.
 
-14. He will break it as a potter`s vessel is broken, breaking it in pieces without sparing, so that there won`t be found among the broken piece a piece good enough to take fire from the hearth, or to dip up water out of the cistern."
+14. He will break it as a potter's vessel is broken, breaking it in pieces without sparing, so that there won't be found among the broken piece a piece good enough to take fire from the hearth, or to dip up water out of the cistern."
 
 15. For thus said the Lord Yahweh, the Holy One of Israel, "You will be saved in returning and rest. Your strength will be in quietness and in confidence." You refused,
 
@@ -1253,7 +1253,7 @@
 
 19. For the people will dwell in Zion at Jerusalem. You will weep no more. He will surely be gracious to you at the voice of your cry. When he hears you, he will answer you.
 
-20. Though the Lord may give you the bread of adversity and the water of affliction, yet your teachers won`t be hidden anymore, but your eyes will see your teachers;
+20. Though the Lord may give you the bread of adversity and the water of affliction, yet your teachers won't be hidden anymore, but your eyes will see your teachers;
 
 21. and when you turn to the right hand, and when you turn to the left, your ears will hear a voice behind you, saying, "This is the way. Walk in it."
 
@@ -1271,7 +1271,7 @@
 
 28. His breath is as an overflowing stream that reaches even to the neck, to sift the nations with the sieve of destruction; and a bridle that leads to ruin will be in the jaws of the peoples.
 
-29. You will have a song, as in the night when a holy feast is kept; and gladness of heart, as when one goes with a flute to come to Yahweh`s mountain, to Israel`s Rock.
+29. You will have a song, as in the night when a holy feast is kept; and gladness of heart, as when one goes with a flute to come to Yahweh's mountain, to Israel's Rock.
 
 30. Yahweh will cause his glorious voice to be heard, and will show the descent of his arm, with the indignation of his anger, and the flame of a devouring fire, with a blast, storm, and hailstones.
 
@@ -1279,12 +1279,12 @@
 
 32. Every stroke of the rod of punishment, which Yahweh will lay on him, will be with the sound of tambourines and harps. He will fight with them in battles, brandishing weapons.
 
-33. For his burning place has long been ready. Yes, for the king it is made ready. He has made its pyre deep and large with fire and much wood. Yahweh`s breath, like a stream of sulfur, kindles it.
+33. For his burning place has long been ready. Yes, for the king it is made ready. He has made its pyre deep and large with fire and much wood. Yahweh's breath, like a stream of sulfur, kindles it.
 
 
 ## Chapter 31
 
-1. Woe to those who go down to Egypt for help,    and rely on horses,    and trust in chariots because they are many,    and in horsemen because they are very strong,    but they don`t look to the Holy One of Israel,    and they don`t seek Yahweh!
+1. Woe to those who go down to Egypt for help,    and rely on horses,    and trust in chariots because they are many,    and in horsemen because they are very strong,    but they don't look to the Holy One of Israel,    and they don't seek Yahweh!
 
 2. Yet he also is wise, and will bring disaster,    and will not call back his words, but will arise against the house       of the evildoers,    and against the help of those who work iniquity.
 
@@ -1323,13 +1323,13 @@
 
 9. Rise up, you women who are at ease! Hear my voice!    You careless daughters, give ear to my speech!
 
-10. For days beyond a year you will be troubled, you careless women;    for the vintage shall fail.    The harvest won`t come.
+10. For days beyond a year you will be troubled, you careless women;    for the vintage shall fail.    The harvest won't come.
 
 11. Tremble, you women who are at ease!    Be troubled, you careless ones!    Strip yourselves, make yourselves naked,    and put sackcloth on your waist.
 
 12. Beat your breasts for the pleasant fields,    for the fruitful vine.
 
-13. Thorns and briars will come up on my people`s land;    yes, on all the houses of joy in the joyous city.
+13. Thorns and briars will come up on my people's land;    yes, on all the houses of joy in the joyous city.
 
 14. For the palace will be forsaken.    The populous city will be deserted.    The hill and the watchtower will be for dens forever,    a delight for wild donkeys,    a pasture of flocks;
 
@@ -1348,7 +1348,7 @@
 
 ## Chapter 33
 
-1. Woe to you who destroy, but you weren`t destroyed;    and who betray, but nobody betrayed you! When you have finished destroying, you will be destroyed;    and when you have made an end of betrayal, you will be betrayed.
+1. Woe to you who destroy, but you weren't destroyed;    and who betray, but nobody betrayed you! When you have finished destroying, you will be destroyed;    and when you have made an end of betrayal, you will be betrayed.
 
 2. Yahweh, be gracious to us. We have waited for you.    Be our strength every morning,    our salvation also in the time of trouble.
 
@@ -1362,7 +1362,7 @@
 
 7. Behold, their valiant ones cry outside;    the ambassadors of peace weep bitterly.
 
-8. The highways are desolate.    The traveling man ceases.    The covenant is broken.    He has despised the cities.    He doesn`t respect man.
+8. The highways are desolate.    The traveling man ceases.    The covenant is broken.    He has despised the cities.    He doesn't respect man.
 
 9. The land mourns and languishes.    Lebanon is confounded and withers away.    Sharon is like a desert, and Bashan and Carmel are stripped bare.
 
@@ -1384,17 +1384,17 @@
 
 18. Your heart will meditate on the terror.    Where is he who counted?    Where is he who weighed?    Where is he who counted the towers?
 
-19. You will no longer see the fierce people,    a people of a deep speech that you can`t comprehend,    with a strange language that you can`t understand.
+19. You will no longer see the fierce people,    a people of a deep speech that you can't comprehend,    with a strange language that you can't understand.
 
-20. Look at Zion, the city of our appointed festivals.    Your eyes will see Jerusalem, a quiet habitation,    a tent that won`t be removed. Its stakes will never be plucked up,    nor will any of its cords be broken.
+20. Look at Zion, the city of our appointed festivals.    Your eyes will see Jerusalem, a quiet habitation,    a tent that won't be removed. Its stakes will never be plucked up,    nor will any of its cords be broken.
 
 21. But there Yahweh will be with us in majesty,    a place of broad rivers and streams,    in which no galley with oars will go,    neither will any gallant ship pass by there.
 
 22. For Yahweh is our judge.    Yahweh is our lawgiver.    Yahweh is our king.    He will save us.
 
-23. Your rigging is untied.    They couldn`t strengthen the foot of their mast.    They couldn`t spread the sail. Then the prey of a great spoil was divided.    The lame took the prey.
+23. Your rigging is untied.    They couldn't strengthen the foot of their mast.    They couldn't spread the sail. Then the prey of a great spoil was divided.    The lame took the prey.
 
-24. The inhabitant won`t say, "I am sick."    The people who dwell therein will be forgiven their iniquity.
+24. The inhabitant won't say, "I am sick."    The people who dwell therein will be forgiven their iniquity.
 
 
 ## Chapter 34
@@ -1409,7 +1409,7 @@
 
 5. For my sword has drunk its fill in the sky.    Behold, it will come down on Edom,    and on the people of my curse, for judgment.
 
-6. Yahweh`s sword is filled with blood.    It is covered with fat, with the blood of lambs and goats,    with the fat of the kidneys of rams;    for Yahweh has a sacrifice in Bozrah,    And a great slaughter in the land of Edom.
+6. Yahweh's sword is filled with blood.    It is covered with fat, with the blood of lambs and goats,    with the fat of the kidneys of rams;    for Yahweh has a sacrifice in Bozrah,    And a great slaughter in the land of Edom.
 
 7. The wild oxen will come down with them,    and the young bulls with the mighty bulls;    and their land will be drunken with blood,    and their dust made greasy with fat.
 
@@ -1417,7 +1417,7 @@
 
 9. Its streams will be turned into pitch,    its dust into sulfur,    And its land will become burning pitch.
 
-10. It won`t be quenched night nor day.    Its smoke will go up forever.    From generation to generation, it will lie waste.    No one will pass through it forever and ever.
+10. It won't be quenched night nor day.    Its smoke will go up forever.    From generation to generation, it will lie waste.    No one will pass through it forever and ever.
 
 11. But the pelican and the porcupine will possess it.    The owl and the raven will dwell in it. He will stretch the line of confusion over it,    and the plumb line of emptiness.
 
@@ -1438,11 +1438,11 @@
 
 1. The wilderness and the dry land will be glad.    The desert will rejoice and blossom like a rose.
 
-2. It will blossom abundantly,    and rejoice even with joy and singing.    Lebanon`s glory Lebanon will be given to it,    the excellence of Carmel and Sharon.    They will see Yahweh`s glory,    the excellence of our God.
+2. It will blossom abundantly,    and rejoice even with joy and singing.    Lebanon's glory Lebanon will be given to it,    the excellence of Carmel and Sharon.    They will see Yahweh's glory,    the excellence of our God.
 
 3. Strengthen the weak hands,    and make firm the feeble knees.
 
-4. Tell those who have a fearful heart, "Be strong.    Don`t be afraid.    Behold, your God will come with vengeance, God`s retribution.    He will come and save you.
+4. Tell those who have a fearful heart, "Be strong.    Don't be afraid.    Behold, your God will come with vengeance, God's retribution.    He will come and save you.
 
 5. Then the eyes of the blind will be opened,    and the ears of the deaf will be unstopped.
 
@@ -1454,42 +1454,42 @@
 
 9. No lion will be there,    nor will any ravenous animal go up on it.    They will not be found there;    but the redeemed will walk there.
 
-10. The Yahweh`s ransomed ones will return,    and come with singing to Zion;    and everlasting joy will be on their heads. They will obtain gladness and joy,    and sorrow and sighing will flee away."
+10. The Yahweh's ransomed ones will return,    and come with singing to Zion;    and everlasting joy will be on their heads. They will obtain gladness and joy,    and sorrow and sighing will flee away."
 
 
 ## Chapter 36
 
 1. Now it happened in the fourteenth year of king Hezekiah, that Sennacherib king of Assyria attacked all of the fortified cities of Judah, and captured them.
 
-2. The king of Assyria sent Rabshakeh from Lachish to Jerusalem to king Hezekiah with a large army. He stood by the aqueduct from the upper pool in the fuller`s field highway.
+2. The king of Assyria sent Rabshakeh from Lachish to Jerusalem to king Hezekiah with a large army. He stood by the aqueduct from the upper pool in the fuller's field highway.
 
 3. Then Eliakim the son of Hilkiah, who was over the household, and Shebna the scribe, and Joah, the son of Asaph, the recorder came out to him.
 
-4. Rabshakeh said to them, "Now tell Hezekiah, `Thus says the great king, the king of Assyria, "What confidence is this in which you trust?
+4. Rabshakeh said to them, "Now tell Hezekiah, 'Thus says the great king, the king of Assyria, "What confidence is this in which you trust?
 
 5. I say that your counsel and strength for the war are only vain words. Now in whom do you trust, that you have rebelled against me?
 
 6. Behold, you trust in the staff of this bruised reed, even in Egypt, which if a man leans on it, it will go into his hand and pierce it. So is Pharaoh king of Egypt to all who trust in him.
 
-7. But if you tell me, `We trust in Yahweh our God,` isn`t that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, `You shall worship before this altar?`"
+7. But if you tell me, 'We trust in Yahweh our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar?'"
 
 8. Now therefore, please make a pledge to my master the king of Assyria, and I will give you two thousand horses, if you are able on your part to set riders on them.
 
-9. How then can you turn away the face of one captain of the least of my master`s servants, and put your trust on Egypt for chariots and for horsemen?
+9. How then can you turn away the face of one captain of the least of my master's servants, and put your trust on Egypt for chariots and for horsemen?
 
-10. Have I come up now without Yahweh against this land to destroy it? Yahweh said to me, "Go up against this land, and destroy it."`"
+10. Have I come up now without Yahweh against this land to destroy it? Yahweh said to me, "Go up against this land, and destroy it."'"
 
-11. Then Eliakim, Shebna and Joah said to Rabshakeh, "Please speak to your servants in Aramaic, for we understand it; and don`t speak to us in the Jews` language in the hearing of the people who are on the wall."
+11. Then Eliakim, Shebna and Joah said to Rabshakeh, "Please speak to your servants in Aramaic, for we understand it; and don't speak to us in the Jews' language in the hearing of the people who are on the wall."
 
 12. But Rabshakeh said, "Has my master sent me only to your master and to you, to speak these words, and not to the men who sit on the wall, who will eat their own dung and drink their own urine with you?"
 
-13. Then Rabshakeh stood, and called out with a loud voice in the Jews` language, and said, "Hear the words of the great king, the king of Assyria!
+13. Then Rabshakeh stood, and called out with a loud voice in the Jews' language, and said, "Hear the words of the great king, the king of Assyria!
 
-14. Thus says the king, `Don`t let Hezekiah deceive you; for he will not be able to deliver you.
+14. Thus says the king, 'Don't let Hezekiah deceive you; for he will not be able to deliver you.
 
-15. Don`t let Hezekiah make you trust in Yahweh, saying, "Yahweh will surely deliver us. This city won`t be given into the hand of the king of Assyria."`
+15. Don't let Hezekiah make you trust in Yahweh, saying, "Yahweh will surely deliver us. This city won't be given into the hand of the king of Assyria."'
 
-16. Don`t listen to Hezekiah, for thus says the king of Assyria, `Make your peace with me, and come out to me; and each of you eat from his vine, and each one from his fig tree, and each one of you drink the waters of his own cistern;
+16. Don't listen to Hezekiah, for thus says the king of Assyria, 'Make your peace with me, and come out to me; and each of you eat from his vine, and each one from his fig tree, and each one of you drink the waters of his own cistern;
 
 17. until I come and take you away to a land like your own land, a land of grain and new wine, a land of bread and vineyards.
 
@@ -1497,42 +1497,42 @@
 
 19. Where are the gods of Hamath and Arpad? Where are the gods of Sepharvaim? Have they delivered Samaria from my hand?
 
-20. Who are they among all the gods of these countries that have delivered their country out of my hand, that Yahweh should deliver Jerusalem out of my hand?`"
+20. Who are they among all the gods of these countries that have delivered their country out of my hand, that Yahweh should deliver Jerusalem out of my hand?'"
 
-21. But they remained silent, and said nothing in reply, for the king`s commandment was, "Don`t answer him."
+21. But they remained silent, and said nothing in reply, for the king's commandment was, "Don't answer him."
 
 22. Then Eliakim the son of Hilkiah, who was over the household, and Shebna the scribe, and Joah, the son of Asaph, the recorder, came to Hezekiah with their clothes torn, and told him the words of Rabshakeh.
 
 
 ## Chapter 37
 
-1. It happened, when king Hezekiah heard it, that he tore his clothes, covered himself with sackcloth, and went into Yahweh`s house.
+1. It happened, when king Hezekiah heard it, that he tore his clothes, covered himself with sackcloth, and went into Yahweh's house.
 
 2. He sent Eliakim, who was over the household, and Shebna the scribe, and the elders of the priests, covered with sackcloth, to Isaiah the prophet, the son of Amoz.
 
-3. They said to him, "Thus says Hezekiah, `This day is a day of trouble, and of rebuke, and of rejection; for the children have come to the birth, and there is no strength to bring forth.
+3. They said to him, "Thus says Hezekiah, 'This day is a day of trouble, and of rebuke, and of rejection; for the children have come to the birth, and there is no strength to bring forth.
 
-4. It may be Yahweh your God will hear the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which Yahweh your God has heard. Therefore lift up your prayer for the remnant that is left.`"
+4. It may be Yahweh your God will hear the words of Rabshakeh, whom the king of Assyria his master has sent to defy the living God, and will rebuke the words which Yahweh your God has heard. Therefore lift up your prayer for the remnant that is left.'"
 
 5. So the servants of king Hezekiah came to Isaiah.
 
-6. Isaiah said to them, "Tell your master, `Thus says Yahweh, "Don`t be afraid of the words that you have heard, with which the servants of the king of Assyria have blasphemed me.
+6. Isaiah said to them, "Tell your master, 'Thus says Yahweh, "Don't be afraid of the words that you have heard, with which the servants of the king of Assyria have blasphemed me.
 
-7. Behold, I will put a spirit in him and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."`"
+7. Behold, I will put a spirit in him and he will hear news, and will return to his own land. I will cause him to fall by the sword in his own land."'"
 
 8. So Rabshakeh returned, and found the king of Assyria warring against Libnah, for he had heard that he was departed from Lachish.
 
 9. He heard news concerning Tirhakah king of Ethiopia, "He has come out to fight against you." When he heard it, he sent messengers to Hezekiah, saying,
 
-10. "Thus you shall speak to Hezekiah king of Judah, saying, `Don`t let your God in whom you trust deceive you, saying, "Jerusalem won`t be given into the hand of the king of Assyria."
+10. "Thus you shall speak to Hezekiah king of Judah, saying, 'Don't let your God in whom you trust deceive you, saying, "Jerusalem won't be given into the hand of the king of Assyria."
 
 11. Behold, you have heard what the kings of Assyria have done to all lands, by destroying them utterly. Shall you be delivered?
 
 12. Have the gods of the nations delivered them, which my fathers have destroyed, Gozan, Haran, Rezeph, and the children of Eden who were in Telassar?
 
-13. Where is the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?`"
+13. Where is the king of Hamath, and the king of Arpad, and the king of the city of Sepharvaim, of Hena, and Ivvah?'"
 
-14. Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to Yahweh`s house, and spread it before Yahweh.
+14. Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to Yahweh's house, and spread it before Yahweh.
 
 15. Hezekiah prayed to Yahweh, saying,
 
@@ -1542,11 +1542,11 @@
 
 18. Truly, Yahweh, the kings of Assyria have destroyed all the countries and their land,
 
-19. and have cast their gods into the fire; for they were no gods, but the work of men`s hands, wood and stone; therefore they have destroyed them.
+19. and have cast their gods into the fire; for they were no gods, but the work of men's hands, wood and stone; therefore they have destroyed them.
 
 20. Now therefore, Yahweh our God, save us from his hand, that all the kingdoms of the earth may know that you are Yahweh, even you only."
 
-21. Then Isaiah the son of Amoz sent to Hezekiah, saying, "Thus says Yahweh, the God of Israel, `Because you have prayed to me against Sennacherib king of Assyria,
+21. Then Isaiah the son of Amoz sent to Hezekiah, saying, "Thus says Yahweh, the God of Israel, 'Because you have prayed to me against Sennacherib king of Assyria,
 
 22. this is the word which Yahweh has spoken concerning him. The virgin daughter of Zion has despised you and ridiculed you. The daughter of Jerusalem has shaken her head at you.
 
@@ -1568,13 +1568,13 @@
 
 31. The remnant that is escaped of the house of Judah will again take root downward, and bear fruit upward.
 
-32. For out of Jerusalem a remnant will go forth, and survivors will escape from Mount Zion. The zeal of Yahweh of Armies will perform this.`
+32. For out of Jerusalem a remnant will go forth, and survivors will escape from Mount Zion. The zeal of Yahweh of Armies will perform this.'
 
-33. Therefore thus says Yahweh concerning the king of Assyria, `He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it.
+33. Therefore thus says Yahweh concerning the king of Assyria, 'He will not come to this city, nor shoot an arrow there, neither will he come before it with shield, nor cast up a mound against it.
 
-34. By the way that he came, by the same he shall return, and he shall not come to this city,` says Yahweh.
+34. By the way that he came, by the same he shall return, and he shall not come to this city,' says Yahweh.
 
-35. `For I will defend this city to save it, for my own sake, and for my servant David`s sake.`"
+35. 'For I will defend this city to save it, for my own sake, and for my servant David's sake.'"
 
 36. The angel of Yahweh went out and struck one hundred and eighty-five thousand men in the camp of the Assyrians. When men arose early in the morning, behold, these were all dead bodies.
 
@@ -1585,7 +1585,7 @@
 
 ## Chapter 38
 
-1. In those days was Hezekiah sick and near death. Isaiah the prophet, the son of Amoz, came to him, and said to him, "Thus says Yahweh, `Set your house in order, for you will die, and not live.`"
+1. In those days was Hezekiah sick and near death. Isaiah the prophet, the son of Amoz, came to him, and said to him, "Thus says Yahweh, 'Set your house in order, for you will die, and not live.'"
 
 2. Then Hezekiah turned his face to the wall and prayed to Yahweh,
 
@@ -1593,21 +1593,21 @@
 
 4. Then the word of Yahweh came to Isaiah, saying,
 
-5. "Go, and tell Hezekiah, `Thus says Yahweh, the God of David your father, "I have heard your prayer. I have seen your tears. Behold, I will add fifteen years to your life.
+5. "Go, and tell Hezekiah, 'Thus says Yahweh, the God of David your father, "I have heard your prayer. I have seen your tears. Behold, I will add fifteen years to your life.
 
 6. I will deliver you and this city out of the hand of the king of Assyria, and I will defend this city.
 
 7. This shall be the sign to you from Yahweh, that Yahweh will do this thing that he has spoken.
 
-8. Behold, I will cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps. So the sun returned ten steps on the sundial on which it had gone down."`"
+8. Behold, I will cause the shadow on the sundial, which has gone down on the sundial of Ahaz with the sun, to return backward ten steps. So the sun returned ten steps on the sundial on which it had gone down."'"
 
 9. The writing of Hezekiah king of Judah, when he had been sick, and had recovered of his sickness.
 
 10. I said, "In the middle of my life I go into the gates of       Sheol.    I am deprived of the residue of my years."
 
-11. I said, "I won`t see Yah,    Yah in the land of the living.    I will see man no more with the inhabitants of the world.
+11. I said, "I won't see Yah,    Yah in the land of the living.    I will see man no more with the inhabitants of the world.
 
-12. My dwelling is removed,    and is carried away from me like a shepherd`s tent. I have rolled up, like a weaver, my life.    He will cut me off from the loom.    From day even to night you will make an end of me.
+12. My dwelling is removed,    and is carried away from me like a shepherd's tent. I have rolled up, like a weaver, my life.    He will cut me off from the loom.    From day even to night you will make an end of me.
 
 13. I waited patiently until morning.    He breaks all my bones like a lion.    From day even to night you will make an end of me.
 
@@ -1619,7 +1619,7 @@
 
 17. Behold, for peace I had great anguish,    but you have in love for my soul delivered it from the pit of       corruption;    for you have cast all my sins behind your back.
 
-18. For Sheol can`t praise you.    Death can`t celebrate you. Those who go down into the pit can`t hope for your truth.
+18. For Sheol can't praise you.    Death can't celebrate you. Those who go down into the pit can't hope for your truth.
 
 19. The living, the living, he shall praise you, as I do this day.    The father shall make known your truth to the children.
 
@@ -1634,7 +1634,7 @@
 
 1. At that time, Merodach Baladan the son of Baladan, king of Babylon, sent letters and a present to Hezekiah; for he heard that he had been sick, and had recovered.
 
-2. Hezekiah was pleased with them, and showed them the house of his precious things, the silver, and the gold, the spices, and the precious oil, and all the house of his armor, and all that was found in his treasures. There was nothing in his house, nor in all his dominion, that Hezekiah didn`t show them.
+2. Hezekiah was pleased with them, and showed them the house of his precious things, the silver, and the gold, the spices, and the precious oil, and all the house of his armor, and all that was found in his treasures. There was nothing in his house, nor in all his dominion, that Hezekiah didn't show them.
 
 3. Then Isaiah the prophet came to king Hezekiah, and asked him, "What did these men say? Where did they come from to you?"     Hezekiah said, "They have come from a country far from me, even from Babylon."
 
@@ -1642,18 +1642,18 @@
 
 5. Then said Isaiah to Hezekiah, "Hear the word of Yahweh of Armies:
 
-6. `Behold, the days are coming when all that is in your house, and that which your fathers have stored up until this day, will be carried to Babylon. Nothing will be left,` says Yahweh.
+6. 'Behold, the days are coming when all that is in your house, and that which your fathers have stored up until this day, will be carried to Babylon. Nothing will be left,' says Yahweh.
 
-7. `They will take away your sons who will issue from you, whom you shall father, and they will be eunuchs in the king of Babylon`s palace.`"
+7. 'They will take away your sons who will issue from you, whom you shall father, and they will be eunuchs in the king of Babylon's palace.'"
 
-8. Then Hezekiah said to Isaiah, "Yahweh`s word which you have spoken is good." He said moreover, "For there will be peace and truth in my days."
+8. Then Hezekiah said to Isaiah, "Yahweh's word which you have spoken is good." He said moreover, "For there will be peace and truth in my days."
 
 
 ## Chapter 40
 
 1. "Comfort, comfort my people," says your God.
 
-2. "Speak comfortably to Jerusalem; and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of Yahweh`s hand double for all her sins."
+2. "Speak comfortably to Jerusalem; and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of Yahweh's hand double for all her sins."
 
 3. The voice of one who calls out,    "Prepare the way of Yahweh in the wilderness!    Make a level highway in the desert for our God.
 
@@ -1663,11 +1663,11 @@
 
 6. The voice of one       saying, "Cry!"    One said, "What shall I cry?" "All flesh is like grass,    and all its glory is like the flower of the field.
 
-7. The grass withers,    the flower fades,    because Yahweh`s breath blows on it.    Surely the people are like grass.
+7. The grass withers,    the flower fades,    because Yahweh's breath blows on it.    Surely the people are like grass.
 
 8. The grass withers,    the flower fades;    but the word of our God stands forever."
 
-9. You who tell good news to Zion, go up on a high mountain.    You who tell good news to Jerusalem, lift up your voice with       strength.    Lift it up. Don`t be afraid.    Say to the cities of Judah, "Behold, your God!"
+9. You who tell good news to Zion, go up on a high mountain.    You who tell good news to Jerusalem, lift up your voice with       strength.    Lift it up. Don't be afraid.    Say to the cities of Judah, "Behold, your God!"
 
 10. Behold, the Lord Yahweh will come as a mighty one,    and his arm will rule for him.    Behold, his reward is with him,    and his recompense before him.
 
@@ -1691,7 +1691,7 @@
 
 20. He who is too impoverished for such an offering chooses a tree       that will not rot.    He seeks a skillful workman to set up an engraved image for him that       will not be moved.
 
-21. Haven`t you known?    Haven`t you heard, yet?    Haven`t you been told from the beginning?    Haven`t you understood from the foundations of the earth?
+21. Haven't you known?    Haven't you heard, yet?    Haven't you been told from the beginning?    Haven't you understood from the foundations of the earth?
 
 22. It is he who sits above the circle of the earth,    and its inhabitants are like grasshoppers;    who stretches out the heavens like a curtain,    and spreads them out like a tent to dwell in;
 
@@ -1705,7 +1705,7 @@
 
 27. Why do you say, Jacob,    and speak, Israel,    "My way is hidden from Yahweh,    and the justice due me is disregarded by my God?"
 
-28. Haven`t you known?    Haven`t you heard?    The everlasting God, Yahweh,    The Creator of the ends of the earth, doesn`t faint.    He isn`t weary.    His understanding is unsearchable.
+28. Haven't you known?    Haven't you heard?    The everlasting God, Yahweh,    The Creator of the ends of the earth, doesn't faint.    He isn't weary.    His understanding is unsearchable.
 
 29. He gives power to the weak.    He increases the strength of him who has no might.
 
@@ -1716,7 +1716,7 @@
 
 ## Chapter 41
 
-1. "Keep silent before me, islands,    and let the peoples renew their strength. Let them come near,    then let them speak.    Let`s meet together for judgment.
+1. "Keep silent before me, islands,    and let the peoples renew their strength. Let them come near,    then let them speak.    Let's meet together for judgment.
 
 2. Who has raised up one from the east?    Whom called him to his foot in righteousness?    He hands over nations to him,    and makes him rule over kings.    He gives them like the dust to his sword,    like the driven stubble to his bow.
 
@@ -1732,17 +1732,17 @@
 
 8. "But you, Israel, my servant,    Jacob whom I have chosen,    the seed of Abraham my friend,
 
-9. You whom I have taken hold of from the ends of the earth,    and called from its corners,    and said to you, `You are my servant, I have chosen you and not cast       you away;`
+9. You whom I have taken hold of from the ends of the earth,    and called from its corners,    and said to you, 'You are my servant, I have chosen you and not cast       you away;'
 
-10. Don`t you be afraid, for I am with you.    Don`t be dismayed, for I am your God.    I will strengthen you.    Yes, I will help you.    Yes, I will uphold you with the right hand of my righteousness.
+10. Don't you be afraid, for I am with you.    Don't be dismayed, for I am your God.    I will strengthen you.    Yes, I will help you.    Yes, I will uphold you with the right hand of my righteousness.
 
 11. Behold, all those who are incensed against you will be       disappointed and confounded.    Those who strive with you will be like nothing, and shall perish.
 
-12. You will seek them, and won`t find them,    even those who contend with you.    Those who war against you will be as nothing,    as a non-existent thing.
+12. You will seek them, and won't find them,    even those who contend with you.    Those who war against you will be as nothing,    as a non-existent thing.
 
-13. For I, Yahweh your God, will hold your right hand,    saying to you, `Don`t be afraid.    I will help you.`
+13. For I, Yahweh your God, will hold your right hand,    saying to you, 'Don't be afraid.    I will help you.'
 
-14. Don`t be afraid, you worm Jacob,    and you men of Israel.    I will help you," says Yahweh,    "and your Redeemer is the Holy One of Israel.
+14. Don't be afraid, you worm Jacob,    and you men of Israel.    I will help you," says Yahweh,    "and your Redeemer is the Holy One of Israel.
 
 15. Behold, I have made you into a new sharp threshing instrument       with teeth.    You will thresh the mountains,    and beat them small,    and will make the hills like chaff.
 
@@ -1766,9 +1766,9 @@
 
 25. "I have raised up one from the north, and he has come;    from the rising of the sun, one who calls on my name;    and he shall come on rulers as on mortar,    and as the potter treads clay.
 
-26. Who has declared it from the beginning, that we may know?    And before, that we may say, `He is right?` Surely, there is no one who declares.    Surely, there is no one who shows.    Surely, there is no one who hears your words.
+26. Who has declared it from the beginning, that we may know?    And before, that we may say, 'He is right?' Surely, there is no one who declares.    Surely, there is no one who shows.    Surely, there is no one who hears your words.
 
-27. I am the first to say to Zion, `Behold, look at them;`    and I will give one who brings good news to Jerusalem.
+27. I am the first to say to Zion, 'Behold, look at them;'    and I will give one who brings good news to Jerusalem.
 
 28. When I look, there is no man;    even among them there is no counselor who, when I ask of them, can       answer a word.
 
@@ -1781,7 +1781,7 @@
 
 2. He will not shout,    nor raise his voice,    nor cause it to be heard in the street.
 
-3. He won`t break a bruised reed.    He won`t quench a dimly burning wick.    He will faithfully bring justice.
+3. He won't break a bruised reed.    He won't quench a dimly burning wick.    He will faithfully bring justice.
 
 4. He will not fail nor be discouraged,    until he has set justice in the earth,    and the islands will wait for his law."
 
@@ -1807,30 +1807,30 @@
 
 15. I will destroy mountains and hills,    and dry up all their herbs.    I will make the rivers islands,    and will dry up the pools.
 
-16. I will bring the blind by a way that they don`t know.    I will lead them in paths that they don`t know.    I will make darkness light before them,    and crooked places straight.    I will do these things,    and I will not forsake them.
+16. I will bring the blind by a way that they don't know.    I will lead them in paths that they don't know.    I will make darkness light before them,    and crooked places straight.    I will do these things,    and I will not forsake them.
 
-17. "Those who trust in engraved images,    who tell molten images,    `You are our gods`    will be turned back.    They will be utterly disappointed.
+17. "Those who trust in engraved images,    who tell molten images,    'You are our gods'    will be turned back.    They will be utterly disappointed.
 
 18. "Hear, you deaf,    and look, you blind,    that you may see.
 
-19. Who is blind, but my servant?    Or who is as deaf as my messenger whom I send?    Who is as blind as he who is at peace,    and as blind as Yahweh`s servant?
+19. Who is blind, but my servant?    Or who is as deaf as my messenger whom I send?    Who is as blind as he who is at peace,    and as blind as Yahweh's servant?
 
-20. You see many things, but don`t observe.    His ears are open, but he doesn`t listen.
+20. You see many things, but don't observe.    His ears are open, but he doesn't listen.
 
-21. It pleased Yahweh, for his righteousness` sake, to magnify the       law,    and make it honorable.
+21. It pleased Yahweh, for his righteousness' sake, to magnify the       law,    and make it honorable.
 
-22. But this is a robbed and plundered people.    All of them are snared in holes,    and they are hidden in prisons. They have become a prey, and no one delivers;    and a spoil, and no one says, `Restore them!`
+22. But this is a robbed and plundered people.    All of them are snared in holes,    and they are hidden in prisons. They have become a prey, and no one delivers;    and a spoil, and no one says, 'Restore them!'
 
 23. Who is there among you who will give ear to this?    Who will listen and hear for the time to come?
 
-24. Who gave Jacob as plunder,    and Israel to the robbers?    Didn`t Yahweh, he against whom we have sinned?    For they would not walk in his ways,    and they disobeyed his law.
+24. Who gave Jacob as plunder,    and Israel to the robbers?    Didn't Yahweh, he against whom we have sinned?    For they would not walk in his ways,    and they disobeyed his law.
 
-25. Therefore he poured the fierceness of his anger on him,    and the strength of battle;    and it set him on fire all around, but he didn`t know;    and it burned him, but he didn`t take it to heart."
+25. Therefore he poured the fierceness of his anger on him,    and the strength of battle;    and it set him on fire all around, but he didn't know;    and it burned him, but he didn't take it to heart."
 
 
 ## Chapter 43
 
-1. But now thus says Yahweh who created you, Jacob,    and he who formed you, Israel: "Don`t be afraid, for I have redeemed you.    I have called you by your name.    You are mine.
+1. But now thus says Yahweh who created you, Jacob,    and he who formed you, Israel: "Don't be afraid, for I have redeemed you.    I have called you by your name.    You are mine.
 
 2. When you pass through the waters, I will be with you;    and through the rivers, they will not overflow you. When you walk through the fire, you will not be burned,    and flame will not scorch you.
 
@@ -1838,11 +1838,11 @@
 
 4. Since you have been precious and honored in my sight,    and I have loved you;    therefore I will give people in your place,    and nations instead of your life.
 
-5. Don`t be afraid; for I am with you.    I will bring your seed from the east,    and gather you from the west.
+5. Don't be afraid; for I am with you.    I will bring your seed from the east,    and gather you from the west.
 
-6. I will tell the north, `Give them up!`    and tell the south, `Don`t hold them back!    Bring my sons from far,    and my daughters from the ends of the earth--
+6. I will tell the north, 'Give them up!'    and tell the south, 'Don't hold them back!    Bring my sons from far,    and my daughters from the ends of the earth--
 
-7. everyone who is called by my name,    and whom I have created for my glory,    whom I have formed,    yes, whom I have made.`"
+7. everyone who is called by my name,    and whom I have created for my glory,    whom I have formed,    yes, whom I have made.'"
 
 8. Bring out the blind people who have eyes,    and the deaf who have ears.
 
@@ -1864,9 +1864,9 @@
 
 17. who brings forth the chariot and horse,    the army and the mighty man    (they lie down together, they shall not rise;    they are extinct, they are quenched like a wick):
 
-18. "Don`t remember the former things,    and don`t consider the things of old.
+18. "Don't remember the former things,    and don't consider the things of old.
 
-19. Behold, I will do a new thing.    It springs forth now.    Don`t you know it? I will even make a way in the wilderness,    and rivers in the desert.
+19. Behold, I will do a new thing.    It springs forth now.    Don't you know it? I will even make a way in the wilderness,    and rivers in the desert.
 
 20. The animals of the field shall honor me,    the jackals and the ostriches; because I give water in the wilderness and rivers in the desert,    to give drink to my people, my chosen,
 
@@ -1891,21 +1891,21 @@
 
 1. Yet listen now, Jacob my servant,    and Israel, whom I have chosen.
 
-2. This is what Yahweh who made you,    and formed you from the womb,    who will help you says: "Don`t be afraid, Jacob my servant;    and you, Jeshurun, whom I have chosen.
+2. This is what Yahweh who made you,    and formed you from the womb,    who will help you says: "Don't be afraid, Jacob my servant;    and you, Jeshurun, whom I have chosen.
 
 3. For I will pour water on him who is thirsty,    and streams on the dry ground. I will pour my Spirit on your seed,    and my blessing on your offspring:
 
 4. and they will spring up among the grass,    as willows by the watercourses.
 
-5. One will say, `I am Yahweh`s;`    and another will be called by the name of Jacob;    and another will write with his hand `to Yahweh,`    and honor the name of Israel."
+5. One will say, 'I am Yahweh's;'    and another will be called by the name of Jacob;    and another will write with his hand 'to Yahweh,'    and honor the name of Israel."
 
 6. This is what Yahweh, the King of Israel,    and his Redeemer, Yahweh of Armies, says: "I am the first, and I am the last;    and besides me there is no God.
 
 7. Who is like me?    Who will call,    and will declare it,    and set it in order for me,    since I established the ancient people? Let them declare the things that are coming,    and that will happen.
 
-8. Don`t fear,    neither be afraid. Haven`t I declared it to you long ago,    and shown it? You are my witnesses.    Is there a God besides me? Indeed, there is not.    I don`t know any other Rock."
+8. Don't fear,    neither be afraid. Haven't I declared it to you long ago,    and shown it? You are my witnesses.    Is there a God besides me? Indeed, there is not.    I don't know any other Rock."
 
-9. Everyone who makes an engraved image is vain.    The things that they delight in will not profit.    Their own witnesses don`t see, nor know, that they may be       disappointed.
+9. Everyone who makes an engraved image is vain.    The things that they delight in will not profit.    Their own witnesses don't see, nor know, that they may be       disappointed.
 
 10. Who has fashioned a god,    or molds an image that is profitable for nothing?
 
@@ -1923,11 +1923,11 @@
 
 17. The rest of it he makes into a god,    even his engraved image. He bows down to it and worships,    and prays to it, and says, "Deliver me; for you are my god!"
 
-18. They don`t know, neither do they consider:    for he has shut their eyes, that they can`t see;    and their hearts, that they can`t understand.
+18. They don't know, neither do they consider:    for he has shut their eyes, that they can't see;    and their hearts, that they can't understand.
 
 19. No one thinks,    neither is there knowledge nor understanding to say,    "I have burned part of it in the fire.    Yes, I have also baked bread on its coals.    I have roasted meat and eaten it.    Shall I make the rest of it into an abomination?    Shall I bow down to a tree trunk?"
 
-20. He feeds on ashes.    A deceived heart has turned him aside;    and he can`t deliver his soul,    nor say, "Isn`t there a lie in my right hand?"
+20. He feeds on ashes.    A deceived heart has turned him aside;    and he can't deliver his soul,    nor say, "Isn't there a lie in my right hand?"
 
 21. Remember these things, Jacob and Israel;    for you are my servant.    I have formed you.    You are my servant.    Israel, you will not be forgotten by me.
 
@@ -1939,11 +1939,11 @@
 
 25. who frustrates the signs of the liars,    and makes diviners mad; who turns wise men backward,    and makes their knowledge foolish;
 
-26. who confirms the word of his servant,    and performs the counsel of his messengers; who says of Jerusalem, `She will be inhabited;`    and of the cities of Judah, `They will be built,`    and `I will raise up its waste places;`
+26. who confirms the word of his servant,    and performs the counsel of his messengers; who says of Jerusalem, 'She will be inhabited;'    and of the cities of Judah, 'They will be built,'    and 'I will raise up its waste places;'
 
-27. who says to the deep, `Be dry,`    and `I will dry up your rivers;`
+27. who says to the deep, 'Be dry,'    and 'I will dry up your rivers;'
 
-28. Who says of Cyrus, `He is my shepherd, and shall perform all my       pleasure,`    even saying of Jerusalem, `She will be built;`    and of the temple, `Your foundation will be laid.`"
+28. Who says of Cyrus, 'He is my shepherd, and shall perform all my       pleasure,'    even saying of Jerusalem, 'She will be built;'    and of the temple, 'Your foundation will be laid.'"
 
 
 ## Chapter 45
@@ -1954,7 +1954,7 @@
 
 3. I will give you the treasures of darkness,    and hidden riches of secret places, that you may know that it is I, Yahweh, who call you by your name,    even the God of Israel.
 
-4. For Jacob my servant`s sake,    and Israel my chosen, I have called you by your name.    I have surnamed you,    though you have not known me.
+4. For Jacob my servant's sake,    and Israel my chosen, I have called you by your name.    I have surnamed you,    though you have not known me.
 
 5. I am Yahweh, and there is none else.    Besides me, there is no God. I will strengthen you,    though you have not known me;
 
@@ -1964,9 +1964,9 @@
 
 8. Distil, you heavens, from above,    and let the skies pour down righteousness. Let the earth open, that it may bring forth salvation,    and let it cause righteousness to spring up with it. I, Yahweh, have created it.
 
-9. Woe to him who strives with his Maker--    a clay pot among the clay pots of the earth! Shall the clay ask him who fashions it, `What are you making?`    or your work, `He has no hands?`
+9. Woe to him who strives with his Maker--    a clay pot among the clay pots of the earth! Shall the clay ask him who fashions it, 'What are you making?'    or your work, 'He has no hands?'
 
-10. Woe to him who says to a father, `What have you become the       father of?`    or to a mother, `To what have you given birth?`"
+10. Woe to him who says to a father, 'What have you become the       father of?'    or to a mother, 'To what have you given birth?'"
 
 11. Thus says Yahweh, the Holy One of Israel,    and his Maker: "You ask me about the things that are to come, concerning my sons,    and you command me concerning the work of my hands!
 
@@ -1974,27 +1974,27 @@
 
 13. I have raised him up in righteousness,    and I will make straight all his ways. He shall build my city,    and he shall let my exiles go free,    not for price nor reward," says Yahweh of Armies.
 
-14. Thus says Yahweh: "The labor of Egypt,    and the merchandise of Ethiopia,    and the Sabeans, men of stature, shall come over to you,    and they shall be yours. They will go after you.    They shall come over in chains;    and they will bow down to you. They will make supplication to you:    `Surely God is in you; and there is none else.    There is no other god.
+14. Thus says Yahweh: "The labor of Egypt,    and the merchandise of Ethiopia,    and the Sabeans, men of stature, shall come over to you,    and they shall be yours. They will go after you.    They shall come over in chains;    and they will bow down to you. They will make supplication to you:    'Surely God is in you; and there is none else.    There is no other god.
 
-15. Most certainly you are a God who hid yourself,    God of Israel, the Savior.`"
+15. Most certainly you are a God who hid yourself,    God of Israel, the Savior.'"
 
 16. They will be disappointed,    yes, confounded, all of them.    Those who are makers of idols will go into confusion together.
 
 17. Israel will be saved by Yahweh with an everlasting salvation.    You will not be disappointed nor confounded to ages everlasting.
 
-18. For thus says Yahweh who created the heavens,    the God who formed the earth and made it,    who established it and didn`t create it a waste,    who formed it to be inhabited: "I am Yahweh;    and there is no other.
+18. For thus says Yahweh who created the heavens,    the God who formed the earth and made it,    who established it and didn't create it a waste,    who formed it to be inhabited: "I am Yahweh;    and there is no other.
 
-19. I have not spoken in secret,    in a place of the land of darkness. I didn`t say to the seed of Jacob, `Seek me in vain.`    I, Yahweh, speak righteousness.    I declare things that are right.
+19. I have not spoken in secret,    in a place of the land of darkness. I didn't say to the seed of Jacob, 'Seek me in vain.'    I, Yahweh, speak righteousness.    I declare things that are right.
 
-20. "Assemble yourselves and come.    Draw near together, you who have escaped from the nations. Those have no knowledge who carry the wood of their engraved image,    and pray to a god that can`t save.
+20. "Assemble yourselves and come.    Draw near together, you who have escaped from the nations. Those have no knowledge who carry the wood of their engraved image,    and pray to a god that can't save.
 
-21. Declare and present it.    Yes, let them take counsel together. Who has shown this from ancient time?    Who has declared it of old?    Haven`t I, Yahweh? There is no other God besides me, a just God and a Savior;    There is no one besides me.
+21. Declare and present it.    Yes, let them take counsel together. Who has shown this from ancient time?    Who has declared it of old?    Haven't I, Yahweh? There is no other God besides me, a just God and a Savior;    There is no one besides me.
 
 22. "Look to me, and be saved, all the ends of the earth;    for I am God, and there is no other.
 
 23. By myself have I sworn, the word has gone forth from my mouth       in righteousness, and will not return, that to me every knee       shall bow, every tongue shall swear.
 
-24. They will say of me,       `There is righteousness and strength only in Yahweh.`" Even to him shall men come; and all those who were incensed against him       shall be disappointed.
+24. They will say of me,       'There is righteousness and strength only in Yahweh.'" Even to him shall men come; and all those who were incensed against him       shall be disappointed.
 
 25. In Yahweh shall all the seed of       Israel be justified, and shall glory.
 
@@ -2050,7 +2050,7 @@
 
 10. For you have trusted in your wickedness; you have said,       No one sees me; your wisdom and your knowledge, it has perverted       you, and you have said in your heart, I am, and there is none       else besides me.
 
-11. Therefore evil will come on you; you       won`t know when it dawns: and mischief wil fall on you; you will       not be able to put it away: and desolation shall come on you       suddenly, which you don`t know.
+11. Therefore evil will come on you; you       won't know when it dawns: and mischief wil fall on you; you will       not be able to put it away: and desolation shall come on you       suddenly, which you don't know.
 
 12. "Stand now with your enchantments, and with the multitude of       your sorceries, in which you have labored from your youth; if so       be you shall be able to profit, if so be you may prevail.
 
@@ -2071,15 +2071,15 @@
 
 4. Because I knew that you are obstinate, and your neck is an iron       sinew, and your brow brass;
 
-5. therefore I have declared it       to you from of old; before it came to pass I showed it to you;       lest you should say, `My idol has done them, and my engraved       image, and my molten image, has commanded them.`
+5. therefore I have declared it       to you from of old; before it came to pass I showed it to you;       lest you should say, 'My idol has done them, and my engraved       image, and my molten image, has commanded them.'
 
 6. You have       heard it; see all this; and you, will you not declare it?  "I have shown you new things from this time, even hidden things, which       you have not known.
 
-7. They are created now, and not from of       old; and before this day you didn`t hear them; lest you should       say, `Behold, I knew them.`
+7. They are created now, and not from of       old; and before this day you didn't hear them; lest you should       say, 'Behold, I knew them.'
 
-8. Yes, you didn`t hear; yes, you didn`t know; yes, from of old       your ear was not opened: for I knew that you did deal very       treacherously, and was called a transgressor from the womb.
+8. Yes, you didn't hear; yes, you didn't know; yes, from of old       your ear was not opened: for I knew that you did deal very       treacherously, and was called a transgressor from the womb.
 
-9. For my name`s sake will I defer my anger, and for my       praise will I refrain for you, that I not cut you off.
+9. For my name's sake will I defer my anger, and for my       praise will I refrain for you, that I not cut you off.
 
 10. Behold, I have refined you, but not as silver; I have chosen you       in the furnace of affliction.
 
@@ -2103,7 +2103,7 @@
 
 20. Go forth from Babylon, flee from the       Chaldeans; with a voice of singing declare, tell this, utter it       even to the end of the earth: say, Yahweh has redeemed his       servant Jacob.
 
-21. They didn`t thirst when he led them       through the deserts; he caused the waters to flow out of the rock       for them; he split the rock also, and the waters gushed out.
+21. They didn't thirst when he led them       through the deserts; he caused the waters to flow out of the rock       for them; he split the rock also, and the waters gushed out.
 
 22. "There is no peace," says Yahweh, "for the wicked."
 
@@ -2126,7 +2126,7 @@
 
 8. Thus says Yahweh, "In an acceptable time have I answered you,       and in a day of salvation have I helped you; and I will preserve       you, and give you for a covenant of the people, to raise up the       land, to make them inherit the desolate heritage:
 
-9. saying       to those who are bound, `Come out!`; to those who are in       darkness, `Show yourselves!`  "They shall feed in the ways, and on all bare heights shall be their       pasture.
+9. saying       to those who are bound, 'Come out!'; to those who are in       darkness, 'Show yourselves!'  "They shall feed in the ways, and on all bare heights shall be their       pasture.
 
 10. They shall not hunger nor thirst; neither shall       the heat nor sun strike them: for he who has mercy on them will       lead them, even by springs of water he will guide them.
 
@@ -2150,7 +2150,7 @@
 
 20. The children of your bereavement shall yet say in       your ears, The place is too small for me; give place to me that I       may dwell.
 
-21. Then you will say in your heart, `Who has       conceived these for me, seeing I have been bereaved of my       children, and am solitary, an exile, and wandering back and       forth? Who has brought up these? Behold, I was left alone; these,       where were they?`"
+21. Then you will say in your heart, 'Who has       conceived these for me, seeing I have been bereaved of my       children, and am solitary, an exile, and wandering back and       forth? Who has brought up these? Behold, I was left alone; these,       where were they?'"
 
 22. Thus says the Lord Yahweh, "Behold, I will lift up my hand to       the nations, and set up my banner to the peoples; and they shall       bring your sons in their bosom, and your daughters shall be       carried on their shoulders.
 
@@ -2165,9 +2165,9 @@
 
 ## Chapter 50
 
-1. Thus says Yahweh, "Where is the bill of your mother`s divorce,       with which I have put her away? or which of my creditors is it to       whom I have sold you? Behold, for your iniquities were you sold,       and for your transgressions was your mother put away.
+1. Thus says Yahweh, "Where is the bill of your mother's divorce,       with which I have put her away? or which of my creditors is it to       whom I have sold you? Behold, for your iniquities were you sold,       and for your transgressions was your mother put away.
 
-2. Why,       when I came, was there no man? when I called, was there none to       answer? Is my hand shortened at all, that it can`t redeem? or       have I no power to deliver? Behold, at my rebuke I dry up the       sea, I make the rivers a wilderness: their fish stink, because       there is no water, and die for thirst.
+2. Why,       when I came, was there no man? when I called, was there none to       answer? Is my hand shortened at all, that it can't redeem? or       have I no power to deliver? Behold, at my rebuke I dry up the       sea, I make the rivers a wilderness: their fish stink, because       there is no water, and die for thirst.
 
 3. I clothe the       heavens with blackness, and I make sackcloth their covering."
 
@@ -2175,7 +2175,7 @@
 
 5. The Lord Yahweh has opened my ear, and I was       not rebellious, neither turned away backward.
 
-6. I gave my       back to the strikers, and my cheeks to those who plucked off the       hair; I didn`t hide my face from shame and spitting.
+6. I gave my       back to the strikers, and my cheeks to those who plucked off the       hair; I didn't hide my face from shame and spitting.
 
 7. For       the Lord Yahweh will help me; therefore I have not been       confounded: therefore have I set my face like a flint, and I know       that I shall not be disappointed.
 
@@ -2202,13 +2202,13 @@
 
 6. Lift up your eyes to the heavens, and look on the earth beneath;       for the heavens shall vanish away like smoke, and the earth shall       wax old like a garment; and those who dwell therein shall die in       like manner: but my salvation shall be forever, and my       righteousness shall not be abolished.
 
-7. "Listen to me, you who know righteousness, the people in whose       heart is my law; don`t fear the reproach of men, neither be       dismayed at their insults.
+7. "Listen to me, you who know righteousness, the people in whose       heart is my law; don't fear the reproach of men, neither be       dismayed at their insults.
 
 8. For the moth shall eat them up       like a garment, and the worm shall eat them like wool; but my       righteousness shall be forever, and my salvation to all       generations."
 
-9. Awake, awake, put on strength, arm of Yahweh; awake, as in the       days of old, the generations of ancient times. Isn`t it you who       cut Rahab in pieces, who pierced the monster?
+9. Awake, awake, put on strength, arm of Yahweh; awake, as in the       days of old, the generations of ancient times. Isn't it you who       cut Rahab in pieces, who pierced the monster?
 
-10. Isn`t it       you who dried up the sea, the waters of the great deep; who made       the depths of the sea a way for the redeemed to pass over?
+10. Isn't it       you who dried up the sea, the waters of the great deep; who made       the depths of the sea a way for the redeemed to pass over?
 
 11. The ransomed of Yahweh shall return, and come with       singing to Zion; and everlasting joy shall be on their heads:       they shall obtain gladness and joy; [and] sorrow and sighing       shall flee away.
 
@@ -2220,7 +2220,7 @@
 
 15. For I am Yahweh your God,       who stirs up the sea, so that its waves roar: Yahweh of Armies is       his name.
 
-16. I have put my words in your mouth, and have       covered you in the shadow of my hand, that I may plant the       heavens, and lay the foundations of the earth, and tell Zion,       `You are my people.`"
+16. I have put my words in your mouth, and have       covered you in the shadow of my hand, that I may plant the       heavens, and lay the foundations of the earth, and tell Zion,       'You are my people.'"
 
 17. Awake, awake, stand up, Jerusalem, that have drunk at the hand       of Yahweh the cup of his wrath; you have drunken the bowl of the       cup of staggering, and drained it.
 
@@ -2234,7 +2234,7 @@
 
 22. Thus says your Lord Yahweh,       and your God who pleads the cause of his people, "Behold, I have       taken out of your hand the cup of staggering, even the bowl of       the cup of my wrath; you shall no more drink it again:
 
-23. and I will put it into the hand of those who afflict you, who       have said to your soul, `Bow down, that we may walk over you;`       and you have laid your back as the ground, and as the street, to       those who walk over."
+23. and I will put it into the hand of those who afflict you, who       have said to your soul, 'Bow down, that we may walk over you;'       and you have laid your back as the ground, and as the street, to       those who walk over."
 
 
 ## Chapter 52
@@ -2276,7 +2276,7 @@
 
 2. For he grew up before him as a tender plant,    and as a root out of dry ground. He has no form nor comeliness.    When we see him, there is no beauty that we should desire him.
 
-3. He was despised,    and rejected by men; a man of suffering,    and acquainted with disease. He was despised as one from whom men hide their face;    and we didn`t respect him.
+3. He was despised,    and rejected by men; a man of suffering,    and acquainted with disease. He was despised as one from whom men hide their face;    and we didn't respect him.
 
 4. Surely he has borne our sickness,    and carried our suffering; yet we considered him plagued,    struck by God, and afflicted.
 
@@ -2284,7 +2284,7 @@
 
 6. All we like sheep have gone astray.    Everyone has turned to his own way;    and Yahweh has laid on him the iniquity of us all.
 
-7. He was oppressed,    yet when he was afflicted he didn`t open his mouth. As a lamb that is led to the slaughter,    and as a sheep that before its shearers is mute,    so he didn`t open his mouth.
+7. He was oppressed,    yet when he was afflicted he didn't open his mouth. As a lamb that is led to the slaughter,    and as a sheep that before its shearers is mute,    so he didn't open his mouth.
 
 8. He was taken away by oppression and judgment;    and as for his generation,    who considered that he was cut off out of the land of the living    and stricken for the disobedience of my people?
 
@@ -2299,13 +2299,13 @@
 
 ## Chapter 54
 
-1. "Sing, barren, you who didn`t bear; break forth into singing,       and cry aloud, you who did not travail with child: for more are       the children of the desolate than the children of the married       wife," says Yahweh.
+1. "Sing, barren, you who didn't bear; break forth into singing,       and cry aloud, you who did not travail with child: for more are       the children of the desolate than the children of the married       wife," says Yahweh.
 
-2. "Enlarge the place of your tent, and let them stretch forth the       curtains of your habitations; don`t spare: lengthen your cords,       and strengthen your stakes.
+2. "Enlarge the place of your tent, and let them stretch forth the       curtains of your habitations; don't spare: lengthen your cords,       and strengthen your stakes.
 
 3. For you shall spread aboard on       the right hand and on the left; and your seed shall possess the       nations, and make the desolate cities to be inhabited.
 
-4. "Don`t be afraid; for you shall not be ashamed: neither be       confounded; for you shall not be disappointed: for you shall       forget the shame of your youth; and the reproach of your       widowhood you shall remember no more.
+4. "Don't be afraid; for you shall not be ashamed: neither be       confounded; for you shall not be disappointed: for you shall       forget the shame of your youth; and the reproach of your       widowhood you shall remember no more.
 
 5. For your Maker is       your husband; Yahweh of Armies is his name: and the Holy One of       Israel is your Redeemer; the God of the whole earth shall he be       called.
 
@@ -2338,13 +2338,13 @@
 
 1. "Come, everyone who thirsts, to the waters! Come, he who has no       money, buy, and eat! Yes, come, buy wine and milk without money       and without price.
 
-2. Why do you spend money for that which       is not bread? and your labor for that which doesn`t satisfy?       listen diligently to me, and eat you that which is good, and let       your soul delight itself in fatness.
+2. Why do you spend money for that which       is not bread? and your labor for that which doesn't satisfy?       listen diligently to me, and eat you that which is good, and let       your soul delight itself in fatness.
 
 3. Turn your ear, and       come to me; hear, and your soul shall live: and I will make an       everlasting covenant with you, even the sure mercies of David.
 
 4. Behold, I have given him for a witness to the peoples, a       leader and commander to the peoples.
 
-5. Behold, you shall       call a nation that you don`t know; and a nation that didn`t know       you shall run to you, because of Yahweh your God, and for the       Holy One of Israel; for he has glorified you."
+5. Behold, you shall       call a nation that you don't know; and a nation that didn't know       you shall run to you, because of Yahweh your God, and for the       Holy One of Israel; for he has glorified you."
 
 6. Seek Yahweh while he may be found; call you on him while he is       near:
 
@@ -2354,7 +2354,7 @@
 
 9. "For as the heavens are higher than the earth,    so are my ways higher than your ways,    and my thoughts than your thoughts.
 
-10. For as the rain comes down and the snow from the sky,    and doesn`t return there, but waters the earth,    and makes it bring forth and bud,    and gives seed to the sower and bread to the eater;
+10. For as the rain comes down and the snow from the sky,    and doesn't return there, but waters the earth,    and makes it bring forth and bud,    and gives seed to the sower and bread to the eater;
 
 11. so shall my word be that goes forth out of my mouth:    it shall not return to me void,    but it shall accomplish that which I please,    and it shall prosper in the thing I sent it to do.
 
@@ -2383,9 +2383,9 @@
 
 9. All you animals of the field, come to devour, [yes], all you       animals in the forest.
 
-10. His watchmen are blind, they are       all without knowledge; they are all mute dogs, they can`t bark;       dreaming, lying down, loving to slumber.
+10. His watchmen are blind, they are       all without knowledge; they are all mute dogs, they can't bark;       dreaming, lying down, loving to slumber.
 
-11. Yes, the dogs       are greedy, they can never have enough; and these are shepherds       who can`t understand: they have all turned to their own way, each       one to his gain, from every quarter.
+11. Yes, the dogs       are greedy, they can never have enough; and these are shepherds       who can't understand: they have all turned to their own way, each       one to his gain, from every quarter.
 
 12. "Come," [say they],       "I will get wine, and we will fill ourselves with strong drink;       and tomorrow shall be as this day, [a day] great beyond measure."
 
@@ -2398,7 +2398,7 @@
 
 3. "But draw near here, you sons of the sorceress, the seed of the       adulterer and the prostitute.
 
-4. Against whom do you sport       yourselves? Against whom do you make a wide mouth, and stick out       your tongue? Aren`t you children of disobedience, a seed of       falsehood,
+4. Against whom do you sport       yourselves? Against whom do you make a wide mouth, and stick out       your tongue? Aren't you children of disobedience, a seed of       falsehood,
 
 5. you who inflame yourselves among the oaks,       under every green tree; who kill the children in the valleys,       under the clefts of the rocks?
 
@@ -2410,9 +2410,9 @@
 
 9. You went to the king with oil, and did increase your perfumes,       and did send your ambassadors far off, and debased yourself even       to Sheol.
 
-10. You were wearied with the length of       your way; yet you didn`t say, `It is in vain.` You found a       reviving of your strength; therefore you weren`t faint.
+10. You were wearied with the length of       your way; yet you didn't say, 'It is in vain.' You found a       reviving of your strength; therefore you weren't faint.
 
-11. "Of whom have you been afraid and in fear, that you lie, and       have not remembered me, nor laid it to your heart? Haven`t I held       my peace even of long time, and you don`t fear me?
+11. "Of whom have you been afraid and in fear, that you lie, and       have not remembered me, nor laid it to your heart? Haven't I held       my peace even of long time, and you don't fear me?
 
 12. I will       declare your righteousness; and as for your works, they shall not       profit you.
 
@@ -2430,34 +2430,34 @@
 
 19. I create the fruit       of the lips: Peace, peace, to him who is far off and to him who       is near," says Yahweh; "and I will heal them."
 
-20. But the       wicked are like the troubled sea; for it can`t rest, and its       waters cast up mire and dirt.
+20. But the       wicked are like the troubled sea; for it can't rest, and its       waters cast up mire and dirt.
 
 21. "There is no peace," says       my God, "for the wicked."
 
 
 ## Chapter 58
 
-1. "Cry aloud, don`t spare, lift up your voice like a trumpet, and       declare to my people their disobedience, and to the house of       Jacob their sins.
+1. "Cry aloud, don't spare, lift up your voice like a trumpet, and       declare to my people their disobedience, and to the house of       Jacob their sins.
 
-2. Yet they seek me daily, and delight to       know my ways: as a nation that did righteousness, and didn`t       forsake the ordinance of their God, they ask of me righteous       judgments; they delight to draw near to God.
+2. Yet they seek me daily, and delight to       know my ways: as a nation that did righteousness, and didn't       forsake the ordinance of their God, they ask of me righteous       judgments; they delight to draw near to God.
 
-3. `Why have we       fasted,` [say they], `and you don`t see? [why] have we afflicted       our soul, and you take no knowledge?`  "Behold, in the day of your fast you find pleasure, and exact all your       labors.
+3. 'Why have we       fasted,' [say they], 'and you don't see? [why] have we afflicted       our soul, and you take no knowledge?'  "Behold, in the day of your fast you find pleasure, and exact all your       labors.
 
-4. Behold, you fast for strife and contention, and to       strike with the fist of wickedness: you don`t fast this day so as       to make your voice to be heard on high.
+4. Behold, you fast for strife and contention, and to       strike with the fist of wickedness: you don't fast this day so as       to make your voice to be heard on high.
 
 5. Is such the fast       that I have chosen? the day for a man to afflict his soul? Is it       to bow down his head as a rush, and to spread sackcloth and ashes       under him? Will you call this a fast, and an acceptable day to       Yahweh?
 
-6. "Isn`t this the fast that I have chosen: to loose the bonds of       wickedness, to undo the bands of the yoke, and to let the       oppressed go free, and that you break every yoke?
+6. "Isn't this the fast that I have chosen: to loose the bonds of       wickedness, to undo the bands of the yoke, and to let the       oppressed go free, and that you break every yoke?
 
-7. Isn`t it       to distribute your bread to the hungry, and that you bring the       poor who are cast out to your house? When you see the naked, that       you cover him; and that you not hide yourself from your own       flesh?
+7. Isn't it       to distribute your bread to the hungry, and that you bring the       poor who are cast out to your house? When you see the naked, that       you cover him; and that you not hide yourself from your own       flesh?
 
 8. Then your light shall break forth as the morning,       and your healing shall spring forth speedily; and your       righteousness shall go before you; the glory of Yahweh shall be       your rear guard.
 
-9. Then you shall call, and Yahweh will answer; you shall cry, and       he will say, `Here I am.`  "If you take away from the midst of you the yoke, the putting forth of       the finger, and speaking wickedly;
+9. Then you shall call, and Yahweh will answer; you shall cry, and       he will say, 'Here I am.'  "If you take away from the midst of you the yoke, the putting forth of       the finger, and speaking wickedly;
 
 10. and if you draw out       your soul to the hungry, and satisfy the afflicted soul: then       your light shall rise in darkness, and your obscurity be as the       noonday;
 
-11. and Yahweh will guide you continually, and       satisfy your soul in dry places, and make strong your bones; and       you shall be like a watered garden, and like a spring of water,       whose waters don`t fail.
+11. and Yahweh will guide you continually, and       satisfy your soul in dry places, and make strong your bones; and       you shall be like a watered garden, and like a spring of water,       whose waters don't fail.
 
 12. Those who shall be of you shall       build the old waste places; you shall raise up the foundations of       many generations; and you shall be called The repairer of the       breach, The restorer of paths to dwell in.
 
@@ -2468,7 +2468,7 @@
 
 ## Chapter 59
 
-1. Behold, Yahweh`s hand is not shortened, that it can`t save;       neither his ear heavy, that it can`t hear:
+1. Behold, Yahweh's hand is not shortened, that it can't save;       neither his ear heavy, that it can't hear:
 
 2. but your       iniquities have separated between you and your God, and your sins       have hidden his face from you, so that he will not hear.
 
@@ -2476,13 +2476,13 @@
 
 4. None sues in righteousness, and none pleads in       truth: they trust in vanity, and speak lies; they conceive       mischief, and bring forth iniquity.
 
-5. They hatch adders`       eggs, and weave the spider`s web: he who eats of their eggs dies;       and that which is crushed breaks out into a viper.
+5. They hatch adders'       eggs, and weave the spider's web: he who eats of their eggs dies;       and that which is crushed breaks out into a viper.
 
 6. Their       webs shall not become garments, neither shall they cover       themselves with their works: their works are works of iniquity,       and the act of violence is in their hands.
 
 7. Their feet run       to evil, and they make haste to shed innocent blood: their       thoughts are thoughts of iniquity; desolation and destruction are       in their paths.
 
-8. The way of peace they don`t know; and       there is no justice in their goings: they have made them crooked       paths; whoever goes therein does not know peace.
+8. The way of peace they don't know; and       there is no justice in their goings: they have made them crooked       paths; whoever goes therein does not know peace.
 
 9. Therefore       is justice far from us, neither does righteousness overtake us:       we look for light, but, behold, darkness; for brightness, but we       walk in obscurity.
 
@@ -2494,7 +2494,7 @@
 
 13. transgressing and       denying Yahweh, and turning away from following our God, speaking       oppression and revolt, conceiving and uttering from the heart       words of falsehood.
 
-14. Justice is turned away backward, and       righteousness stands afar off; for truth is fallen in the street,       and uprightness can`t enter.
+14. Justice is turned away backward, and       righteousness stands afar off; for truth is fallen in the street,       and uprightness can't enter.
 
 15. Yes, truth is lacking; and       he who departs from evil makes himself a prey. Yahweh saw it, and       it displeased him that there was no justice.
 
@@ -2508,7 +2508,7 @@
 
 20. "A Redeemer will come to Zion,    and to those who turn from disobedience in Jacob," says Yahweh.
 
-21. "As for me, this is my covenant with them," says Yahweh. "My Spirit who is on you, and my words which I have put in your mouth, shall not depart out of your mouth, nor out of the mouth of your seed, nor out of the mouth of your seed`s seed," says Yahweh, "from henceforth and forever."
+21. "As for me, this is my covenant with them," says Yahweh. "My Spirit who is on you, and my words which I have put in your mouth, shall not depart out of your mouth, nor out of the mouth of your seed, nor out of the mouth of your seed's seed," says Yahweh, "from henceforth and forever."
 
 
 ## Chapter 60
@@ -2562,7 +2562,7 @@
 
 1. The Spirit of the Lord Yahweh is on me;    because Yahweh has anointed me to preach good news to the humble. He has sent me to bind up the brokenhearted,    to proclaim liberty to the captives,    and release to those who are bound;
 
-2. to proclaim the year of Yahweh`s favor, and the day of vengeance       of our God; to comfort all who mourn;
+2. to proclaim the year of Yahweh's favor, and the day of vengeance       of our God; to comfort all who mourn;
 
 3. to appoint to those       who mourn in Zion, to give to them a garland for ashes, the oil       of joy for mourning, the garment of praise for the spirit of       heaviness; that they may be called trees of righteousness, the       planting of Yahweh, that he may be glorified.
 
@@ -2585,7 +2585,7 @@
 
 ## Chapter 62
 
-1. For Zion`s sake will I not hold my peace, and for Jerusalem`s       sake I will not rest, until her righteousness go forth as       brightness, and her salvation as a lamp that burns.
+1. For Zion's sake will I not hold my peace, and for Jerusalem's       sake I will not rest, until her righteousness go forth as       brightness, and her salvation as a lamp that burns.
 
 2. The       nations shall see your righteousness, and all kings your glory,       and you shall be called by a new name, which the mouth of Yahweh       shall name.
 
@@ -2605,7 +2605,7 @@
 
 10. Go through, go through the gates! Prepare the way of the       people! Cast up, cast up the highway! Gather out the stones! Lift       up a banner for the peoples.
 
-11. Behold, Yahweh has       proclaimed to the end of the earth,    "Say to the daughter of Zion,    `Behold, your salvation comes. Behold, his reward is with him,    and his recompense before him.`"
+11. Behold, Yahweh has       proclaimed to the end of the earth,    "Say to the daughter of Zion,    'Behold, your salvation comes. Behold, his reward is with him,    and his recompense before him.'"
 
 12. They shall call them The holy people, The redeemed of Yahweh:       and you shall be called Sought out, A city not forsaken.
 
@@ -2636,15 +2636,15 @@
 
 12. who caused his glorious arm to go at       the right hand of Moses? who divided the waters before them, to       make himself an everlasting name?
 
-13. who led them through       the depths, as a horse in the wilderness, so that they didn`t       stumble?
+13. who led them through       the depths, as a horse in the wilderness, so that they didn't       stumble?
 
 14. As the livestock that go down into the valley,       the Spirit of Yahweh caused them to rest; so you led your people,       to make yourself a glorious name.
 
 15. Look down from heaven, and see from the habitation of your       holiness and of your glory: where are your zeal and your mighty       acts? the yearning of your heart and your compassion is       restrained toward me.
 
-16. For you are our Father, though       Abraham doesn`t know us, and Israel does not acknowledge us: you,       Yahweh, are our Father; our Redeemer from everlasting is your       name.
+16. For you are our Father, though       Abraham doesn't know us, and Israel does not acknowledge us: you,       Yahweh, are our Father; our Redeemer from everlasting is your       name.
 
-17. O Yahweh, why do you make us to err from your ways,       and harden our heart from your fear? Return for your servants`       sake, the tribes of your inheritance.
+17. O Yahweh, why do you make us to err from your ways,       and harden our heart from your fear? Return for your servants'       sake, the tribes of your inheritance.
 
 18. Your holy people       possessed [it] but a little while: our adversaries have trodden       down your sanctuary.
 
@@ -2657,7 +2657,7 @@
 
 2. as when       fire kindles the brushwood, [and] the fire causes the waters to       boil; to make your name known to your adversaries, that the       nations may tremble at your presence!
 
-3. When you did awesome       things which we didn`t look for, you came down, the mountains       quaked at your presence.
+3. When you did awesome       things which we didn't look for, you came down, the mountains       quaked at your presence.
 
 4. For from of old men have not       heard, nor perceived by the ear, neither has the eye seen a God       besides you, who works for him who waits for him.
 
@@ -2669,7 +2669,7 @@
 
 8. But now, Yahweh, you are our Father; we are the clay, and you       our potter; and we all are the work of your hand.
 
-9. Don`t be       furious, Yahweh, neither remember iniquity forever: see, look, we       beg you, we are all your people.
+9. Don't be       furious, Yahweh, neither remember iniquity forever: see, look, we       beg you, we are all your people.
 
 10. Your holy cities are       become a wilderness, Zion is become a wilderness, Jerusalem a       desolation.
 
@@ -2680,21 +2680,21 @@
 
 ## Chapter 65
 
-1. "I am inquired of by those who didn`t ask; I am found by those       who didn`t seek me: I said, See me, see me, to a nation that was       not called by my name.
+1. "I am inquired of by those who didn't ask; I am found by those       who didn't seek me: I said, See me, see me, to a nation that was       not called by my name.
 
 2. I have spread out my hands all the       day to a rebellious people, who walk in a way that is not good,       after their own thoughts;
 
 3. a people who provoke me to my       face continually, sacrificing in gardens, and burning incense on       bricks;
 
-4. who sit among the graves, and lodge in the secret       places; who eat pig`s flesh, and broth of abominable things is in       their vessels;
+4. who sit among the graves, and lodge in the secret       places; who eat pig's flesh, and broth of abominable things is in       their vessels;
 
-5. who say, Stand by yourself, don`t come near       to me, for I am holier than you. These are a smoke in my nose, a       fire that burns all the day.
+5. who say, Stand by yourself, don't come near       to me, for I am holier than you. These are a smoke in my nose, a       fire that burns all the day.
 
 6. "Behold, it is written before me: I will not keep silence, but       will recompense, yes, I will recompense into their bosom,
 
 7. your own iniquities, and the iniquities of your fathers       together," says Yahweh, "who have burned incense on the       mountains, and blasphemed me on the hills; therefore will I first       measure their work into their bosom."
 
-8. Thus says Yahweh, "As the new wine is found in the cluster, and one says, `Don`t destroy       it, for a blessing is in it:` so will I do for my servants` sake,       that I may not destroy them all.
+8. Thus says Yahweh, "As the new wine is found in the cluster, and one says, 'Don't destroy       it, for a blessing is in it:' so will I do for my servants' sake,       that I may not destroy them all.
 
 9. I will bring forth a seed       out of Jacob, and out of Judah an inheritor of my mountains; and       my chosen shall inherit it, and my servants shall dwell there.
 
@@ -2702,7 +2702,7 @@
 
 11. "But you who forsake Yahweh, who forget my holy mountain, who       prepare a table for Fortune, and who fill up mixed wine to       Destiny;
 
-12. I will destine you to the sword, and you shall       all bow down to the slaughter; because when I called, you did not       answer; when I spoke, you did not hear; but you did that which       was evil in my eyes, and chose that in which I didn`t delight."
+12. I will destine you to the sword, and you shall       all bow down to the slaughter; because when I called, you did not       answer; when I spoke, you did not hear; but you did that which       was evil in my eyes, and chose that in which I didn't delight."
 
 13. Therefore thus says the Lord Yahweh, "Behold, my servants shall       eat, but you shall be hungry; behold, my servants shall drink,       but you shall be thirsty; behold, my servants shall rejoice, but       you shall be disappointed;
 
@@ -2728,7 +2728,7 @@
 
 24. It shall happen that, before       they call, I will answer; and while they are yet speaking, I will       hear.
 
-25. The wolf and the lamb shall feed together, and the       lion shall eat straw like the ox; and dust shall be the serpent`s       food. They shall not hurt nor destroy in all my holy mountain,"       says Yahweh.
+25. The wolf and the lamb shall feed together, and the       lion shall eat straw like the ox; and dust shall be the serpent's       food. They shall not hurt nor destroy in all my holy mountain,"       says Yahweh.
 
 
 ## Chapter 66
@@ -2737,11 +2737,11 @@
 
 2. For all these things has my hand       made, and [so] all these things came to be," says Yahweh: "but to this man will I look, even to him who is poor and of a contrite       spirit, and who trembles at my word.
 
-3. He who kills an ox is as he who kills a man; he who sacrifices a       lamb, as he who breaks a dog`s neck; he who offers an offering,       [as he who offers] pig`s blood; he who burns frankincense, as he       who blesses an idol. Yes, they have chosen their own ways, and       their soul delights in their abominations:
+3. He who kills an ox is as he who kills a man; he who sacrifices a       lamb, as he who breaks a dog's neck; he who offers an offering,       [as he who offers] pig's blood; he who burns frankincense, as he       who blesses an idol. Yes, they have chosen their own ways, and       their soul delights in their abominations:
 
-4. I also will       choose their delusions, and will bring their fears on them;       because when I called, none did answer; when I spoke, they did       not hear: but they did that which was evil in my eyes, and chose       that in which I didn`t delight."
+4. I also will       choose their delusions, and will bring their fears on them;       because when I called, none did answer; when I spoke, they did       not hear: but they did that which was evil in my eyes, and chose       that in which I didn't delight."
 
-5. Hear the word of Yahweh, you who tremble at his word: "Your       brothers who hate you, who cast you out for my name`s sake, have       said,    `Let Yahweh be glorified, that we may see your joy;` but it is those       who shall be disappointed.
+5. Hear the word of Yahweh, you who tremble at his word: "Your       brothers who hate you, who cast you out for my name's sake, have       said,    'Let Yahweh be glorified, that we may see your joy;' but it is those       who shall be disappointed.
 
 6. A voice of tumult from the       city, a voice from the temple, a voice of Yahweh that renders       recompense to his enemies.
 
@@ -2765,7 +2765,7 @@
 
 16. For by fire will Yahweh execute judgment, and by his       sword, on all flesh; and the slain of Yahweh shall be many.
 
-17. "Those who sanctify themselves and purify themselves [to go] to the gardens, behind one in the midst, eating pig`s flesh, and the abomination, and the mouse, they shall come to an end together," says Yahweh.
+17. "Those who sanctify themselves and purify themselves [to go] to the gardens, behind one in the midst, eating pig's flesh, and the abomination, and the mouse, they shall come to an end together," says Yahweh.
 
 18. "For I [know] their works and their thoughts: [the time] comes, that I will gather all nations and languages; and they shall come, and shall see my glory.
 

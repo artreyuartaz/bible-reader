@@ -4,7 +4,7 @@
 
 1. Now it happened in the thirtieth year, in the fourth [month], in the fifth [day] of the month, as I was among the captives by the river Chebar, that the heavens were opened, and I saw visions of God.
 
-2. In the fifth [day] of the month, which was the fifth year of king Jehoiachin`s captivity,
+2. In the fifth [day] of the month, which was the fifth year of king Jehoiachin's captivity,
 
 3. the word of Yahweh came expressly to Ezekiel the priest, the son of Buzi, in the land of the Chaldeans by the river Chebar; and the hand of Yahweh was there on him.
 
@@ -14,17 +14,17 @@
 
 6. Everyone had four faces, and each one of them had four wings.
 
-7. Their feet were straight feet; and the sole of their feet was like the sole of a calf`s foot; and they sparkled like burnished brass.
+7. Their feet were straight feet; and the sole of their feet was like the sole of a calf's foot; and they sparkled like burnished brass.
 
 8. They had the hands of a man under their wings on their four sides; and they four had their faces and their wings [thus]:
 
-9. their wings were joined one to another; they didn`t turn when they went; each one went straight forward.
+9. their wings were joined one to another; they didn't turn when they went; each one went straight forward.
 
 10. As for the likeness of their faces, they had the face of a man; and they four had the face of a lion on the right side; and they four had the face of an ox on the left side; they four had also the face of an eagle.
 
 11. Their faces and their wings were separate above; two [wings] of each one were joined one to another, and two covered their bodies.
 
-12. Each one went straight forward: where the spirit was to go, they went; they didn`t turn when they went.
+12. Each one went straight forward: where the spirit was to go, they went; they didn't turn when they went.
 
 13. As for the likeness of the living creatures, their appearance was like burning coals of fire, like the appearance of torches: [the fire] went up and down among the living creatures; and the fire was bright, and out of the fire went forth lightning.
 
@@ -34,7 +34,7 @@
 
 16. The appearance of the wheels and their work was like a beryl: and they four had one likeness; and their appearance and their work was as it were a wheel within a wheel.
 
-17. When they went, they went in their four directions: they didn`t turn when they went.
+17. When they went, they went in their four directions: they didn't turn when they went.
 
 18. As for their rims, they were high and dreadful; and they four had their rims full of eyes all around.
 
@@ -71,11 +71,11 @@
 
 5. They, whether they will hear, or whether they will forbear, (for they are a rebellious house), yet shall know that there has been a prophet among them.
 
-6. You, son of man, don`t be afraid of them, neither be afraid of their words, though briers and thorns are with you, and you do dwell among scorpions: don`t be afraid of their words, nor be dismayed at their looks, though they are a rebellious house.
+6. You, son of man, don't be afraid of them, neither be afraid of their words, though briers and thorns are with you, and you do dwell among scorpions: don't be afraid of their words, nor be dismayed at their looks, though they are a rebellious house.
 
 7. You shall speak my words to them, whether they will hear, or whether they will forbear; for they are most rebellious.
 
-8. But you, son of man, hear what I tell you; don`t be rebellious like that rebellious house: open your mouth, and eat that which I give you.
+8. But you, son of man, hear what I tell you; don't be rebellious like that rebellious house: open your mouth, and eat that which I give you.
 
 9. When I looked, behold, a hand was put forth to me; and, behold, a scroll of a book was therein;
 
@@ -100,7 +100,7 @@
 
 8. Behold, I have made your face hard against their faces, and your forehead hard against their foreheads.
 
-9. As an adamant harder than flint have I made your forehead: don`t be afraid of them, neither be dismayed at their looks, though they are a rebellious house.
+9. As an adamant harder than flint have I made your forehead: don't be afraid of them, neither be dismayed at their looks, though they are a rebellious house.
 
 10. Moreover he said to me, Son of man, all my words that I shall speak to you receive in your heart, and hear with your ears.
 
@@ -120,7 +120,7 @@
 
 18. When I tell the wicked, You shall surely die; and you give him no warning, nor speak to warn the wicked from his wicked way, to save his life; the same wicked man shall die in his iniquity; but his blood will I require at your hand.
 
-19. Yet if you warn the wicked, and he doesn`t turn from his wickedness, nor from his wicked way, he shall die in his iniquity; but you have delivered your soul.
+19. Yet if you warn the wicked, and he doesn't turn from his wickedness, nor from his wicked way, he shall die in his iniquity; but you have delivered your soul.
 
 20. Again, when a righteous man does turn from his righteousness, and commit iniquity, and I lay a stumbling block before him, he shall die: because you have not given him warning, he shall die in his sin, and his righteous deeds which he has done shall not be remembered; but his blood will I require at your hand.
 
@@ -169,7 +169,7 @@
 
 14. Then said I, Ah Lord Yahweh! behold, my soul has not been polluted; for from my youth up even until now have I not eaten of that which dies of itself, or is torn of animals; neither came there abominable flesh into my mouth.
 
-15. Then he said to me, Behold, I have given you cow`s dung for man`s dung, and you shall prepare your bread thereon.
+15. Then he said to me, Behold, I have given you cow's dung for man's dung, and you shall prepare your bread thereon.
 
 16. Moreover he said to me, Son of man, behold, I will break the staff of bread in Jerusalem: and they shall eat bread by weight, and with fearfulness; and they shall drink water by measure, and in dismay:
 
@@ -178,7 +178,7 @@
 
 ## Chapter 5
 
-1. You, son of man, take a sharp sword; You shall take it as a barber`s razor to you, and shall cause it to pass on your head and on your beard: then take balances to weigh, and divide the hair.
+1. You, son of man, take a sharp sword; You shall take it as a barber's razor to you, and shall cause it to pass on your head and on your beard: then take balances to weigh, and divide the hair.
 
 2. A third part you shall burn in the fire in the midst of the city, when the days of the siege are fulfilled; and you shall take a third part, and strike with the sword around it; and a third part you shall scatter to the wind, and I will draw out a sword after them.
 
@@ -268,7 +268,7 @@
 
 11. Violence is risen up into a rod of wickedness; none of them [shall remain], nor of their multitude, nor of their wealth: neither shall there be eminency among them.
 
-12. The time is come, the day draws near: don`t let the buyer rejoice, nor the seller mourn; for wrath is on all its multitude.
+12. The time is come, the day draws near: don't let the buyer rejoice, nor the seller mourn; for wrath is on all its multitude.
 
 13. For the seller shall not return to that which is sold, although they be yet alive: for the vision is touching the whole multitude of it, none shall return; neither shall any strengthen himself in the iniquity of his life.
 
@@ -325,15 +325,15 @@
 
 11. There stood before them seventy men of the elders of the house of Israel; and in the midst of them stood Jaazaniah the son of Shaphan, every man with his censer in his hand; and the odor of the cloud of incense went up.
 
-12. Then said he to me, Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his chambers of imagery? for they say, Yahweh doesn`t see us; Yahweh has forsaken the land.
+12. Then said he to me, Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his chambers of imagery? for they say, Yahweh doesn't see us; Yahweh has forsaken the land.
 
 13. He said also to me, You shall again see yet other great abominations which they do.
 
-14. Then he brought me to the door of the gate of Yahweh`s house which was toward the north; and see, there sat the women weeping for Tammuz.
+14. Then he brought me to the door of the gate of Yahweh's house which was toward the north; and see, there sat the women weeping for Tammuz.
 
 15. Then said he to me, Have you seen [this], son of man? You shall again see yet greater abominations than these.
 
-16. He brought me into the inner court of Yahweh`s house; and see, at the door of the temple of Yahweh, between the porch and the altar, were about twenty-five men, with their backs toward the temple of Yahweh, and their faces toward the east; and they were worshipping the sun toward the east.
+16. He brought me into the inner court of Yahweh's house; and see, at the door of the temple of Yahweh, between the porch and the altar, were about twenty-five men, with their backs toward the temple of Yahweh, and their faces toward the east; and they were worshipping the sun toward the east.
 
 17. Then he said to me, Have you seen [this], son of man? Is it a light thing to the house of Judah that they commit the abominations which they commit here? for they have filled the land with violence, and have turned again to provoke me to anger: and behold, they put the branch to their nose.
 
@@ -344,21 +344,21 @@
 
 1. Then he cried in my ears with a loud voice, saying, Cause those who are in charge of the city to draw near, every man with his destroying weapon in his hand.
 
-2. Behold, six men came from the way of the upper gate, which lies toward the north, every man with his slaughter weapon in his hand; and one man in the midst of them clothed in linen, with a writer`s inkhorn by his side. They went in, and stood beside the bronze altar.
+2. Behold, six men came from the way of the upper gate, which lies toward the north, every man with his slaughter weapon in his hand; and one man in the midst of them clothed in linen, with a writer's inkhorn by his side. They went in, and stood beside the bronze altar.
 
-3. The glory of the God of Israel was gone up from the cherub, whereupon it was, to the threshold of the house: and he called to the man clothed in linen, who had the writer`s inkhorn by his side.
+3. The glory of the God of Israel was gone up from the cherub, whereupon it was, to the threshold of the house: and he called to the man clothed in linen, who had the writer's inkhorn by his side.
 
 4. Yahweh said to him, Go through the midst of the city, through the midst of Jerusalem, and set a mark on the foreheads of the men that sigh and that cry over all the abominations that are done in its midst.
 
-5. To the others he said in my hearing, Go through the city after him, and strike: don`t let your eye spare, neither have pity;
+5. To the others he said in my hearing, Go through the city after him, and strike: don't let your eye spare, neither have pity;
 
-6. kill utterly the old man, the young man and the virgin, and little children and women; but don`t come near any man on whom is the mark: and begin at my sanctuary. Then they began at the old men that were before the house.
+6. kill utterly the old man, the young man and the virgin, and little children and women; but don't come near any man on whom is the mark: and begin at my sanctuary. Then they began at the old men that were before the house.
 
 7. He said to them, Defile the house, and fill the courts with the slain. Go forth! They went forth, and struck in the city.
 
 8. It happened, while they were smiting, and I was left, that I fell on my face, and cried, and said, Ah Lord Yahweh! will you destroy all the residue of Israel in your pouring out of your wrath on Jerusalem?
 
-9. Then said he to me, The iniquity of the house of Israel and Judah is exceedingly great, and the land is full of blood, and the city full of perversion: for they say, Yahweh has forsaken the land, and Yahweh doesn`t see.
+9. Then said he to me, The iniquity of the house of Israel and Judah is exceedingly great, and the land is full of blood, and the city full of perversion: for they say, Yahweh has forsaken the land, and Yahweh doesn't see.
 
 10. As for me also, my eye shall not spare, neither will I have pity, but I will bring their way on their head.
 
@@ -373,7 +373,7 @@
 
 3. Now the cherubim stood on the right side of the house, when the man went in; and the cloud filled the inner court.
 
-4. The glory of Yahweh mounted up from the cherub, [and stood] over the threshold of the house; and the house was filled with the cloud, and the court was full of the brightness of Yahweh`s glory.
+4. The glory of Yahweh mounted up from the cherub, [and stood] over the threshold of the house; and the house was filled with the cloud, and the court was full of the brightness of Yahweh's glory.
 
 5. The sound of the wings of the cherubim was heard even to the outer court, as the voice of God Almighty when he speaks.
 
@@ -381,13 +381,13 @@
 
 7. The cherub stretched forth his hand from between the cherubim to the fire that was between the cherubim, and took [of it], and put it into the hands of him who was clothed in linen, who took it and went out.
 
-8. There appeared in the cherubim the form of a man`s hand under their wings.
+8. There appeared in the cherubim the form of a man's hand under their wings.
 
 9. I looked, and behold, four wheels beside the cherubim, one wheel beside one cherub, and another wheel beside another cherub; and the appearance of the wheels was like a beryl stone.
 
 10. As for their appearance, they four had one likeness, as if a wheel have been within a wheel.
 
-11. When they went, they went in their four directions: they didn`t turn as they went, but to the place where the head looked they followed it; they didn`t turn as they went.
+11. When they went, they went in their four directions: they didn't turn as they went, but to the place where the head looked they followed it; they didn't turn as they went.
 
 12. Their whole body, and their backs, and their hands, and their wings, and the wheels, were full of eyes all around, [even] the wheels that they four had.
 
@@ -397,13 +397,13 @@
 
 15. The cherubim mounted up: this is the living creature that I saw by the river Chebar.
 
-16. When the cherubim went, the wheels went beside them; and when the cherubim lifted up their wings to mount up from the earth, the wheels also didn`t turn from beside them.
+16. When the cherubim went, the wheels went beside them; and when the cherubim lifted up their wings to mount up from the earth, the wheels also didn't turn from beside them.
 
 17. When they stood, these stood; and when they mounted up, these mounted up with them: for the spirit of the living creature was in them.
 
 18. The glory of Yahweh went forth from over the threshold of the house, and stood over the cherubim.
 
-19. The cherubim lifted up their wings, and mounted up from the earth in my sight when they went forth, and the wheels beside them: and they stood at the door of the east gate of Yahweh`s house; and the glory of the God of Israel was over them above.
+19. The cherubim lifted up their wings, and mounted up from the earth in my sight when they went forth, and the wheels beside them: and they stood at the door of the east gate of Yahweh's house; and the glory of the God of Israel was over them above.
 
 20. This is the living creature that I saw under the God of Israel by the river Chebar; and I knew that they were cherubim.
 
@@ -414,7 +414,7 @@
 
 ## Chapter 11
 
-1. Moreover the Spirit lifted me up, and brought me to the east gate of Yahweh`s house, which looks eastward: and see, at the door of the gate twenty-five men; and I saw in the midst of them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people.
+1. Moreover the Spirit lifted me up, and brought me to the east gate of Yahweh's house, which looks eastward: and see, at the door of the gate twenty-five men; and I saw in the midst of them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people.
 
 2. He said to me, Son of man, these are the men who devise iniquity, and who give wicked counsel in this city;
 
@@ -469,7 +469,7 @@
 
 1. The word of Yahweh also came to me, saying,
 
-2. Son of man, you dwell in the midst of the rebellious house, who have eyes to see, and don`t see, who have ears to hear, and don`t hear; for they are a rebellious house.
+2. Son of man, you dwell in the midst of the rebellious house, who have eyes to see, and don't see, who have ears to hear, and don't hear; for they are a rebellious house.
 
 3. Therefore, you son of man, prepare your stuff for moving, and move by day in their sight; and you shall move from your place to another place in their sight: it may be they will consider, though they are a rebellious house.
 
@@ -477,7 +477,7 @@
 
 5. Dig through the wall in their sight, and carry your stuff out that way.
 
-6. In their sight you shall bear it on your shoulder, and carry it forth in the dark; you shall cover your face, so that you don`t see the land: for I have set you for a sign to the house of Israel.
+6. In their sight you shall bear it on your shoulder, and carry it forth in the dark; you shall cover your face, so that you don't see the land: for I have set you for a sign to the house of Israel.
 
 7. I did so as I was commanded: I brought forth my stuff by day, as stuff for removing, and in the even I dug through the wall with my hand; I brought it forth in the dark, and bore it on my shoulder in their sight.
 
@@ -538,7 +538,7 @@
 
 6. They have seen falsehood and lying divination, who say, Yahweh says; but Yahweh has not sent them: and they have made men to hope that the word would be confirmed.
 
-7. Haven`t you seen a false vision, and haven`t you spoken a lying divination, in that you say, Yahweh says; but I have not spoken?
+7. Haven't you seen a false vision, and haven't you spoken a lying divination, in that you say, Yahweh says; but I have not spoken?
 
 8. Therefore thus says the Lord Yahweh: Because you have spoken falsehood, and seen lies, therefore, behold, I am against you, says the Lord Yahweh.
 
@@ -649,7 +649,7 @@
 
 3. and say, Thus says the Lord Yahweh to Jerusalem: Your birth and your birth is of the land of the Canaanite; the Amorite was your father, and your mother was a Hittite.
 
-4. As for your birth, in the day you were born your navel was not cut, neither were you washed in water to cleanse you; you weren`t salted at all, nor swaddled at all.
+4. As for your birth, in the day you were born your navel was not cut, neither were you washed in water to cleanse you; you weren't salted at all, nor swaddled at all.
 
 5. No eye pitied you, to do any of these things to you, to have compassion on you; but you were cast out in the open field, for that your person was abhorred, in the day that you were born.
 
@@ -697,9 +697,9 @@
 
 27. See therefore, I have stretched out my hand over you, and have diminished your ordinary [food], and delivered you to the will of those who hate you, the daughters of the Philistines, who are ashamed of your lewd way.
 
-28. You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren`t satisfied.
+28. You have played the prostitute also with the Assyrians, because you were insatiable; yes, you have played the prostitute with them, and yet you weren't satisfied.
 
-29. You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren`t satisfied with this.
+29. You have moreover multiplied your prostitution to the land of merchants, to Chaldea; and yet you weren't satisfied with this.
 
 30. How weak is your heart, says the Lord Yahweh, seeing you do all these things, the work of an impudent prostitute;
 
@@ -794,7 +794,7 @@
 
 11. Moreover the word of Yahweh came to me, saying,
 
-12. Say now to the rebellious house, Don`t you know what these things mean? tell them, Behold, the king of Babylon came to Jerusalem, and took its king, and its princes, and brought them to him to Babylon:
+12. Say now to the rebellious house, Don't you know what these things mean? tell them, Behold, the king of Babylon came to Jerusalem, and took its king, and its princes, and brought them to him to Babylon:
 
 13. and he took of the seed royal, and made a covenant with him; he also brought him under an oath, and took away the mighty of the land;
 
@@ -825,7 +825,7 @@
 
 1. The word of Yahweh came to me again, saying,
 
-2. What do you mean, that you use this proverb concerning the land of Israel, saying, The fathers have eaten sour grapes, and the children`s teeth are set on edge?
+2. What do you mean, that you use this proverb concerning the land of Israel, saying, The fathers have eaten sour grapes, and the children's teeth are set on edge?
 
 3. As I live, says the Lord Yahweh, you shall not have [occasion] any more to use this proverb in Israel.
 
@@ -833,7 +833,7 @@
 
 5. But if a man is just, and does that which is lawful and right,
 
-6. and has not eaten on the mountains, neither has lifted up his eyes to the idols of the house of Israel, neither has defiled his neighbor`s wife, neither has come near to a woman in her impurity,
+6. and has not eaten on the mountains, neither has lifted up his eyes to the idols of the house of Israel, neither has defiled his neighbor's wife, neither has come near to a woman in her impurity,
 
 7. and has not wronged any, but has restored to the debtor his pledge, has taken nothing by robbery, has given his bread to the hungry, and has covered the naked with a garment;
 
@@ -843,15 +843,15 @@
 
 10. If he fathers a son who is a robber, a shedder of blood, and who does any one of these things,
 
-11. and who does not any of those [duties], but even has eaten on the mountains, and defiled his neighbor`s wife,
+11. and who does not any of those [duties], but even has eaten on the mountains, and defiled his neighbor's wife,
 
 12. has wronged the poor and needy, has taken by robbery, has not restored the pledge, and has lifted up his eyes to the idols, has committed abomination,
 
 13. has given forth on interest, and has taken increase; shall he then live? he shall not live: he has done all these abominations; he shall surely die; his blood shall be on him.
 
-14. Now, behold, if he fathers a son, who sees all his father`s sins, which he has done, and fears, and does not such like;
+14. Now, behold, if he fathers a son, who sees all his father's sins, which he has done, and fears, and does not such like;
 
-15. who has not eaten on the mountains, neither has lifted up his eyes to the idols of the house of Israel, has not defiled his neighbor`s wife,
+15. who has not eaten on the mountains, neither has lifted up his eyes to the idols of the house of Israel, has not defiled his neighbor's wife,
 
 16. neither has wronged any, has not taken anything to pledge, neither has taken by robbery, but has given his bread to the hungry, and has covered the naked with a garment;
 
@@ -859,7 +859,7 @@
 
 18. As for his father, because he cruelly oppressed, robbed his brother, and did that which is not good among his people, behold, he shall die in his iniquity.
 
-19. Yet you say, Why doesn`t the son bear the iniquity of the father? When the son has done that which is lawful and right, and has kept all my statutes, and has done them, he shall surely live.
+19. Yet you say, Why doesn't the son bear the iniquity of the father? When the son has done that which is lawful and right, and has kept all my statutes, and has done them, he shall surely live.
 
 20. The soul who sins, he shall die: the son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son; the righteousness of the righteous shall be on him, and the wickedness of the wicked shall be on him.
 
@@ -871,7 +871,7 @@
 
 24. But when the righteous turns away from his righteousness, and commits iniquity, and does according to all the abominations that the wicked man does, shall he live? None of his righteous deeds that he has done shall be remembered: in his trespass that he has trespassed, and in his sin that he has sinned, in them shall he die.
 
-25. Yet you say, The way of the Lord is not equal. Hear now, house of Israel: Is my way not equal? Aren`t your ways unequal?
+25. Yet you say, The way of the Lord is not equal. Hear now, house of Israel: Is my way not equal? Aren't your ways unequal?
 
 26. When the righteous man turns away from his righteousness, and commits iniquity, and dies therein; in his iniquity that he has done shall he die.
 
@@ -879,7 +879,7 @@
 
 28. Because he considers, and turns away from all his transgressions that he has committed, he shall surely live, he shall not die.
 
-29. Yet says the house of Israel, The way of the Lord is not equal. house of Israel, are not my ways equal? Aren`t your ways unequal?
+29. Yet says the house of Israel, The way of the Lord is not equal. house of Israel, are not my ways equal? Aren't your ways unequal?
 
 30. Therefore I will judge you, house of Israel, everyone according to his ways, says the Lord Yahweh. Return, and turn yourselves from all your transgressions; so iniquity shall not be your ruin.
 
@@ -933,11 +933,11 @@
 
 6. in that day I swore to them, to bring them forth out of the land of Egypt into a land that I had searched out for them, flowing with milk and honey, which is the glory of all lands.
 
-7. I said to them, Cast away every man the abominations of his eyes, and don`t defile yourselves with the idols of Egypt; I am Yahweh your God.
+7. I said to them, Cast away every man the abominations of his eyes, and don't defile yourselves with the idols of Egypt; I am Yahweh your God.
 
 8. But they rebelled against me, and would not listen to me; they did not every man cast away the abominations of their eyes, neither did they forsake the idols of Egypt. Then I said I would pour out my wrath on them, to accomplish my anger against them in the midst of the land of Egypt.
 
-9. But I worked for my name`s sake, that it should not be profaned in the sight of the nations, among which they were, in whose sight I made myself known to them, in bringing them forth out of the land of Egypt.
+9. But I worked for my name's sake, that it should not be profaned in the sight of the nations, among which they were, in whose sight I made myself known to them, in bringing them forth out of the land of Egypt.
 
 10. So I caused them to go forth out of the land of Egypt, and brought them into the wilderness.
 
@@ -945,29 +945,29 @@
 
 12. Moreover also I gave them my Sabbaths, to be a sign between me and them, that they might know that I am Yahweh who sanctifies them.
 
-13. But the house of Israel rebelled against me in the wilderness: they didn`t walk in my statutes, and they rejected my ordinances, which if a man keep, he shall live in them; and my Sabbaths they greatly profaned. Then I said I would pour out my wrath on them in the wilderness, to consume them.
+13. But the house of Israel rebelled against me in the wilderness: they didn't walk in my statutes, and they rejected my ordinances, which if a man keep, he shall live in them; and my Sabbaths they greatly profaned. Then I said I would pour out my wrath on them in the wilderness, to consume them.
 
-14. But I worked for my name`s sake, that it should not be profaned in the sight of the nations, in whose sight I brought them out.
+14. But I worked for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them out.
 
 15. Moreover also I swore to them in the wilderness, that I would not bring them into the land which I had given them, flowing with milk and honey, which is the glory of all lands;
 
-16. because they rejected my ordinances, and didn`t walk in my statutes, and profaned my Sabbaths: for their heart went after their idols.
+16. because they rejected my ordinances, and didn't walk in my statutes, and profaned my Sabbaths: for their heart went after their idols.
 
-17. Nevertheless my eye spared them, and I didn`t destroy them, neither did I make a full end of them in the wilderness.
+17. Nevertheless my eye spared them, and I didn't destroy them, neither did I make a full end of them in the wilderness.
 
-18. I said to their children in the wilderness, Don`t walk in the statutes of your fathers, neither observe their ordinances, nor defile yourselves with their idols.
+18. I said to their children in the wilderness, Don't walk in the statutes of your fathers, neither observe their ordinances, nor defile yourselves with their idols.
 
 19. I am Yahweh your God: walk in my statutes, and keep my ordinances, and do them;
 
 20. and make my Sabbaths holy; and they shall be a sign between me and you, that you may know that I am Yahweh your God.
 
-21. But the children rebelled against me; they didn`t walk in my statutes, neither kept my ordinances to do them, which if a man do, he shall live in them; they profaned my Sabbaths. Then I said I would pour out my wrath on them, to accomplish my anger against them in the wilderness.
+21. But the children rebelled against me; they didn't walk in my statutes, neither kept my ordinances to do them, which if a man do, he shall live in them; they profaned my Sabbaths. Then I said I would pour out my wrath on them, to accomplish my anger against them in the wilderness.
 
-22. Nevertheless I withdrew my hand, and worked for my name`s sake, that it should not be profaned in the sight of the nations, in whose sight I brought them forth.
+22. Nevertheless I withdrew my hand, and worked for my name's sake, that it should not be profaned in the sight of the nations, in whose sight I brought them forth.
 
 23. Moreover I swore to them in the wilderness, that I would scatter them among the nations, and disperse them through the countries;
 
-24. because they had not executed my ordinances, but had rejected my statutes, and had profaned my Sabbaths, and their eyes were after their fathers` idols.
+24. because they had not executed my ordinances, but had rejected my statutes, and had profaned my Sabbaths, and their eyes were after their fathers' idols.
 
 25. Moreover also I gave them statutes that were not good, and ordinances in which they should not live;
 
@@ -1007,7 +1007,7 @@
 
 43. There you shall remember your ways, and all your doings, in which you have polluted yourselves; and you shall loathe yourselves in your own sight for all your evils that you have committed.
 
-44. You shall know that I am Yahweh, when I have dealt with you for my name`s sake, not according to your evil ways, nor according to your corrupt doings, you house of Israel, says the Lord Yahweh.
+44. You shall know that I am Yahweh, when I have dealt with you for my name's sake, not according to your evil ways, nor according to your corrupt doings, you house of Israel, says the Lord Yahweh.
 
 45. The word of Yahweh came to me, saying,
 
@@ -1017,7 +1017,7 @@
 
 48. All flesh shall see that I, Yahweh, have kindled it; it shall not be quenched.
 
-49. Then said I, Ah Lord Yahweh! they say of me, Isn`t he a speaker of parables?
+49. Then said I, Ah Lord Yahweh! they say of me, Isn't he a speaker of parables?
 
 
 ## Chapter 21
@@ -1107,9 +1107,9 @@
 
 9. Slanderous men have been in you to shed blood; and in you they have eaten on the mountains: in the midst of you they have committed lewdness.
 
-10. In you have they uncovered their fathers` nakedness; in you have they humbled her who was unclean in her impurity.
+10. In you have they uncovered their fathers' nakedness; in you have they humbled her who was unclean in her impurity.
 
-11. One has committed abomination with his neighbor`s wife; and another has lewdly defiled his daughter-in-law; and another in you has humbled his sister, his father`s daughter.
+11. One has committed abomination with his neighbor's wife; and another has lewdly defiled his daughter-in-law; and another in you has humbled his sister, his father's daughter.
 
 12. In you have they taken bribes to shed blood; you have taken interest and increase, and you have greedily gained of your neighbors by oppression, and have forgotten me, says the Lord Yahweh.
 
@@ -1216,7 +1216,7 @@
 
 31. You have walked in the way of your sister; therefore will I give her cup into your hand.
 
-32. Thus says the Lord Yahweh: You will drink of your sister`s cup, which is deep and large; you will be ridiculed and held in derision; it contains much.
+32. Thus says the Lord Yahweh: You will drink of your sister's cup, which is deep and large; you will be ridiculed and held in derision; it contains much.
 
 33. You shall be filled with drunkenness and sorrow, with the cup of astonishment and desolation, with the cup of your sister Samaria.
 
@@ -1267,7 +1267,7 @@
 
 6. Therefore thus says the Lord Yahweh: Woe to the bloody city, to the caldron whose rust is therein, and whose rust is not gone out of it! take out of it piece after piece; No lot is fallen on it.
 
-7. For her blood is in the midst of her; she set it on the bare rock; she didn`t pour it on the ground, to cover it with dust.
+7. For her blood is in the midst of her; she set it on the bare rock; she didn't pour it on the ground, to cover it with dust.
 
 8. That it may cause wrath to come up to take vengeance, I have set her blood on the bare rock, that it should not be covered.
 
@@ -1277,9 +1277,9 @@
 
 11. Then set it empty on its coals, that it may be hot, and its brass may burn, and that its filthiness may be molten in it, that its rust may be consumed.
 
-12. She has wearied [herself] with toil; yet her great rust doesn`t go forth out of her; her rust doesn`t [go forth] by fire.
+12. She has wearied [herself] with toil; yet her great rust doesn't go forth out of her; her rust doesn't [go forth] by fire.
 
-13. In your filthiness is lewdness: because I have cleansed you and you weren`t cleansed, you shall not be cleansed from your filthiness any more, until I have caused my wrath toward you to rest.
+13. In your filthiness is lewdness: because I have cleansed you and you weren't cleansed, you shall not be cleansed from your filthiness any more, until I have caused my wrath toward you to rest.
 
 14. I, Yahweh, have spoken it: it shall happen, and I will do it: I will not go back, neither will I spare, neither will I repent; according to your ways, and according to your doings, shall they judge you, says the Lord Yahweh.
 
@@ -1287,11 +1287,11 @@
 
 16. Son of man, behold, I will take away from you the desire of your eyes with a stroke: yet you shall neither mourn nor weep, neither shall your tears run down.
 
-17. Sigh, but not aloud, make no mourning for the dead; bind your headdress on you, and put your shoes on your feet, and don`t cover your lips, and don`t eat men`s bread.
+17. Sigh, but not aloud, make no mourning for the dead; bind your headdress on you, and put your shoes on your feet, and don't cover your lips, and don't eat men's bread.
 
 18. So I spoke to the people in the morning; and at even my wife died; and I did in the morning as I was commanded.
 
-19. The people said to me, Won`t you tell us what these things are to us, that you do so?
+19. The people said to me, Won't you tell us what these things are to us, that you do so?
 
 20. Then I said to them, The word of Yahweh came to me, saying,
 
@@ -1528,11 +1528,11 @@
 
 2. "Son of man, set your face against Pharaoh king of Egypt, and prophesy against him and against all Egypt.
 
-3. Speak and say, `Thus says the Lord Yahweh: "Behold, I am against you, Pharaoh king of Egypt, the great monster that lies in the midst of his rivers, that has said, `My river is my own, and I have made it for myself.`
+3. Speak and say, 'Thus says the Lord Yahweh: "Behold, I am against you, Pharaoh king of Egypt, the great monster that lies in the midst of his rivers, that has said, 'My river is my own, and I have made it for myself.'
 
 4. I will put hooks in your jaws, and I will make the fish of your rivers stick to your scales; and I will bring you up out of the midst of your rivers, with all the fish of your rivers which stick to your scales.
 
-5. I`ll cast you forth into the wilderness, you and all the fish of your rivers. You`ll fall on the open field. You won`t be brought together, nor gathered. I have given you for food to the animals of the earth and to the birds of the sky.
+5. I'll cast you forth into the wilderness, you and all the fish of your rivers. You'll fall on the open field. You won't be brought together, nor gathered. I have given you for food to the animals of the earth and to the birds of the sky.
 
 6. All the inhabitants of Egypt will know that I am Yahweh, because they have been a staff of reed to the house of Israel.
 
@@ -1540,7 +1540,7 @@
 
 8. Therefore thus says the Lord Yahweh: "Behold, I will bring a sword on you, and will cut off man and animal from you.
 
-9. The land of Egypt shall be a desolation and a waste; and they shall know that I am Yahweh. Because he has said, `The river is mine, and I have made it;`
+9. The land of Egypt shall be a desolation and a waste; and they shall know that I am Yahweh. Because he has said, 'The river is mine, and I have made it;'
 
 10. therefore, behold, I am against you, and against your rivers, and I will make the land of Egypt an utter waste and desolation, from the tower of Seveneh even to the border of Ethiopia.
 
@@ -1554,7 +1554,7 @@
 
 15. It shall be the base of the kingdoms; neither shall it any more lift itself up above the nations: and I will diminish them, that they shall no more rule over the nations.
 
-16. It shall be no more the confidence of the house of Israel, bringing iniquity to memory, when they turn to look after them: and they shall know that I am the Lord Yahweh."`"
+16. It shall be no more the confidence of the house of Israel, bringing iniquity to memory, when they turn to look after them: and they shall know that I am the Lord Yahweh."'"
 
 17. It came to pass in the seven and twentieth year, in the first [month], in the first [day] of the month, the word of Yahweh came to me, saying,
 
@@ -1736,17 +1736,17 @@
 
 3. if, when he sees the sword come on the land, he blow the trumpet, and warn the people;
 
-4. then whoever hears the sound of the trumpet, and doesn`t take warning, if the sword come, and take him away, his blood shall be on his own head.
+4. then whoever hears the sound of the trumpet, and doesn't take warning, if the sword come, and take him away, his blood shall be on his own head.
 
-5. He heard the sound of the trumpet, and didn`t take warning; his blood shall be on him; whereas if he had taken warning, he would have delivered his soul.
+5. He heard the sound of the trumpet, and didn't take warning; his blood shall be on him; whereas if he had taken warning, he would have delivered his soul.
 
-6. But if the watchman sees the sword come, and doesn`t blow the trumpet, and the people aren`t warned, and the sword comes, and take any person from among them; he is taken away in his iniquity, but his blood will I require at the watchman`s hand.
+6. But if the watchman sees the sword come, and doesn't blow the trumpet, and the people aren't warned, and the sword comes, and take any person from among them; he is taken away in his iniquity, but his blood will I require at the watchman's hand.
 
 7. So you, son of man, I have set you a watchman to the house of Israel; therefore hear the word at my mouth, and give them warning from me.
 
-8. When I tell the wicked, O wicked man, you shall surely die, and you don`t speak to warn the wicked from his way; that wicked man shall die in his iniquity, but his blood will I require at your hand.
+8. When I tell the wicked, O wicked man, you shall surely die, and you don't speak to warn the wicked from his way; that wicked man shall die in his iniquity, but his blood will I require at your hand.
 
-9. Nevertheless, if you warn the wicked of his way to turn from it, and he doesn`t turn from his way; he shall die in his iniquity, but you have delivered your soul.
+9. Nevertheless, if you warn the wicked of his way to turn from it, and he doesn't turn from his way; he shall die in his iniquity, but you have delivered your soul.
 
 10. You, son of man, tell the house of Israel: Thus you speak, saying, Our transgressions and our sins are on us, and we pine away in them; how then can we live?
 
@@ -1780,7 +1780,7 @@
 
 25. Therefore tell them, Thus says the Lord Yahweh: You eat with the blood, and lift up your eyes to your idols, and shed blood: and shall you possess the land?
 
-26. You stand on your sword, you work abomination, and every one of you defiles his neighbor`s wife: and shall you possess the land?
+26. You stand on your sword, you work abomination, and every one of you defiles his neighbor's wife: and shall you possess the land?
 
 27. You shall tell them, Thus says the Lord Yahweh: As I live, surely those who are in the waste places shall fall by the sword; and him who is in the open field will I give to the animals to be devoured; and those who are in the strongholds and in the caves shall die of the pestilence.
 
@@ -1790,9 +1790,9 @@
 
 30. As for you, son of man, the children of your people talk of you by the walls and in the doors of the houses, and speak one to another, everyone to his brother, saying, Please come and hear what is the word that comes forth from Yahweh.
 
-31. They come to you as the people come, and they sit before you as my people, and they hear your words, but don`t do them; for with their mouth they show much love, but their heart goes after their gain.
+31. They come to you as the people come, and they sit before you as my people, and they hear your words, but don't do them; for with their mouth they show much love, but their heart goes after their gain.
 
-32. Behold, you are to them as a very lovely song of one who has a pleasant voice, and can play well on an instrument; for they hear your words, but they don`t do them.
+32. Behold, you are to them as a very lovely song of one who has a pleasant voice, and can play well on an instrument; for they hear your words, but they don't do them.
 
 33. When this comes to pass, (behold, it comes), then shall they know that a prophet has been among them.
 
@@ -1801,11 +1801,11 @@
 
 1. The word of Yahweh came to me, saying,
 
-2. Son of man, prophesy against the shepherds of Israel, prophesy, and tell them, even to the shepherds, Thus says the Lord Yahweh: Woe to the shepherds of Israel who feed themselves! Shouldn`t the shepherds feed the sheep?
+2. Son of man, prophesy against the shepherds of Israel, prophesy, and tell them, even to the shepherds, Thus says the Lord Yahweh: Woe to the shepherds of Israel who feed themselves! Shouldn't the shepherds feed the sheep?
 
-3. You eat the fat, and you clothe yourself with the wool, you kill the fatlings; but you don`t feed the sheep.
+3. You eat the fat, and you clothe yourself with the wool, you kill the fatlings; but you don't feed the sheep.
 
-4. You haven`t strengthened the diseased, neither have you healed that which was sick, neither have you bound up that which was broken, neither have you brought back that which was driven away, neither have you sought that which was lost; but with force and with rigor you have ruled over them.
+4. You haven't strengthened the diseased, neither have you healed that which was sick, neither have you bound up that which was broken, neither have you brought back that which was driven away, neither have you sought that which was lost; but with force and with rigor you have ruled over them.
 
 5. They were scattered, because there was no shepherd; and they became food to all the animals of the field, and were scattered.
 
@@ -1813,7 +1813,7 @@
 
 7. Therefore, you shepherds, hear the word of Yahweh:
 
-8. As I live, says the Lord Yahweh, surely because my sheep became a prey, and my sheep became food to all the animals of the field, because there was no shepherd, neither did my shepherds search for my sheep, but the shepherds fed themselves, and didn`t feed my sheep;
+8. As I live, says the Lord Yahweh, surely because my sheep became a prey, and my sheep became food to all the animals of the field, because there was no shepherd, neither did my shepherds search for my sheep, but the shepherds fed themselves, and didn't feed my sheep;
 
 9. therefore, you shepherds, hear the word of Yahweh:
 
@@ -1939,7 +1939,7 @@
 
 21. But I had respect for my holy name, which the house of Israel had profaned among the nations, where they went.
 
-22. Therefore tell the house of Israel, Thus says the Lord Yahweh: I don`t do [this] for your sake, house of Israel, but for my holy name, which you have profaned among the nations, where you went.
+22. Therefore tell the house of Israel, Thus says the Lord Yahweh: I don't do [this] for your sake, house of Israel, but for my holy name, which you have profaned among the nations, where you went.
 
 23. I will sanctify my great name, which has been profaned among the nations, which you have profaned in the midst of them; and the nations shall know that I am Yahweh, says the Lord Yahweh, when I shall be sanctified in you before their eyes.
 
@@ -2024,7 +2024,7 @@
 
 24. My servant David shall be king over them; and they all shall have one shepherd: they shall also walk in my ordinances, and observe my statutes, and do them.
 
-25. They shall dwell in the land that I have given to Jacob my servant, in which your fathers lived; and they shall dwell therein, they, and their children, and their children`s children, forever: and David my servant shall be their prince for ever.
+25. They shall dwell in the land that I have given to Jacob my servant, in which your fathers lived; and they shall dwell therein, they, and their children, and their children's children, forever: and David my servant shall be their prince for ever.
 
 26. Moreover I will make a covenant of peace with them; it shall be an everlasting covenant with them; and I will place them, and multiply them, and will set my sanctuary in the midst of them forevermore.
 
@@ -2075,7 +2075,7 @@
 
 20. so that the fish of the sea, and the birds of the sky, and the animals of the field, and all creeping things who creep on the earth, and all the men who are on the surface of the earth, shall shake at my presence, and the mountains shall be thrown down, and the steep places shall fall, and every wall shall fall to the ground.
 
-21. I will call for a sword against him to all my mountains, says the Lord Yahweh: every man`s sword shall be against his brother.
+21. I will call for a sword against him to all my mountains, says the Lord Yahweh: every man's sword shall be against his brother.
 
 22. With pestilence and with blood will I enter into judgment with him; and I will rain on him, and on his hordes, and on the many peoples who are with him, an overflowing shower, and great hailstones, fire, and sulfur.
 
@@ -2112,7 +2112,7 @@
 
 14. They shall set apart men of continual employment, who shall pass through the land, and, with those who pass through, those who bury those who remain on the surface of the land, to cleanse it: after the end of seven months shall they search.
 
-15. Those who pass through the land shall pass through; and when any sees a man`s bone, then shall he set up a sign by it, until the undertakers have buried it in the valley of Hamon Gog.
+15. Those who pass through the land shall pass through; and when any sees a man's bone, then shall he set up a sign by it, until the undertakers have buried it in the valley of Hamon Gog.
 
 16. Hamonah shall also be the name of a city. Thus shall they cleanse the land.
 
@@ -2136,7 +2136,7 @@
 
 26. They shall bear their shame, and all their trespasses by which they have trespassed against me, when they shall dwell securely in their land, and none shall make them afraid;
 
-27. when I have brought them back from the peoples, and gathered them out of their enemies` lands, and am sanctified in them in the sight of many nations.
+27. when I have brought them back from the peoples, and gathered them out of their enemies' lands, and am sanctified in them in the sight of many nations.
 
 28. They shall know that I am Yahweh their God, in that I caused them to go into captivity among the nations, and have gathered them to their own land; and I will leave none of them any more there;
 
@@ -2153,7 +2153,7 @@
 
 4. The man said to me, Son of man, see with your eyes, and hear with your ears, and set your heart on all that I shall show you; for, to the intent that I may show them to you, you are brought here: declare all that you see to the house of Israel.
 
-5. Behold, a wall on the outside of the house all around, and in the man`s hand a measuring reed six cubits long, of a cubit and a handbreadth each: so he measured the thickness of the building, one reed; and the height, one reed.
+5. Behold, a wall on the outside of the house all around, and in the man's hand a measuring reed six cubits long, of a cubit and a handbreadth each: so he measured the thickness of the building, one reed; and the height, one reed.
 
 6. Then came he to the gate which looks toward the east, and went up its steps: and he measured the threshold of the gate, one reed broad; and the other threshold, one reed broad.
 
@@ -2307,11 +2307,11 @@
 
 3. Over against the twenty [cubits] which belonged to the inner court, and over against the pavement which belonged to the outer court, was gallery against gallery in the third story.
 
-4. Before the chambers was a walk of ten cubits` breadth inward, a way of one cubit; and their doors were toward the north.
+4. Before the chambers was a walk of ten cubits' breadth inward, a way of one cubit; and their doors were toward the north.
 
 5. Now the upper chambers were shorter; for the galleries took away from these, more than from the lower and the middle, in the building.
 
-6. For they were in three stories, and they didn`t have pillars as the pillars of the courts: therefore [the uppermost] was straitened more than the lowest and the middle from the ground.
+6. For they were in three stories, and they didn't have pillars as the pillars of the courts: therefore [the uppermost] was straitened more than the lowest and the middle from the ground.
 
 7. The wall that was outside by the side of the chambers, toward the outer court before the chambers, its length was fifty cubits.
 
@@ -2498,7 +2498,7 @@
 
 16. All the people of the land shall give to this offering for the prince in Israel.
 
-17. It shall be the prince`s part to give the burnt offerings, and the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel: he shall prepare the sin offering, and the meal offering, and the burnt offering, and the peace offerings, to make atonement for the house of Israel.
+17. It shall be the prince's part to give the burnt offerings, and the meal offerings, and the drink offerings, in the feasts, and on the new moons, and on the Sabbaths, in all the appointed feasts of the house of Israel: he shall prepare the sin offering, and the meal offering, and the burnt offering, and the peace offerings, to make atonement for the house of Israel.
 
 18. Thus says the Lord Yahweh: In the first [month], in the first [day] of the month, you shall take a young bull without blemish; and you shall cleanse the sanctuary.
 
@@ -2553,7 +2553,7 @@
 
 17. But if he give of his inheritance a gift to one of his servants, it shall be his to the year of liberty; then it shall return to the prince; but as for his inheritance, it shall be for his sons.
 
-18. Moreover the prince shall not take of the people`s inheritance, to thrust them out of their possession; he shall give inheritance to his sons out of his own possession, that my people not be scattered every man from his possession.
+18. Moreover the prince shall not take of the people's inheritance, to thrust them out of their possession; he shall give inheritance to his sons out of his own possession, that my people not be scattered every man from his possession.
 
 19. Then he brought me through the entry, which was at the side of the gate, into the holy chambers for the priests, which looked toward the north: and behold, there was a place on the hinder part westward.
 
@@ -2639,7 +2639,7 @@
 
 10. For these, even for the priests, shall be the holy offering: toward the north twenty-five thousand [in length], and toward the west ten thousand in breadth, and toward the east ten thousand in breadth, and toward the south twenty-five thousand in length: and the sanctuary of Yahweh shall be in its midst.
 
-11. [It shall be] for the priests who are sanctified of the sons of Zadok, who have kept my instruction, who didn`t go astray when the children of Israel went astray, as the Levites went astray.
+11. [It shall be] for the priests who are sanctified of the sons of Zadok, who have kept my instruction, who didn't go astray when the children of Israel went astray, as the Levites went astray.
 
 12. It shall be to them an offering from the offering of the land, a thing most holy, by the border of the Levites.
 
@@ -2661,7 +2661,7 @@
 
 21. The residue shall be for the prince, on the one side and on the other of the holy offering and of the possession of the city; in front of the twenty-five thousand of the offering toward the east border, and westward in front of the twenty-five thousand toward the west border, answerable to the portions, it shall be for the prince: and the holy offering and the sanctuary of the house shall be in its midst.
 
-22. Moreover from the possession of the Levites, and from the possession of the city, being in the midst of that which is the prince`s, between the border of Judah and the border of Benjamin, it shall be for the prince.
+22. Moreover from the possession of the Levites, and from the possession of the city, being in the midst of that which is the prince's, between the border of Judah and the border of Benjamin, it shall be for the prince.
 
 23. As for the rest of the tribes: from the east side to the west side, Benjamin, one [portion].
 

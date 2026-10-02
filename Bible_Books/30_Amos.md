@@ -18,7 +18,7 @@
 
 8. I will cut off the inhabitant from Ashdod,    and him who holds the scepter from Ashkelon; and I will turn my hand against Ekron;    and the remnant of the Philistines will perish,"    says the Lord Yahweh.
 
-9. Thus says Yahweh: "For three transgressions of Tyre, yes, for four,    I will not turn away its punishment;    because they delivered up the whole community to Edom,    and didn`t remember the brotherly covenant;
+9. Thus says Yahweh: "For three transgressions of Tyre, yes, for four,    I will not turn away its punishment;    because they delivered up the whole community to Edom,    and didn't remember the brotherly covenant;
 
 10. but I will send a fire on the wall of Tyre,    and it will devour its palaces."
 
@@ -41,7 +41,7 @@
 
 3. and I will cut off the judge from their midst,    and will kill all its princes with him,"    says Yahweh.
 
-4. Thus says Yahweh: "For three transgressions of Judah, yes, for four,    I will not turn away its punishment;    because they have rejected Yahweh`s law,    and have not kept his statutes,    and their lies have led them astray,    after which their fathers walked;
+4. Thus says Yahweh: "For three transgressions of Judah, yes, for four,    I will not turn away its punishment;    because they have rejected Yahweh's law,    and have not kept his statutes,    and their lies have led them astray,    after which their fathers walked;
 
 5. But I will send a fire on Judah,    and it will devour the palaces of Jerusalem."
 
@@ -55,15 +55,15 @@
 
 10. Also I brought you up out of the land of Egypt,    and led you forty years in the wilderness,    to possess the land of the Amorite.
 
-11. I raised up some of your sons for prophets,    and some of your young men for Nazirites. Isn`t this true,    you children of Israel?" says Yahweh.
+11. I raised up some of your sons for prophets,    and some of your young men for Nazirites. Isn't this true,    you children of Israel?" says Yahweh.
 
-12. "But you gave the Nazirites wine to drink,    and commanded the prophets, saying, `Don`t prophesy!`
+12. "But you gave the Nazirites wine to drink,    and commanded the prophets, saying, 'Don't prophesy!'
 
 13. Behold, I will crush you in your place,    as a cart crushes that is full of grain.
 
-14. Flight will perish from the swift;    and the strong won`t strengthen his force;    neither shall the mighty deliver himself;
+14. Flight will perish from the swift;    and the strong won't strengthen his force;    neither shall the mighty deliver himself;
 
-15. neither shall he stand who handles the bow;    and he who is swift of foot won`t escape;    neither shall he who rides the horse deliver himself;
+15. neither shall he stand who handles the bow;    and he who is swift of foot won't escape;    neither shall he who rides the horse deliver himself;
 
 16. and he who is courageous among the mighty will flee away naked       on that day,"    says Yahweh.
 
@@ -80,7 +80,7 @@
 
 5. Can a bird fall in a trap on the earth,    where no snare is set for him? Does a snare spring up from the ground,    when there is nothing to catch?
 
-6. Does the trumpet alarm sound in a city,    without the people being afraid? Does evil happen to a city,    and Yahweh hasn`t done it?
+6. Does the trumpet alarm sound in a city,    without the people being afraid? Does evil happen to a city,    and Yahweh hasn't done it?
 
 7. Surely the Lord Yahweh will do nothing,    unless he reveals his secret to his servants the prophets.
 
@@ -88,7 +88,7 @@
 
 9. Proclaim in the palaces at Ashdod,    and in the palaces in the land of Egypt, and say, "Assemble yourselves on the mountains of Samaria,    and see what unrest is in her,    and what oppression is among them."
 
-10. "Indeed they don`t know to do right," says Yahweh,    "Who hoard plunder and loot in their palaces."
+10. "Indeed they don't know to do right," says Yahweh,    "Who hoard plunder and loot in their palaces."
 
 11. Therefore thus says the Lord Yahweh: "An adversary will overrun the land;    and he will pull down your strongholds,    and your fortresses will be plundered."
 
@@ -113,17 +113,17 @@
 
 5. offer a sacrifice of thanksgiving of that which is leavened,    and proclaim free will offerings and brag about them:    for this pleases you, you children of Israel," says the Lord Yahweh.
 
-6. "I also have given you cleanness of teeth in all your cities,    and lack of bread in every town;    yet you haven`t returned to me," says Yahweh.
+6. "I also have given you cleanness of teeth in all your cities,    and lack of bread in every town;    yet you haven't returned to me," says Yahweh.
 
-7. "I also have withheld the rain from you,    when there were yet three months to the harvest;    and I caused it to rain on one city,    and caused it not to rain on another city. One place was rained on,    and the piece where it didn`t rain withered.
+7. "I also have withheld the rain from you,    when there were yet three months to the harvest;    and I caused it to rain on one city,    and caused it not to rain on another city. One place was rained on,    and the piece where it didn't rain withered.
 
-8. So two or three cities staggered to one city to drink water,    and were not satisfied:    yet you haven`t returned to me," says Yahweh.
+8. So two or three cities staggered to one city to drink water,    and were not satisfied:    yet you haven't returned to me," says Yahweh.
 
-9. "I struck you with blight and mildew many times in your gardens       and your vineyards;    and your fig trees and your olive trees have the swarming locust       devoured:    yet you haven`t returned to me," says Yahweh.
+9. "I struck you with blight and mildew many times in your gardens       and your vineyards;    and your fig trees and your olive trees have the swarming locust       devoured:    yet you haven't returned to me," says Yahweh.
 
-10. "I sent plagues among you like I did Egypt.    I have slain your young men with the sword,    and have carried away your horses;    and I filled your nostrils with the stench of your camp,    yet you haven`t returned to me," says Yahweh.
+10. "I sent plagues among you like I did Egypt.    I have slain your young men with the sword,    and have carried away your horses;    and I filled your nostrils with the stench of your camp,    yet you haven't returned to me," says Yahweh.
 
-11. "I have overthrown some of you,    as when God overthrew Sodom and Gomorrah,    and you were like a burning stick plucked out of the fire;    yet you haven`t returned to me," says Yahweh.
+11. "I have overthrown some of you,    as when God overthrew Sodom and Gomorrah,    and you were like a burning stick plucked out of the fire;    yet you haven't returned to me," says Yahweh.
 
 12. "Therefore thus will I do to you, Israel;    because I will do this to you,    prepare to meet your God, Israel.
 
@@ -140,7 +140,7 @@
 
 4. For thus says Yahweh to the house of Israel: "Seek me, and you will live;
 
-5. but don`t seek Bethel,    nor enter into Gilgal,    and don`t pass to Beersheba: for Gilgal shall surely go into captivity,    and Bethel shall come to nothing.
+5. but don't seek Bethel,    nor enter into Gilgal,    and don't pass to Beersheba: for Gilgal shall surely go into captivity,    and Bethel shall come to nothing.
 
 6. Seek Yahweh, and you will live;    lest he break out like fire in the house of Joseph,    and it devour, and there be no one to quench it in Bethel.
 
@@ -162,7 +162,7 @@
 
 15. Hate evil, love good,    and establish justice in the courts.    It may be that Yahweh, the God of Armies, will be gracious to the       remnant of Joseph."
 
-16. Therefore thus says Yahweh, the God of Armies, the Lord: "Wailing will be in all the broad ways;    and they will say in all the streets, `Alas! Alas!`    and they will call the farmer to mourning,    and those who are skillful in lamentation to wailing.
+16. Therefore thus says Yahweh, the God of Armies, the Lord: "Wailing will be in all the broad ways;    and they will say in all the streets, 'Alas! Alas!'    and they will call the farmer to mourning,    and those who are skillful in lamentation to wailing.
 
 17. In all vineyards there will be wailing;    for I will pass through the midst of you," says Yahweh.
 
@@ -170,9 +170,9 @@
 
 19. As if a man fled from a lion,    and a bear met him; Or he went into the house and leaned his hand on the wall,    and a snake bit him.
 
-20. Won`t the day of Yahweh be darkness, and not light?    Even very dark, and no brightness in it?
+20. Won't the day of Yahweh be darkness, and not light?    Even very dark, and no brightness in it?
 
-21. I hate, I despise your feasts,    and I can`t stand your solemn assemblies.
+21. I hate, I despise your feasts,    and I can't stand your solemn assemblies.
 
 22. Yes, though you offer me your burnt offerings and meal offerings,    I will not accept them;    neither will I regard the peace offerings of your fat animals.
 
@@ -207,20 +207,20 @@
 
 9. It will happen, if there remain ten men in one house,    that they shall die.
 
-10. "When a man`s relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, `Is there yet any with you?` And he says, `No;` then he will say, `Hush! Indeed we must not mention the name of Yahweh.`
+10. "When a man's relative carries him, even he who burns him, to bring bodies out of the house, and asks him who is in the innermost parts of the house, 'Is there yet any with you?' And he says, 'No;' then he will say, 'Hush! Indeed we must not mention the name of Yahweh.'
 
 11. "For, behold, Yahweh commands, and the great house will be       smashed to pieces,    and the little house into bits.
 
 12. Do horses run on the rocky crags?    Does one plow there with oxen? But you have turned justice into poison,    and the fruit of righteousness into bitterness;
 
-13. you who rejoice in a thing of nothing, who say,    `Haven`t we taken for ourselves horns by our own strength?`
+13. you who rejoice in a thing of nothing, who say,    'Haven't we taken for ourselves horns by our own strength?'
 
 14. For, behold, I will raise up against you a nation, house of       Israel,"    says Yahweh, the God of Armies;    "and they will afflict you from the entrance of Hamath to the brook       of the Arabah."
 
 
 ## Chapter 7
 
-1. Thus the Lord Yahweh showed me: and behold, he formed locusts in the beginning of the shooting up of the latter growth; and behold, it was the latter growth after the king`s harvest.
+1. Thus the Lord Yahweh showed me: and behold, he formed locusts in the beginning of the shooting up of the latter growth; and behold, it was the latter growth after the king's harvest.
 
 2. It happened that, when they made an end of eating the grass of the land, then I said, "Lord Yahweh, forgive, I beg you! How could Jacob stand? For he is small."
 
@@ -240,19 +240,19 @@
 
 10. Then Amaziah the priest of Bethel sent to Jeroboam king of Israel, saying, "Amos has conspired against you in the midst of the house of Israel. The land is not able to bear all his words.
 
-11. For Amos says, `Jeroboam will die by the sword, and Israel shall surely be led away captive out of his land.`"
+11. For Amos says, 'Jeroboam will die by the sword, and Israel shall surely be led away captive out of his land.'"
 
 12. Amaziah also said to Amos, "You seer, go, flee away into the land of Judah, and there eat bread, and prophesy there:
 
-13. but don`t prophesy again any more at Bethel; for it is the king`s sanctuary, and it is a royal house!"
+13. but don't prophesy again any more at Bethel; for it is the king's sanctuary, and it is a royal house!"
 
-14. Then Amos answered Amaziah, "I was no prophet, neither was I a prophet`s son; but I was a herdsman, and a farmer of sycamore figs;
+14. Then Amos answered Amaziah, "I was no prophet, neither was I a prophet's son; but I was a herdsman, and a farmer of sycamore figs;
 
-15. and Yahweh took me from following the flock, and Yahweh said to me, `Go, prophesy to my people Israel.`
+15. and Yahweh took me from following the flock, and Yahweh said to me, 'Go, prophesy to my people Israel.'
 
-16. Now therefore listen to the word of Yahweh: `You say, Don`t prophesy against Israel, and don`t preach against the house of Isaac.`
+16. Now therefore listen to the word of Yahweh: 'You say, Don't prophesy against Israel, and don't preach against the house of Isaac.'
 
-17. Therefore thus says Yahweh: `Your wife shall be a prostitute in the city, and your sons and your daughters shall fall by the sword, and your land shall be divided by line; and you yourself shall die in a land that is unclean, and Israel shall surely be led away captive out of his land.`"
+17. Therefore thus says Yahweh: 'Your wife shall be a prostitute in the city, and your sons and your daughters shall fall by the sword, and your land shall be divided by line; and you yourself shall die in a land that is unclean, and Israel shall surely be led away captive out of his land.'"
 
 
 ## Chapter 8
@@ -265,13 +265,13 @@
 
 4. Hear this, you who desire to swallow up the needy,    and cause the poor of the land to fail,
 
-5. Saying, `When will the new moon be gone, that we may sell       grain?    And the Sabbath, that we may market wheat,    making the ephah small, and the shekel large,    and dealing falsely with balances of deceit;
+5. Saying, 'When will the new moon be gone, that we may sell       grain?    And the Sabbath, that we may market wheat,    making the ephah small, and the shekel large,    and dealing falsely with balances of deceit;
 
-6. that we may buy the poor for silver,    and the needy for a pair of shoes,    and sell the sweepings with the wheat?`"
+6. that we may buy the poor for silver,    and the needy for a pair of shoes,    and sell the sweepings with the wheat?'"
 
 7. Yahweh has sworn by the pride of Jacob,    "Surely I will never forget any of their works.
 
-8. Won`t the land tremble for this,    and everyone mourn who dwells in it? Yes, it will rise up wholly like the River;    and it will be stirred up and sink again, like the River of Egypt.
+8. Won't the land tremble for this,    and everyone mourn who dwells in it? Yes, it will rise up wholly like the River;    and it will be stirred up and sink again, like the River of Egypt.
 
 9. It will happen in that day," says the Lord Yahweh,    "that I will cause the sun to go down at noon,    and I will darken the earth in the clear day.
 
@@ -283,7 +283,7 @@
 
 13. In that day the beautiful virgins    and the young men will faint for thirst.
 
-14. Those who swear by the sin of Samaria,    and say, `As your god, Dan, lives;`    and, `As the way of Beersheba lives;`    they will fall, and never rise up again."
+14. Those who swear by the sin of Samaria,    and say, 'As your god, Dan, lives;'    and, 'As the way of Beersheba lives;'    they will fall, and never rise up again."
 
 
 ## Chapter 9
@@ -300,13 +300,13 @@
 
 6. It is he who builds his chambers in the heavens, and has founded his vault on the earth; he who calls for the waters of the sea, and pours them out on the surface of the earth; Yahweh is his name.
 
-7. Are you not like the children of the Ethiopians to me, children of Israel?" says Yahweh. "Haven`t I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir?
+7. Are you not like the children of the Ethiopians to me, children of Israel?" says Yahweh. "Haven't I brought up Israel out of the land of Egypt, and the Philistines from Caphtor, and the Syrians from Kir?
 
 8. Behold, the eyes of the Lord Yahweh are on the sinful kingdom, and I will destroy it from off the surface of the earth; except that I will not utterly destroy the house of Jacob," says Yahweh.
 
 9. "For, behold, I will command, and I will sift the house of Israel among all the nations, as grain is sifted in a sieve, yet not the least kernel will fall on the earth.
 
-10. All the sinners of my people will die by the sword, who say, `Evil won`t overtake nor meet us.`
+10. All the sinners of my people will die by the sword, who say, 'Evil won't overtake nor meet us.'
 
 11. In that day I will raise up the tent of David who is fallen, and close up its breaches, and I will raise up its ruins, and I will build it as in the days of old;
 

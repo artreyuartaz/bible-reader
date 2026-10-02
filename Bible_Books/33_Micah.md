@@ -10,7 +10,7 @@
 
 4. The mountains melt under him,    and the valleys split apart,    like wax before the fire,    like waters that are poured down a steep place.
 
-5. "All this is for the disobedience of Jacob,    and for the sins of the house of Israel. What is the disobedience of Jacob?    Isn`t it Samaria? And what are the high places of Judah?    Aren`t they Jerusalem?
+5. "All this is for the disobedience of Jacob,    and for the sins of the house of Israel. What is the disobedience of Jacob?    Isn't it Samaria? And what are the high places of Judah?    Aren't they Jerusalem?
 
 6. Therefore I will make Samaria like a rubble heap of the field,    like places for planting vineyards; and I will pour down its stones into the valley,    and I will uncover its foundations.
 
@@ -20,9 +20,9 @@
 
 9. For her wounds are incurable;    for it has come even to Judah. It reaches to the gate of my people,    even to Jerusalem.
 
-10. Don`t tell it in Gath.    Don`t weep at all.    At Beth Ophrah I have rolled myself in the dust.
+10. Don't tell it in Gath.    Don't weep at all.    At Beth Ophrah I have rolled myself in the dust.
 
-11. Pass on, inhabitant of Shaphir, in nakedness and shame.    The inhabitant of Zaanan won`t come out.    The wailing of Beth Ezel will take from you his protection.
+11. Pass on, inhabitant of Shaphir, in nakedness and shame.    The inhabitant of Zaanan won't come out.    The wailing of Beth Ezel will take from you his protection.
 
 12. For the inhabitant of Maroth waits anxiously for good,    because evil has come down from Yahweh to the gate of Jerusalem.
 
@@ -43,13 +43,13 @@
 
 3. Therefore thus says Yahweh: "Behold, I am planning against these people a disaster,    from which you will not remove your necks,    neither will you walk haughtily;    for it is an evil time.
 
-4. In that day they will take up a parable against you,    and lament with a doleful lamentation, saying,    `We are utterly ruined!    My people`s possession is divided up.    Indeed he takes it from me and assigns our fields to traitors!`"
+4. In that day they will take up a parable against you,    and lament with a doleful lamentation, saying,    'We are utterly ruined!    My people's possession is divided up.    Indeed he takes it from me and assigns our fields to traitors!'"
 
 5. Therefore you will have no one who divides the land by lot in the       assembly of Yahweh.
 
-6. "Don`t prophesy!"    They prophesy. "Don`t prophesy about these things.    Disgrace won`t overtake us."
+6. "Don't prophesy!"    They prophesy. "Don't prophesy about these things.    Disgrace won't overtake us."
 
-7. Shall it be said, O house of Jacob:    "Is the Spirit of Yahweh angry?    Are these his doings?    Don`t my words do good to him who walks blamelessly?"
+7. Shall it be said, O house of Jacob:    "Is the Spirit of Yahweh angry?    Are these his doings?    Don't my words do good to him who walks blamelessly?"
 
 8. But lately my people have risen up as an enemy.    You strip the robe and clothing from those who pass by without a       care, returning from battle.
 
@@ -66,7 +66,7 @@
 
 ## Chapter 3
 
-1. I said, "Please listen, you heads of Jacob,    and rulers of the house of Israel:    Isn`t it for you to know justice?
+1. I said, "Please listen, you heads of Jacob,    and rulers of the house of Israel:    Isn't it for you to know justice?
 
 2. You who hate the good,    and love the evil;    who tear off their skin,    and their flesh from off their bones;
 
@@ -74,7 +74,7 @@
 
 4. Then they will cry to Yahweh,    but he will not answer them. Yes, he will hide his face from them at that time,    because they made their deeds evil."
 
-5. Thus says Yahweh concerning the prophets who lead my people astray; for those who feed their teeth, they proclaim, "Peace!" and whoever doesn`t provide for their mouths, they prepare war against him:
+5. Thus says Yahweh concerning the prophets who lead my people astray; for those who feed their teeth, they proclaim, "Peace!" and whoever doesn't provide for their mouths, they prepare war against him:
 
 6. "Therefore night is over you, with no vision,    and it is dark to you, that you may not divine;    and the sun will go down on the prophets,    and the day will be black over them.
 
@@ -86,14 +86,14 @@
 
 10. They build up Zion with blood,    and Jerusalem with iniquity.
 
-11. Her leaders judge for bribes,    and her priests teach for a price,    and her prophets of it tell fortunes for money: yet they lean on Yahweh, and say,    "Isn`t Yahweh in the midst of us?    No disaster will come on us."
+11. Her leaders judge for bribes,    and her priests teach for a price,    and her prophets of it tell fortunes for money: yet they lean on Yahweh, and say,    "Isn't Yahweh in the midst of us?    No disaster will come on us."
 
 12. Therefore Zion for your sake will be plowed like a field,    and Jerusalem will become heaps of rubble,    and the mountain of the temple like the high places of a forest.
 
 
 ## Chapter 4
 
-1. But in the latter days,    it will happen that the mountain of Yahweh`s temple will be       established on the top of the mountains,    and it will be exalted above the hills;    and peoples will stream to it.
+1. But in the latter days,    it will happen that the mountain of Yahweh's temple will be       established on the top of the mountains,    and it will be exalted above the hills;    and peoples will stream to it.
 
 2. Many nations will go and say,    "Come, and let us go up to the mountain of Yahweh,    and to the house of the God of Jacob;    and he will teach us of his ways,    and we will walk in his paths." For out of Zion will go forth the law,    and the word of Yahweh from Jerusalem;
 
@@ -115,7 +115,7 @@
 
 11. Now many nations have assembled against you, that say,    "Let her be defiled,    and let our eye gloat over Zion."
 
-12. But they don`t know the thoughts of Yahweh,    neither do they understand his counsel;    for he has gathered them like the sheaves to the threshing floor.
+12. But they don't know the thoughts of Yahweh,    neither do they understand his counsel;    for he has gathered them like the sheaves to the threshing floor.
 
 13. Arise and thresh, daughter of Zion;    for I will make your horn iron,    and I will make your hoofs brass; and you will beat in pieces many peoples: and I will devote their gain to Yahweh,    and their substance to the Lord of the whole earth.
 
@@ -134,7 +134,7 @@
 
 6. They will rule the land of Assyria with the sword,    and the land of Nimrod in its gates. He will deliver us from the Assyrian,    when he invades our land,    and when he marches within our border.
 
-7. The remnant of Jacob will be in the midst of many peoples,    like dew from Yahweh,    like showers on the grass,    that don`t wait for man,    nor wait for the sons of men.
+7. The remnant of Jacob will be in the midst of many peoples,    like dew from Yahweh,    like showers on the grass,    that don't wait for man,    nor wait for the sons of men.
 
 8. The remnant of Jacob will be among the nations,    in the midst of many peoples,    like a lion among the animals of the forest,    like a young lion among the flocks of sheep;    who, if he goes through, treads down and tears in pieces,    and there is no one to deliver.
 
@@ -150,14 +150,14 @@
 
 14. I will uproot your Asherim out of your midst;    and I will destroy your cities.
 
-15. I will execute vengeance in anger,    and wrath on the nations that didn`t listen."
+15. I will execute vengeance in anger,    and wrath on the nations that didn't listen."
 
 
 ## Chapter 6
 
 1. Listen now to what Yahweh says: "Arise, plead your case before the mountains,    and let the hills hear what you have to say.
 
-2. Hear, you mountains, Yahweh`s controversy,    and you enduring foundations of the earth;    for Yahweh has a controversy with his people,    and he will contend with Israel.
+2. Hear, you mountains, Yahweh's controversy,    and you enduring foundations of the earth;    for Yahweh has a controversy with his people,    and he will contend with Israel.
 
 3. My people, what have I done to you?    How have I burdened you?    Answer me!
 
@@ -171,7 +171,7 @@
 
 8. He has shown you, O man, what is good.    What does Yahweh require of you, but to act justly,    to love mercy, and to walk humbly with your God?
 
-9. Yahweh`s voice calls to the city,    and wisdom sees your name: "Listen to the rod,    and he who appointed it.
+9. Yahweh's voice calls to the city,    and wisdom sees your name: "Listen to the rod,    and he who appointed it.
 
 10. Are there yet treasures of wickedness in the house of the wicked,    and a short ephah that is accursed?
 
@@ -183,7 +183,7 @@
 
 14. You shall eat, but not be satisfied.    Your humiliation will be in your midst.    You will store up, but not save;    and that which you save I will give up to the sword.
 
-15. You will sow, but won`t reap.    You will tread the olives, but won`t anoint yourself with oil;    and crush grapes, but won`t drink the wine.
+15. You will sow, but won't reap.    You will tread the olives, but won't anoint yourself with oil;    and crush grapes, but won't drink the wine.
 
 16. For the statutes of Omri are kept,    and all the works of the house of Ahab.    You walk in their counsels,    that I may make you a ruin,    and her inhabitants a hissing;    And you will bear the reproach of my people."
 
@@ -198,13 +198,13 @@
 
 4. The best of them is like a brier.    The most upright is worse than a thorn hedge. The day of your watchmen,    even your visitation, has come;    now is the time of their confusion.
 
-5. Don`t trust in a neighbor.    Don`t put confidence in a friend.    With the woman lying in your embrace,    be careful of the words of your mouth!
+5. Don't trust in a neighbor.    Don't put confidence in a friend.    With the woman lying in your embrace,    be careful of the words of your mouth!
 
-6. For the son dishonors the father,    the daughter rises up against her mother,    the daughter-in-law against her mother-in-law;    a man`s enemies are the men of his own house.
+6. For the son dishonors the father,    the daughter rises up against her mother,    the daughter-in-law against her mother-in-law;    a man's enemies are the men of his own house.
 
 7. But as for me, I will look to Yahweh.    I will wait for the God of my salvation.    My God will hear me.
 
-8. Don`t rejoice against me, my enemy.    When I fall, I will arise.    When I sit in darkness, Yahweh will be a light to me.
+8. Don't rejoice against me, my enemy.    When I fall, I will arise.    When I sit in darkness, Yahweh will be a light to me.
 
 9. I will bear the indignation of Yahweh,    because I have sinned against him,    until he pleads my case, and executes judgment for me.    He will bring me forth to the light.    I will see his righteousness.
 
@@ -224,7 +224,7 @@
 
 17. They will lick the dust like a serpent.    Like crawling things of the earth they shall come trembling out of       their dens.    They will come with fear to Yahweh our God,    and will be afraid because of you.
 
-18. Who is a God like you, who pardons iniquity,    and passes over the disobedience of the remnant of his heritage? He doesn`t retain his anger forever,    because he delights in loving kindness.
+18. Who is a God like you, who pardons iniquity,    and passes over the disobedience of the remnant of his heritage? He doesn't retain his anger forever,    because he delights in loving kindness.
 
 19. He will again have compassion on us.    He will tread our iniquities under foot;    and you will cast all their sins into the depths of the sea.
 

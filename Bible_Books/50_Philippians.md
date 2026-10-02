@@ -44,7 +44,7 @@
 
 21. For to me to live is Christ, and to die is gain.
 
-22. But if I live on in the flesh, this will bring fruit from my work; yet I don`t know what I will choose.
+22. But if I live on in the flesh, this will bring fruit from my work; yet I don't know what I will choose.
 
 23. But I am in a dilemma between the two, having the desire to depart and be with Christ, which is far better.
 
@@ -75,7 +75,7 @@
 
 5. Have this in your mind, which was also in Christ Jesus,
 
-6. who, existing in the form of God, didn`t consider equality with God a thing to be grasped,
+6. who, existing in the form of God, didn't consider equality with God a thing to be grasped,
 
 7. but emptied himself, taking the form of a servant, being made in the likeness of men.
 
@@ -95,7 +95,7 @@
 
 15. that you may become blameless and harmless, children of God without blemish in the midst of a crooked and perverse generation, among whom you are seen as lights in the world,
 
-16. holding up the word of life; that I may have something to boast in the day of Christ, that I didn`t run in vain nor labor in vain.
+16. holding up the word of life; that I may have something to boast in the day of Christ, that I didn't run in vain nor labor in vain.
 
 17. Yes, and if I am poured out on the sacrifice and service of your faith, I rejoice, and rejoice with you all.
 
@@ -152,7 +152,7 @@
 
 12. Not that I have already obtained, or am already made perfect; but I press on, if it is so that I may take hold of that for which also I was taken hold of by Christ Jesus.
 
-13. Brothers, I don`t regard myself as yet having taken hold, but one thing I do. Forgetting the things which are behind, and stretching forward to the things which are before,
+13. Brothers, I don't regard myself as yet having taken hold, but one thing I do. Forgetting the things which are behind, and stretching forward to the things which are before,
 
 14. I press on toward the goal for the prize of the high calling of God in Christ Jesus.
 
@@ -215,7 +215,7 @@
 
 21. Greet every saint in Christ Jesus. The brothers who are with me greet you.
 
-22. All the saints greet you, especially those who are of Caesar`s household.
+22. All the saints greet you, especially those who are of Caesar's household.
 
 23. The grace of the Lord Jesus Christ be with you all. Amen.
 

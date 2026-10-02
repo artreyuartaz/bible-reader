@@ -8,7 +8,7 @@
 
 3. Blessed be the God and Father of our Lord Jesus Christ, who according to his great mercy became our father again to a living hope through the resurrection of Jesus Christ from the dead,
 
-4. to an incorruptible and undefiled inheritance that doesn`t fade away, reserved in Heaven for you,
+4. to an incorruptible and undefiled inheritance that doesn't fade away, reserved in Heaven for you,
 
 5. who by the power of God are guarded through faith for a salvation ready to be revealed in the last time.
 
@@ -16,7 +16,7 @@
 
 7. that the proof of your faith, which is more precious than gold that perishes even though it is tested by fire, may be found to result in praise, glory, and honor at the revelation of Jesus Christ--
 
-8. whom not having known you love; in whom, though now you don`t see him, yet believing, you rejoice greatly with joy unspeakable and full of glory--
+8. whom not having known you love; in whom, though now you don't see him, yet believing, you rejoice greatly with joy unspeakable and full of glory--
 
 9. receiving the result of your faith, the salvation of your souls.
 
@@ -34,7 +34,7 @@
 
 16. because it is written, "You shall be holy; for I am holy."
 
-17. If you call on him as Father, who without respect of persons judges according to each man`s work, pass the time of your living as foreigners here in reverent fear:
+17. If you call on him as Father, who without respect of persons judges according to each man's work, pass the time of your living as foreigners here in reverent fear:
 
 18. knowing that you were redeemed, not with corruptible things, with silver or gold, from the useless way of life handed down from your fathers,
 
@@ -48,9 +48,9 @@
 
 23. having been born again, not of corruptible seed, but of incorruptible, through the word of God, which lives and remains forever.
 
-24. For, "All flesh is like grass,    and all of man`s glory like the flower in the grass. The grass withers, and its flower falls;
+24. For, "All flesh is like grass,    and all of man's glory like the flower in the grass. The grass withers, and its flower falls;
 
-25. but the Lord`s word endures forever."     This is the word of Good News which was preached to you.
+25. but the Lord's word endures forever."     This is the word of Good News which was preached to you.
 
 
 ## Chapter 2
@@ -71,15 +71,15 @@
 
 8. and, "a stone of stumbling, and a rock of offense."     For they stumble at the word, being disobedient, to which also they were appointed.
 
-9. But you are a chosen race, a royal priesthood, a holy nation, a people for God`s own possession, that you may proclaim the excellence of him who called you out of darkness into his marvelous light:
+9. But you are a chosen race, a royal priesthood, a holy nation, a people for God's own possession, that you may proclaim the excellence of him who called you out of darkness into his marvelous light:
 
-10. who in time past were no people, but now are God`s people, who had not obtained mercy, but now have obtained mercy.
+10. who in time past were no people, but now are God's people, who had not obtained mercy, but now have obtained mercy.
 
 11. Beloved, I beg you as foreigners and pilgrims, to abstain from fleshly lusts, which war against the soul;
 
 12. having good behavior among the nations, so in that of which they speak against you as evildoers, they may by your good works, which they see, glorify God in the day of visitation.
 
-13. Therefore subject yourselves to every ordinance of man for the Lord`s sake: whether to the king, as supreme;
+13. Therefore subject yourselves to every ordinance of man for the Lord's sake: whether to the king, as supreme;
 
 14. or to governors, as sent by him for vengeance on evildoers and for praise to those who do well.
 
@@ -99,7 +99,7 @@
 
 22. who did not sin, "neither was deceit found in his mouth."
 
-23. Who, when he was cursed, didn`t curse back. When he suffered, didn`t threaten, but committed himself to him who judges righteously;
+23. Who, when he was cursed, didn't curse back. When he suffered, didn't threaten, but committed himself to him who judges righteously;
 
 24. who his own self bore our sins in his body on the tree, that we, having died to sins, might live to righteousness; by whose stripes you were healed.
 
@@ -108,7 +108,7 @@
 
 ## Chapter 3
 
-1. In like manner, wives, be in subjection to your own husbands; so that, even if any don`t obey the Word, they may be won by the behavior of their wives without a word;
+1. In like manner, wives, be in subjection to your own husbands; so that, even if any don't obey the Word, they may be won by the behavior of their wives without a word;
 
 2. seeing your pure behavior in fear.
 
@@ -134,13 +134,13 @@
 
 13. Now who is he who will harm you, if you become imitators of that which is good?
 
-14. But even if you should suffer for righteousness` sake, you are blessed. "Don`t fear what they fear, neither be troubled."
+14. But even if you should suffer for righteousness' sake, you are blessed. "Don't fear what they fear, neither be troubled."
 
 15. But sanctify the Lord God in your hearts; and always be ready to give an answer to everyone who asks you a reason concerning the hope that is in you, with humility and fear:
 
 16. having a good conscience; that, while you are spoken against as evildoers, they may be disappointed who curse your good manner of life in Christ.
 
-17. For it is better, if it is God`s will, that you suffer for doing well than for doing evil.
+17. For it is better, if it is God's will, that you suffer for doing well than for doing evil.
 
 18. Because Christ also suffered for sins once, the righteous for the unrighteous, that he might bring you to God; being put to death in the flesh, but made alive in the spirit;
 
@@ -161,7 +161,7 @@
 
 3. For we have spent enough of our past time doing the desire of the Gentiles, and having walked in lewdness, lusts, drunken binges, orgies, carousings, and abominable idolatries.
 
-4. They think it is strange that you don`t run with them into the same excess of riot, blaspheming:
+4. They think it is strange that you don't run with them into the same excess of riot, blaspheming:
 
 5. who will give account to him who is ready to judge the living and the dead.
 
@@ -177,17 +177,17 @@
 
 11. If anyone speaks, let it be as it were the very words of God. If anyone serves, let it be as of the strength which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen.
 
-12. Beloved, don`t be astonished at the fiery trial which has come upon you, to test you, as though a strange thing happened to you.
+12. Beloved, don't be astonished at the fiery trial which has come upon you, to test you, as though a strange thing happened to you.
 
-13. But because you are partakers of Christ`s sufferings, rejoice; that at the revelation of his glory you also may rejoice with exceeding joy.
+13. But because you are partakers of Christ's sufferings, rejoice; that at the revelation of his glory you also may rejoice with exceeding joy.
 
 14. If you are insulted for the name of Christ, you are blessed; because the Spirit of glory and of God rests on you. On their part he is blasphemed, but on your part he is glorified.
 
-15. For let none of you suffer as a murderer, or a thief, or an evil doer, or a meddler in other men`s matters.
+15. For let none of you suffer as a murderer, or a thief, or an evil doer, or a meddler in other men's matters.
 
 16. But if one of you suffers for being a Christian, let him not be ashamed; but let him glorify God in this matter.
 
-17. For the time has come for judgment to begin with the household of God. If it begins first with us, what will happen to those who don`t obey the Good News of God?
+17. For the time has come for judgment to begin with the household of God. If it begins first with us, what will happen to those who don't obey the Good News of God?
 
 18. "If it is hard for the righteous to be saved, what will happen to the ungodly and the sinner?"
 
@@ -202,7 +202,7 @@
 
 3. neither as lording it over those entrusted to you, but making yourselves examples to the flock.
 
-4. When the chief Shepherd is revealed, you will receive the crown of glory that doesn`t fade away.
+4. When the chief Shepherd is revealed, you will receive the crown of glory that doesn't fade away.
 
 5. Likewise, you younger ones, be subject to the elder. Yes, all of you gird yourselves with humility, to subject yourselves to one another; for "God resists the proud, but gives grace to the humble."
 

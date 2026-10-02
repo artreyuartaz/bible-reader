@@ -18,11 +18,11 @@
 
 8. We therefore ought to receive such, that we may be fellow workers for the truth.
 
-9. I wrote to the assembly, but Diotrephes, who loves to be first among them, doesn`t accept what we say.
+9. I wrote to the assembly, but Diotrephes, who loves to be first among them, doesn't accept what we say.
 
 10. Therefore, if I come, I will call attention to his deeds which he does, unjustly accusing us with wicked words. Not content with this, neither does he himself receive the brothers, and those who would, he forbids and throws out of the assembly.
 
-11. Beloved, don`t imitate that which is evil, but that which is good. He who does good is of God. He who does evil hasn`t seen God.
+11. Beloved, don't imitate that which is evil, but that which is good. He who does good is of God. He who does evil hasn't seen God.
 
 12. Demetrius has the testimony of all, and of the truth itself; yes, we also testify, and you know that our testimony is true.
 

@@ -16,21 +16,21 @@
 
 7. The fear of Yahweh is the beginning of knowledge;    but the foolish despise wisdom and instruction.
 
-8. My son, listen to your father`s instruction,    and don`t forsake your mother`s teaching:
+8. My son, listen to your father's instruction,    and don't forsake your mother's teaching:
 
 9. for they will be a garland to grace your head,    and chains around your neck.
 
-10. My son, if sinners entice you, don`t consent.
+10. My son, if sinners entice you, don't consent.
 
-11. If they say, "Come with us,    Let`s lay in wait for blood;    let`s lurk secretly for the innocent without cause;
+11. If they say, "Come with us,    Let's lay in wait for blood;    let's lurk secretly for the innocent without cause;
 
-12. let`s swallow them up alive like Sheol,    and whole, like those who go down into the pit.
+12. let's swallow them up alive like Sheol,    and whole, like those who go down into the pit.
 
-13. We`ll find all valuable wealth.    We`ll fill our houses with spoil.
+13. We'll find all valuable wealth.    We'll fill our houses with spoil.
 
-14. You shall cast your lot among us.    We`ll all have one purse."
+14. You shall cast your lot among us.    We'll all have one purse."
 
-15. My son, don`t walk in the way with them.    Keep your foot from their path,
+15. My son, don't walk in the way with them.    Keep your foot from their path,
 
 16. for their feet run to evil.    They hurry to shed blood.
 
@@ -58,7 +58,7 @@
 
 28. Then will they call on me, but I will not answer.    They will seek me diligently, but they will not find me;
 
-29. because they hated knowledge,    and didn`t choose the fear of Yahweh.
+29. because they hated knowledge,    and didn't choose the fear of Yahweh.
 
 30. They wanted none of my counsel.    They despised all my reproof.
 
@@ -118,19 +118,19 @@
 
 ## Chapter 3
 
-1. My son, don`t forget my teaching;    but let your heart keep my commandments:
+1. My son, don't forget my teaching;    but let your heart keep my commandments:
 
 2. for length of days, and years of life,    and peace, will they add to you.
 
-3. Don`t let kindness and truth forsake you.    Bind them around your neck.    Write them on the tablet of your heart.
+3. Don't let kindness and truth forsake you.    Bind them around your neck.    Write them on the tablet of your heart.
 
 4. So you will find favor,    and good understanding in the sight of God and man.
 
-5. Trust in Yahweh with all your heart,    and don`t lean on your own understanding.
+5. Trust in Yahweh with all your heart,    and don't lean on your own understanding.
 
 6. In all your ways acknowledge him,    and he will make your paths straight.
 
-7. Don`t be wise in your own eyes.    Fear Yahweh, and depart from evil.
+7. Don't be wise in your own eyes.    Fear Yahweh, and depart from evil.
 
 8. It will be health to your body,    and nourishment to your bones.
 
@@ -138,7 +138,7 @@
 
 10. so your barns will be filled with plenty,    and your vats will overflow with new wine.
 
-11. My son, don`t despise Yahweh`s discipline,    neither be weary of his reproof:
+11. My son, don't despise Yahweh's discipline,    neither be weary of his reproof:
 
 12. for whom Yahweh loves, he reproves;    even as a father reproves the son in whom he delights.
 
@@ -162,27 +162,27 @@
 
 22. so they will be life to your soul,    and grace for your neck.
 
-23. Then you shall walk in your way securely.    Your foot won`t stumble.
+23. Then you shall walk in your way securely.    Your foot won't stumble.
 
 24. When you lie down, you will not be afraid.    Yes, you will lie down, and your sleep will be sweet.
 
-25. Don`t be afraid of sudden fear,    neither of the desolation of the wicked, when it comes:
+25. Don't be afraid of sudden fear,    neither of the desolation of the wicked, when it comes:
 
 26. for Yahweh will be your confidence,    and will keep your foot from being taken.
 
-27. Don`t withhold good from those to whom it is due,    when it is in the power of your hand to do it.
+27. Don't withhold good from those to whom it is due,    when it is in the power of your hand to do it.
 
-28. Don`t say to your neighbor, "Go, and come again;    tomorrow I will give it to you,"    when you have it by you.
+28. Don't say to your neighbor, "Go, and come again;    tomorrow I will give it to you,"    when you have it by you.
 
-29. Don`t devise evil against your neighbor,    seeing he dwells securely by you.
+29. Don't devise evil against your neighbor,    seeing he dwells securely by you.
 
-30. Don`t strive with a man without cause,    if he has done you no harm.
+30. Don't strive with a man without cause,    if he has done you no harm.
 
-31. Don`t envy the man of violence.    Choose none of his ways.
+31. Don't envy the man of violence.    Choose none of his ways.
 
 32. For the perverse is an abomination to Yahweh,    but his friendship is with the upright.
 
-33. Yahweh`s curse is in the house of the wicked,    but he blesses the habitation of the righteous.
+33. Yahweh's curse is in the house of the wicked,    but he blesses the habitation of the righteous.
 
 34. Surely he mocks the mockers,    but he gives grace to the humble.
 
@@ -191,17 +191,17 @@
 
 ## Chapter 4
 
-1. Listen, sons, to a father`s instruction.    Pay attention and know understanding;
+1. Listen, sons, to a father's instruction.    Pay attention and know understanding;
 
-2. for I give you sound learning.    Don`t forsake my law.
+2. for I give you sound learning.    Don't forsake my law.
 
 3. For I was a son to my father,    tender and an only child in the sight of my mother.
 
 4. He taught me, and said to me:    "Let your heart retain my words.    Keep my commandments, and live.
 
-5. Get wisdom.    Get understanding.    Don`t forget, neither swerve from the words of my mouth.
+5. Get wisdom.    Get understanding.    Don't forget, neither swerve from the words of my mouth.
 
-6. Don`t forsake her, and she will preserve you.    Love her, and she will keep you.
+6. Don't forsake her, and she will preserve you.    Love her, and she will keep you.
 
 7. Wisdom is supreme.    Get wisdom.    Yes, though it costs all your possessions, get understanding.
 
@@ -215,19 +215,19 @@
 
 12. When you go, your steps will not be hampered.    When you run, you will not stumble.
 
-13. Take firm hold of instruction.    Don`t let her go.    Keep her, for she is your life.
+13. Take firm hold of instruction.    Don't let her go.    Keep her, for she is your life.
 
-14. Don`t enter into the path of the wicked.    Don`t walk in the way of evil men.
+14. Don't enter into the path of the wicked.    Don't walk in the way of evil men.
 
-15. Avoid it, and don`t pass by it.    Turn from it, and pass on.
+15. Avoid it, and don't pass by it.    Turn from it, and pass on.
 
-16. For they don`t sleep, unless they do evil.    Their sleep is taken away, unless they make someone fall.
+16. For they don't sleep, unless they do evil.    Their sleep is taken away, unless they make someone fall.
 
 17. For they eat the bread of wickedness,    and drink the wine of violence.
 
 18. But the path of the righteous is like the dawning light,    that shines more and more until the perfect day.
 
-19. The way of the wicked is like darkness.    They don`t know what they stumble over.
+19. The way of the wicked is like darkness.    They don't know what they stumble over.
 
 20. My son, attend to my words.    Turn your ear to my sayings.
 
@@ -243,7 +243,7 @@
 
 26. Make the path of your feet level.    Let all of your ways be established.
 
-27. Don`t turn to the right hand nor to the left.    Remove your foot from evil.
+27. Don't turn to the right hand nor to the left.    Remove your foot from evil.
 
 
 ## Chapter 5
@@ -258,15 +258,15 @@
 
 5. Her feet go down to death.    Her steps lead straight to Sheol.
 
-6. She gives no thought to the way of life.    Her ways are crooked, and she doesn`t know it.
+6. She gives no thought to the way of life.    Her ways are crooked, and she doesn't know it.
 
-7. Now therefore, my sons, listen to me.    Don`t depart from the words of my mouth.
+7. Now therefore, my sons, listen to me.    Don't depart from the words of my mouth.
 
-8. Remove your way far from her.    Don`t come near the door of her house,
+8. Remove your way far from her.    Don't come near the door of her house,
 
 9. lest you give your honor to others,    and your years to the cruel one;
 
-10. lest strangers feast on your wealth,    and your labors enrich another man`s house.
+10. lest strangers feast on your wealth,    and your labors enrich another man's house.
 
 11. You will groan at your latter end,    when your flesh and your body are consumed,
 
@@ -335,7 +335,7 @@
 
 19. a false witness who utters lies,    and he who sows discord among brothers.
 
-20. My son, keep your father`s commandment,    and don`t forsake your mother`s teaching.
+20. My son, keep your father's commandment,    and don't forsake your mother's teaching.
 
 21. Bind them continually on your heart.    Tie them around your neck.
 
@@ -343,9 +343,9 @@
 
 23. For the commandment is a lamp,    and the law is light.    Reproofs of instruction are the way of life,
 
-24. to keep you from the immoral woman,    from the flattery of the wayward wife`s tongue.
+24. to keep you from the immoral woman,    from the flattery of the wayward wife's tongue.
 
-25. Don`t lust after her beauty in your heart,    neither let her captivate you with her eyelids.
+25. Don't lust after her beauty in your heart,    neither let her captivate you with her eyelids.
 
 26. For a prostitute reduces you to a piece of bread.    The adulteress hunts for your precious life.
 
@@ -353,9 +353,9 @@
 
 28. Or can one walk on hot coals,    and his feet not be scorched?
 
-29. So is he who goes in to his neighbor`s wife.    Whoever touches her will not be unpunished.
+29. So is he who goes in to his neighbor's wife.    Whoever touches her will not be unpunished.
 
-30. Men don`t despise a thief,    if he steals to satisfy himself when he is hungry:
+30. Men don't despise a thief,    if he steals to satisfy himself when he is hungry:
 
 31. but if he is found, he shall restore seven times.    He shall give all the wealth of his house.
 
@@ -363,9 +363,9 @@
 
 33. He will get wounds and dishonor.    His reproach will not be wiped away.
 
-34. For jealousy arouses the fury of the husband.    He won`t spare in the day of vengeance.
+34. For jealousy arouses the fury of the husband.    He won't spare in the day of vengeance.
 
-35. He won`t regard any ransom,    neither will he rest content, though you give many gifts.
+35. He won't regard any ransom,    neither will he rest content, though you give many gifts.
 
 
 ## Chapter 7
@@ -390,7 +390,7 @@
 
 10. Behold, there a woman met him with the attire of a prostitute,    and with crafty intent.
 
-11. She is loud and defiant.    Her feet don`t stay in her house.
+11. She is loud and defiant.    Her feet don't stay in her house.
 
 12. Now she is in the streets, now in the squares,    and lurking at every corner.
 
@@ -404,9 +404,9 @@
 
 17. I have perfumed my bed with myrrh, aloes, and cinnamon.
 
-18. Come, let`s take our fill of loving until the morning.    Let`s solace ourselves with loving.
+18. Come, let's take our fill of loving until the morning.    Let's solace ourselves with loving.
 
-19. For my husband isn`t at home.    He has gone on a long journey.
+19. For my husband isn't at home.    He has gone on a long journey.
 
 20. He has taken a bag of money with him.    He will come home at the full moon."
 
@@ -414,11 +414,11 @@
 
 22. He followed her immediately,    as an ox goes to the slaughter,    as a fool stepping into a noose.
 
-23. Until an arrow strikes through his liver,    as a bird hurries to the snare,    and doesn`t know that it will cost his life.
+23. Until an arrow strikes through his liver,    as a bird hurries to the snare,    and doesn't know that it will cost his life.
 
 24. Now therefore, sons, listen to me.    Pay attention to the words of my mouth.
 
-25. Don`t let your heart turn to her ways.    Don`t go astray in her paths,
+25. Don't let your heart turn to her ways.    Don't go astray in her paths,
 
 26. for she has thrown down many wounded.    Yes, all her slain are a mighty army.
 
@@ -427,7 +427,7 @@
 
 ## Chapter 8
 
-1. Doesn`t wisdom cry out?    Doesn`t understanding raise her voice?
+1. Doesn't wisdom cry out?    Doesn't understanding raise her voice?
 
 2. On the top of high places by the way,    where the paths meet, she stands.
 
@@ -447,7 +447,7 @@
 
 10. Receive my instruction rather than silver;    knowledge rather than choice gold.
 
-11. For wisdom is better than rubies.    All the things that may be desired can`t be compared to it.
+11. For wisdom is better than rubies.    All the things that may be desired can't be compared to it.
 
 12. "I, wisdom, have made prudence my dwelling.    Find out knowledge and discretion.
 
@@ -491,7 +491,7 @@
 
 32. "Now therefore, my sons, listen to me,    for blessed are those who keep my ways.
 
-33. Hear instruction, and be wise.    Don`t refuse it.
+33. Hear instruction, and be wise.    Don't refuse it.
 
 34. Blessed is the man who hears me,    watching daily at my gates,    waiting at my door posts.
 
@@ -516,7 +516,7 @@
 
 7. He who corrects a mocker invites insult.    He who reproves a wicked man invites abuse.
 
-8. Don`t reprove a scoffer, lest he hate you.    Reprove a wise man, and he will love you.
+8. Don't reprove a scoffer, lest he hate you.    Reprove a wise man, and he will love you.
 
 9. Instruct a wise man, and he will be still wiser.    Teach a righteous man, and he will increase in learning.
 
@@ -536,7 +536,7 @@
 
 17. "Stolen water is sweet.    Food eaten in secret is pleasant."
 
-18. But he doesn`t know that the dead are there,    that her guests are in the depths of Sheol.
+18. But he doesn't know that the dead are there,    that her guests are in the depths of Sheol.
 
 
 ## Chapter 10
@@ -569,7 +569,7 @@
 
 14. Wise men lay up knowledge,    but the mouth of the foolish is near ruin.
 
-15. The rich man`s wealth is his strong city.    The destruction of the poor is their poverty.
+15. The rich man's wealth is his strong city.    The destruction of the poor is their poverty.
 
 16. The labor of the righteous leads to life.    The increase of the wicked leads to sin.
 
@@ -583,9 +583,9 @@
 
 21. The lips of the righteous feed many,    but the foolish die for lack of understanding.
 
-22. Yahweh`s blessing brings wealth,    and he adds no trouble to it.
+22. Yahweh's blessing brings wealth,    and he adds no trouble to it.
 
-23. It is a fool`s pleasure to do wickedness,    but wisdom is a man of understanding`s pleasure.
+23. It is a fool's pleasure to do wickedness,    but wisdom is a man of understanding's pleasure.
 
 24. What the wicked fear, will overtake them,    but the desire of the righteous will be granted.
 
@@ -614,7 +614,7 @@
 
 3. The integrity of the upright shall guide them,    but the perverseness of the treacherous shall destroy them.
 
-4. Riches don`t profit in the day of wrath,    but righteousness delivers from death.
+4. Riches don't profit in the day of wrath,    but righteousness delivers from death.
 
 5. The righteousness of the blameless will direct his way,    but the wicked shall fall by his own wickedness.
 
@@ -650,7 +650,7 @@
 
 21. Most certainly, the evil man will not be unpunished,    but the seed of the righteous will be delivered.
 
-22. Like a gold ring in a pig`s snout,    is a beautiful woman who lacks discretion.
+22. Like a gold ring in a pig's snout,    is a beautiful woman who lacks discretion.
 
 23. The desire of the righteous is only good.    The expectation of the wicked is wrath.
 
@@ -699,7 +699,7 @@
 
 13. An evil man is trapped by sinfulness of lips,    but the righteous shall come out of trouble.
 
-14. A man shall be satisfied with good by the fruit of his mouth.    The work of a man`s hands shall be rewarded to him.
+14. A man shall be satisfied with good by the fruit of his mouth.    The work of a man's hands shall be rewarded to him.
 
 15. The way of a fool is right in his own eyes,    but he who is wise listens to counsel.
 
@@ -709,7 +709,7 @@
 
 18. There is one who speaks rashly like the piercing of a sword,    but the tongue of the wise heals.
 
-19. Truth`s lips will be established forever,    but a lying tongue is only momentary.
+19. Truth's lips will be established forever,    but a lying tongue is only momentary.
 
 20. Deceit is in the heart of those who plot evil,    but joy comes to the promoters of peace.
 
@@ -721,18 +721,18 @@
 
 24. The hands of the diligent ones shall rule,    but laziness ends in slave labor.
 
-25. Anxiety in a man`s heart weighs it down,    but a kind word makes it glad.
+25. Anxiety in a man's heart weighs it down,    but a kind word makes it glad.
 
 26. A righteous person is cautious in friendship,    but the way of the wicked leads them astray.
 
-27. The slothful man doesn`t roast his game,    but the possessions of diligent men are prized.
+27. The slothful man doesn't roast his game,    but the possessions of diligent men are prized.
 
 28. In the way of righteousness is life;    in its path there is no death.
 
 
 ## Chapter 13
 
-1. A wise son listens to his father`s instruction,    but a scoffer doesn`t listen to rebuke.
+1. A wise son listens to his father's instruction,    but a scoffer doesn't listen to rebuke.
 
 2. By the fruit of his lips, a man enjoys good things;    but the unfaithful crave violence.
 
@@ -746,7 +746,7 @@
 
 7. There are some who pretend to be rich, yet have nothing.    There are some who pretend to be poor, yet have great wealth.
 
-8. The ransom of a man`s life is his riches,    but the poor hear no threats.
+8. The ransom of a man's life is his riches,    but the poor hear no threats.
 
 9. The light of the righteous shines brightly,    but the lamp of the wicked is snuffed out.
 
@@ -774,9 +774,9 @@
 
 21. Misfortune pursues sinners,    but prosperity rewards the righteous.
 
-22. A good man leaves an inheritance to his children`s children,    but the wealth of the sinner is stored for the righteous.
+22. A good man leaves an inheritance to his children's children,    but the wealth of the sinner is stored for the righteous.
 
-23. An abundance of food is in poor people`s fields,    but injustice sweeps it away.
+23. An abundance of food is in poor people's fields,    but injustice sweeps it away.
 
 24. One who spares the rod hates his son,    but one who loves him is careful to discipline him.
 
@@ -789,15 +789,15 @@
 
 2. He who walks in his uprightness fears Yahweh,    but he who is perverse in his ways despises him.
 
-3. The fool`s talk brings a rod to his back,    but the lips of the wise protect them.
+3. The fool's talk brings a rod to his back,    but the lips of the wise protect them.
 
 4. Where no oxen are, the crib is clean,    but much increase is by the strength of the ox.
 
 5. A truthful witness will not lie,    but a false witness pours out lies.
 
-6. A scoffer seeks wisdom, and doesn`t find it,    but knowledge comes easily to a discerning person.
+6. A scoffer seeks wisdom, and doesn't find it,    but knowledge comes easily to a discerning person.
 
-7. Stay away from a foolish man,    for you won`t find knowledge on his lips.
+7. Stay away from a foolish man,    for you won't find knowledge on his lips.
 
 8. The wisdom of the prudent is to think about his way,    but the folly of fools is deceit.
 
@@ -827,7 +827,7 @@
 
 21. He who despises his neighbor sins,    but blessed is he who has pity on the poor.
 
-22. Don`t they go astray who plot evil?    But love and faithfulness belong to those who plan good.
+22. Don't they go astray who plot evil?    But love and faithfulness belong to those who plan good.
 
 23. In all hard work there is profit,    but the talk of the lips leads only to poverty.
 
@@ -839,7 +839,7 @@
 
 27. The fear of Yahweh is a fountain of life,    turning people from the snares of death.
 
-28. In the multitude of people is the king`s glory,    but in the lack of people is the destruction of the prince.
+28. In the multitude of people is the king's glory,    but in the lack of people is the destruction of the prince.
 
 29. He who is slow to anger has great understanding,    but he who has a quick temper displays folly.
 
@@ -853,7 +853,7 @@
 
 34. Righteousness exalts a nation,    but sin is a disgrace to any people.
 
-35. The king`s favor is toward a servant who deals wisely,    but his wrath is toward one who causes shame.
+35. The king's favor is toward a servant who deals wisely,    but his wrath is toward one who causes shame.
 
 
 ## Chapter 15
@@ -862,11 +862,11 @@
 
 2. The tongue of the wise commends knowledge,    but the mouth of fools gush out folly.
 
-3. Yahweh`s eyes are everywhere,    keeping watch on the evil and the good.
+3. Yahweh's eyes are everywhere,    keeping watch on the evil and the good.
 
 4. A gentle tongue is a tree of life,    but deceit in it crushes the spirit.
 
-5. A fool despises his father`s correction,    but he who heeds reproof shows prudence.
+5. A fool despises his father's correction,    but he who heeds reproof shows prudence.
 
 6. In the house of the righteous is much treasure,    but the income of the wicked brings trouble.
 
@@ -880,7 +880,7 @@
 
 11. Sheol and Abaddon are before Yahweh--    how much more then the hearts of the children of men!
 
-12. A scoffer doesn`t love to be reproved;    he will not go to the wise.
+12. A scoffer doesn't love to be reproved;    he will not go to the wise.
 
 13. A glad heart makes a cheerful face;    but an aching heart breaks the spirit.
 
@@ -906,7 +906,7 @@
 
 24. The path of life leads upward for the wise,    to keep him from going downward to Sheol.
 
-25. Yahweh will uproot the house of the proud,    but he will keep the widow`s borders intact.
+25. Yahweh will uproot the house of the proud,    but he will keep the widow's borders intact.
 
 26. Yahweh detests the thoughts of the wicked,    but the thoughts of the pure are pleasing.
 
@@ -939,23 +939,23 @@
 
 6. By mercy and truth iniquity is atoned for.    By the fear of Yahweh men depart from evil.
 
-7. When a man`s ways please Yahweh,    he makes even his enemies to be at peace with him.
+7. When a man's ways please Yahweh,    he makes even his enemies to be at peace with him.
 
 8. Better is a little with righteousness,    than great revenues with injustice.
 
-9. A man`s heart plans his course,    but Yahweh directs his steps.
+9. A man's heart plans his course,    but Yahweh directs his steps.
 
 10. Inspired judgments are on the lips of the king.    He shall not betray his mouth.
 
-11. Honest balances and scales are Yahweh`s;    all the weights in the bag are his work.
+11. Honest balances and scales are Yahweh's;    all the weights in the bag are his work.
 
 12. It is an abomination for kings to do wrong,    for the throne is established by righteousness.
 
 13. Righteous lips are the delight of kings.    They value one who speaks the truth.
 
-14. The king`s wrath is a messenger of death,    but a wise man will pacify it.
+14. The king's wrath is a messenger of death,    but a wise man will pacify it.
 
-15. In the light of the king`s face is life.    His favor is like a cloud of the spring rain.
+15. In the light of the king's face is life.    His favor is like a cloud of the spring rain.
 
 16. How much better it is to get wisdom than gold!    Yes, to get understanding is to be chosen rather than silver.
 
@@ -1006,9 +1006,9 @@
 
 5. Whoever mocks the poor reproaches his Maker.    He who is glad at calamity shall not be unpunished.
 
-6. Children`s children are the crown of old men;    the glory of children are their parents.
+6. Children's children are the crown of old men;    the glory of children are their parents.
 
-7. Arrogant speech isn`t fitting for a fool,    much less do lying lips fit a prince.
+7. Arrogant speech isn't fitting for a fool,    much less do lying lips fit a prince.
 
 8. A bribe is a precious stone in the eyes of him who gives it;    wherever he turns, he prospers.
 
@@ -1034,7 +1034,7 @@
 
 19. He who loves disobedience loves strife.    One who builds a high gate seeks destruction.
 
-20. One who has a perverse heart doesn`t find prosperity,    and one who has a deceitful tongue falls into trouble.
+20. One who has a perverse heart doesn't find prosperity,    and one who has a deceitful tongue falls into trouble.
 
 21. He who becomes the father of a fool grieves.    The father of a fool has no joy.
 
@@ -1061,31 +1061,31 @@
 
 3. When wickedness comes, contempt also comes,    and with shame comes disgrace.
 
-4. The words of a man`s mouth are like deep waters.    The fountain of wisdom is like a flowing brook.
+4. The words of a man's mouth are like deep waters.    The fountain of wisdom is like a flowing brook.
 
 5. To be partial to the faces of the wicked is not good,    nor to deprive the innocent of justice.
 
-6. A fool`s lips come into strife,    and his mouth invites beatings.
+6. A fool's lips come into strife,    and his mouth invites beatings.
 
-7. A fool`s mouth is his destruction,    and his lips are a snare to his soul.
+7. A fool's mouth is his destruction,    and his lips are a snare to his soul.
 
-8. The words of a gossip are like dainty morsels:    they go down into a person`s innermost parts.
+8. The words of a gossip are like dainty morsels:    they go down into a person's innermost parts.
 
 9. One who is slack in his work    is brother to him who is a master of destruction.
 
 10. The name of Yahweh is a strong tower:    the righteous run to him, and are safe.
 
-11. The rich man`s wealth is his strong city,    like an unscalable wall in his own imagination.
+11. The rich man's wealth is his strong city,    like an unscalable wall in his own imagination.
 
 12. Before destruction the heart of man is proud,    but before honor is humility.
 
 13. He who gives answer before he hears,    that is folly and shame to him.
 
-14. A man`s spirit will sustain him in sickness,    but a crushed spirit, who can bear?
+14. A man's spirit will sustain him in sickness,    but a crushed spirit, who can bear?
 
 15. The heart of the discerning gets knowledge.    The ear of the wise seeks knowledge.
 
-16. A man`s gift makes room for him,    and brings him before great men.
+16. A man's gift makes room for him,    and brings him before great men.
 
 17. He who pleads his cause first seems right;    until another comes and questions him.
 
@@ -1093,7 +1093,7 @@
 
 19. A brother offended is more difficult than a fortified city;    and disputes are like the bars of a castle.
 
-20. A man`s stomach is filled with the fruit of his mouth.    With the harvest of his lips he is satisfied.
+20. A man's stomach is filled with the fruit of his mouth.    With the harvest of his lips he is satisfied.
 
 21. Death and life are in the power of the tongue;    those who love it will eat its fruit.
 
@@ -1108,7 +1108,7 @@
 
 1. Better is the poor who walks in his integrity    than he who is perverse in his lips and is a fool.
 
-2. It isn`t good to have zeal without knowledge;    nor being hasty with one`s feet and missing the way.
+2. It isn't good to have zeal without knowledge;    nor being hasty with one's feet and missing the way.
 
 3. The foolishness of man subverts his way;    his heart rages against Yahweh.
 
@@ -1128,9 +1128,9 @@
 
 11. The discretion of a man makes him slow to anger.    It is his glory to overlook an offense.
 
-12. The king`s wrath is like the roaring of a lion,    but his favor is like dew on the grass.
+12. The king's wrath is like the roaring of a lion,    but his favor is like dew on the grass.
 
-13. A foolish son is the calamity of his father.    A wife`s quarrels are a continual dripping.
+13. A foolish son is the calamity of his father.    A wife's quarrels are a continual dripping.
 
 14. House and riches are an inheritance from fathers,    but a prudent wife is from Yahweh.
 
@@ -1140,13 +1140,13 @@
 
 17. He who has pity on the poor lends to Yahweh;    he will reward him.
 
-18. Discipline your son, for there is hope;    don`t be a willing party to his death.
+18. Discipline your son, for there is hope;    don't be a willing party to his death.
 
 19. A hot-tempered man must pay the penalty,    for if you rescue him, you must do it again.
 
 20. Listen to counsel and receive instruction,    that you may be wise in your latter end.
 
-21. There are many plans in a man`s heart,    but Yahweh`s counsel will prevail.
+21. There are many plans in a man's heart,    but Yahweh's counsel will prevail.
 
 22. That which makes a man to be desired is his kindness.    A poor man is better than a liar.
 
@@ -1191,9 +1191,9 @@
 
 12. The hearing ear, and the seeing eye,    Yahweh has made even both of them.
 
-13. Don`t love sleep, lest you come to poverty.    Open your eyes, and you shall be satisfied with bread.
+13. Don't love sleep, lest you come to poverty.    Open your eyes, and you shall be satisfied with bread.
 
-14. "It`s no good, it`s no good," says the buyer;    but when he is gone his way, then he boasts.
+14. "It's no good, it's no good," says the buyer;    but when he is gone his way, then he boasts.
 
 15. There is gold and abundance of rubies;    but the lips of knowledge are a rare jewel.
 
@@ -1203,23 +1203,23 @@
 
 18. Plans are established by advice;    by wise guidance you wage war!
 
-19. He who goes about as a tale-bearer reveals secrets;    therefore don`t keep company with him who opens wide his lips.
+19. He who goes about as a tale-bearer reveals secrets;    therefore don't keep company with him who opens wide his lips.
 
 20. Whoever curses his father or his mother,    his lamp shall be put out in blackness of darkness.
 
-21. An inheritance quickly gained at the beginning,    won`t be blessed in the end.
+21. An inheritance quickly gained at the beginning,    won't be blessed in the end.
 
-22. Don`t say, "I will pay back evil."    Wait for Yahweh, and he will save you.
+22. Don't say, "I will pay back evil."    Wait for Yahweh, and he will save you.
 
 23. Yahweh detests differing weights,    and dishonest scales are not pleasing.
 
-24. A man`s steps are from Yahweh;    how then can man understand his way?
+24. A man's steps are from Yahweh;    how then can man understand his way?
 
 25. It is a snare to a man to make a rash dedication,    then later to consider his vows.
 
 26. A wise king winnows out the wicked,    and drives the threshing wheel over them.
 
-27. The spirit of man is Yahweh`s lamp,    searching all his innermost parts.
+27. The spirit of man is Yahweh's lamp,    searching all his innermost parts.
 
 28. Love and faithfulness keep the king safe.    His throne is sustained by love.
 
@@ -1230,7 +1230,7 @@
 
 ## Chapter 21
 
-1. The king`s heart is in Yahweh`s hand like the watercourses.    He turns it wherever he desires.
+1. The king's heart is in Yahweh's hand like the watercourses.    He turns it wherever he desires.
 
 2. Every way of a man is right in his own eyes,    but Yahweh weighs the hearts.
 
@@ -1280,7 +1280,7 @@
 
 25. The desire of the sluggard kills him,    for his hands refuse to labor.
 
-26. There are those who covet greedily all day long;    but the righteous give and don`t withhold.
+26. There are those who covet greedily all day long;    but the righteous give and don't withhold.
 
 27. The sacrifice of the wicked is an abomination:    how much more, when he brings it with a wicked mind!
 
@@ -1315,13 +1315,13 @@
 
 10. Drive out the mocker, and strife will go out;    yes, quarrels and insults will stop.
 
-11. He who loves purity of heart and speaks gracefully    is the king`s friend.
+11. He who loves purity of heart and speaks gracefully    is the king's friend.
 
 12. The eyes of Yahweh watch over knowledge;    but he frustrates the words of the unfaithful.
 
 13. The sluggard says, "There is a lion outside!    I will be killed in the streets!"
 
-14. The mouth of an adulteress is a deep pit:    he who is under Yahweh`s wrath will fall into it.
+14. The mouth of an adulteress is a deep pit:    he who is under Yahweh's wrath will fall into it.
 
 15. Folly is bound up in the heart of a child:    the rod of discipline drives it far from him.
 
@@ -1333,25 +1333,25 @@
 
 19. That your trust may be in Yahweh,    I teach you today, even you.
 
-20. Haven`t I written to you thirty excellent things    of counsel and knowledge,
+20. Haven't I written to you thirty excellent things    of counsel and knowledge,
 
 21. To teach you truth, reliable words,    to give sound answers to the ones who sent you?
 
-22. Don`t exploit the poor, because he is poor;    and don`t crush the needy in court;
+22. Don't exploit the poor, because he is poor;    and don't crush the needy in court;
 
 23. for Yahweh will plead their case,    and plunder the life of those who plunder them.
 
-24. Don`t befriend a hot-tempered man,    and don`t associate with one who harbors anger:
+24. Don't befriend a hot-tempered man,    and don't associate with one who harbors anger:
 
 25. lest you learn his ways,    and ensnare your soul.
 
-26. Don`t you be one of those who strike hands,    of those who are collateral for debts.
+26. Don't you be one of those who strike hands,    of those who are collateral for debts.
 
-27. If you don`t have means to pay,    why should he take away your bed from under you?
+27. If you don't have means to pay,    why should he take away your bed from under you?
 
-28. Don`t move the ancient boundary stone,    which your fathers have set up.
+28. Don't move the ancient boundary stone,    which your fathers have set up.
 
-29. Do you see a man skilled in his work?    He will serve kings.    He won`t serve obscure men.
+29. Do you see a man skilled in his work?    He will serve kings.    He won't serve obscure men.
 
 
 ## Chapter 23
@@ -1360,27 +1360,27 @@
 
 2. put a knife to your throat,    if you are a man given to appetite.
 
-3. Don`t be desirous of his dainties,    seeing they are deceitful food.
+3. Don't be desirous of his dainties,    seeing they are deceitful food.
 
-4. Don`t weary yourself to be rich.    In your wisdom, show restraint.
+4. Don't weary yourself to be rich.    In your wisdom, show restraint.
 
 5. Why do you set your eyes on that which is not?    For it certainly sprouts wings like an eagle and flies in the sky.
 
-6. Don`t eat the food of him who has a stingy eye,    and don`t crave his delicacies:
+6. Don't eat the food of him who has a stingy eye,    and don't crave his delicacies:
 
 7. for as he thinks about the cost, so he is.    "Eat and drink!" he says to you,    but his heart is not with you.
 
 8. The morsel which you have eaten you shall vomit up,    and lose your good words.
 
-9. Don`t speak in the ears of a fool,    for he will despise the wisdom of your words.
+9. Don't speak in the ears of a fool,    for he will despise the wisdom of your words.
 
-10. Don`t move the ancient boundary stone.    Don`t encroach on the fields of the fatherless:
+10. Don't move the ancient boundary stone.    Don't encroach on the fields of the fatherless:
 
 11. for their Defender is strong.    He will plead their case against you.
 
 12. Apply your heart to instruction,    and your ears to the words of knowledge.
 
-13. Don`t withhold correction from a child.    If you punish him with the rod, he will not die.
+13. Don't withhold correction from a child.    If you punish him with the rod, he will not die.
 
 14. Punish him with the rod,    and save his soul from Sheol.
 
@@ -1388,19 +1388,19 @@
 
 16. yes, my heart will rejoice,    when your lips speak what is right.
 
-17. Don`t let your heart envy sinners;    but rather fear Yahweh all the day long.
+17. Don't let your heart envy sinners;    but rather fear Yahweh all the day long.
 
 18. Indeed surely there is a future hope,    and your hope will not be cut off.
 
 19. Listen, my son, and be wise,    and keep your heart on the right path!
 
-20. Don`t be among ones drinking too much wine,    or those who gorge themselves on meat:
+20. Don't be among ones drinking too much wine,    or those who gorge themselves on meat:
 
 21. for the drunkard and the glutton shall become poor;    and drowsiness clothes them in rags.
 
-22. Listen to your father who gave you life,    and don`t despise your mother when she is old.
+22. Listen to your father who gave you life,    and don't despise your mother when she is old.
 
-23. Buy the truth, and don`t sell it.    Get wisdom, discipline, and understanding.
+23. Buy the truth, and don't sell it.    Get wisdom, discipline, and understanding.
 
 24. The father of the righteous has great joy.    Whoever fathers a wise child delights in him.
 
@@ -1416,7 +1416,7 @@
 
 30. Those who stay long at the wine;    those who go to seek out mixed wine.
 
-31. Don`t look at the wine when it is red,    when it sparkles in the cup,    when it goes down smoothly.
+31. Don't look at the wine when it is red,    when it sparkles in the cup,    when it goes down smoothly.
 
 32. In the end, it bites like a snake,    and poisons like a viper.
 
@@ -1424,12 +1424,12 @@
 
 34. Yes, you will be as he who lies down in the midst of the sea,    or as he who lies on top of the rigging:
 
-35. "They hit me, and I was not hurt!    They beat me, and I don`t feel it!    When will I wake up? I can do it again.    I can find another."
+35. "They hit me, and I was not hurt!    They beat me, and I don't feel it!    When will I wake up? I can do it again.    I can find another."
 
 
 ## Chapter 24
 
-1. Don`t be envious of evil men;    neither desire to be with them:
+1. Don't be envious of evil men;    neither desire to be with them:
 
 2. for their hearts plot violence,    and their lips talk about mischief.
 
@@ -1441,7 +1441,7 @@
 
 6. for by wise guidance you wage your war;    and victory is in many advisors.
 
-7. Wisdom is too high for a fool:    he doesn`t open his mouth in the gate.
+7. Wisdom is too high for a fool:    he doesn't open his mouth in the gate.
 
 8. One who plots to do evil    will be called a schemer.
 
@@ -1451,25 +1451,25 @@
 
 11. Rescue those who are being led away to death!    Indeed, hold back those who are staggering to the slaughter!
 
-12. If you say, "Behold, we didn`t know this;"    doesn`t he who weighs the hearts consider it? He who keeps your soul, doesn`t he know it?    Shall he not render to every man according to his work?
+12. If you say, "Behold, we didn't know this;"    doesn't he who weighs the hearts consider it? He who keeps your soul, doesn't he know it?    Shall he not render to every man according to his work?
 
 13. My son, eat honey, for it is good;    the droppings of the honeycomb, which are sweet to your taste:
 
 14. so you shall know wisdom to be to your soul;    if you have found it, then there will be a reward,    your hope will not be cut off.
 
-15. Don`t lay in wait, wicked man, against the habitation of the       righteous.    Don`t destroy his resting place:
+15. Don't lay in wait, wicked man, against the habitation of the       righteous.    Don't destroy his resting place:
 
 16. for a righteous man falls seven times, and rises up again;    but the wicked are overthrown by calamity.
 
-17. Don`t rejoice when your enemy falls.    Don`t let your heart be glad when he is overthrown;
+17. Don't rejoice when your enemy falls.    Don't let your heart be glad when he is overthrown;
 
 18. lest Yahweh see it, and it displease him,    and he turn away his wrath from him.
 
-19. Don`t fret yourself because of evildoers;    neither be envious of the wicked:
+19. Don't fret yourself because of evildoers;    neither be envious of the wicked:
 
 20. for there will be no reward to the evil man;    and the lamp of the wicked shall be snuffed out.
 
-21. My son, fear Yahweh and the king.    Don`t join those who are rebellious:
+21. My son, fear Yahweh and the king.    Don't join those who are rebellious:
 
 22. for their calamity will rise suddenly;    the destruction from them both--who knows?
 
@@ -1483,9 +1483,9 @@
 
 27. Prepare your work outside,    and get your fields ready.    Afterwards, build your house.
 
-28. Don`t be a witness against your neighbor without cause.    Don`t deceive with your lips.
+28. Don't be a witness against your neighbor without cause.    Don't deceive with your lips.
 
-29. Don`t say, "I will do to him as he has done to me;    I will render to the man according to his work."
+29. Don't say, "I will do to him as he has done to me;    I will render to the man according to his work."
 
 30. I went by the field of the sluggard,    by the vineyard of the man void of understanding;
 
@@ -1508,15 +1508,15 @@
 
 4. Take away the dross from the silver,    and material comes out for the refiner;
 
-5. Take away the wicked from the king`s presence,    and his throne will be established in righteousness.
+5. Take away the wicked from the king's presence,    and his throne will be established in righteousness.
 
-6. Don`t exalt yourself in the presence of the king,    or claim a place among great men;
+6. Don't exalt yourself in the presence of the king,    or claim a place among great men;
 
 7. for it is better that it be said to you, "Come up here,"    than that you should be put lower in the presence of the prince,    whom your eyes have seen.
 
-8. Don`t be hasty in bringing charges to court.    What will you do in the end when your neighbor shames you?
+8. Don't be hasty in bringing charges to court.    What will you do in the end when your neighbor shames you?
 
-9. Debate your case with your neighbor,    and don`t betray the confidence of another;
+9. Debate your case with your neighbor,    and don't betray the confidence of another;
 
 10. lest one who hears it put you to shame,    and your bad reputation never depart.
 
@@ -1532,7 +1532,7 @@
 
 16. Have you found honey?    Eat as much as is sufficient for you,    lest you eat too much, and vomit it.
 
-17. Let your foot be seldom in your neighbor`s house,    lest he be weary of you, and hate you.
+17. Let your foot be seldom in your neighbor's house,    lest he be weary of you, and hate you.
 
 18. A man who gives false testimony against his neighbor    is like a club, a sword, or a sharp arrow.
 
@@ -1552,7 +1552,7 @@
 
 26. Like a muddied spring, and a polluted well,    so is a righteous man who gives way before the wicked.
 
-27. It is not good to eat much honey;    nor is it honorable to seek one`s own honor.
+27. It is not good to eat much honey;    nor is it honorable to seek one's own honor.
 
 28. Like a city that is broken down and without walls    is a man whose spirit is without restraint.
 
@@ -1561,11 +1561,11 @@
 
 1. Like snow in summer, and as rain in harvest,    so honor is not fitting for a fool.
 
-2. Like a fluttering sparrow,    like a darting swallow,    so the undeserved curse doesn`t come to rest.
+2. Like a fluttering sparrow,    like a darting swallow,    so the undeserved curse doesn't come to rest.
 
 3. A whip is for the horse,    a bridle for the donkey,    and a rod for the back of fools!
 
-4. Don`t answer a fool according to his folly,    lest you also be like him.
+4. Don't answer a fool according to his folly,    lest you also be like him.
 
 5. Answer a fool according to his folly,    lest he be wise in his own eyes.
 
@@ -1591,7 +1591,7 @@
 
 16. The sluggard is wiser in his own eyes    than seven men who answer with discretion.
 
-17. Like one who grabs a dog`s ears    is one who passes by and meddles in a quarrel not his own.
+17. Like one who grabs a dog's ears    is one who passes by and meddles in a quarrel not his own.
 
 18. Like a madman who shoots torches, arrows, and death,
 
@@ -1607,7 +1607,7 @@
 
 24. A malicious man disguises himself with his lips,    but he harbors evil in his heart.
 
-25. When his speech is charming, don`t believe him;    for there are seven abominations in his heart.
+25. When his speech is charming, don't believe him;    for there are seven abominations in his heart.
 
 26. His malice may be concealed by deception,    but his wickedness will be exposed in the assembly.
 
@@ -1618,11 +1618,11 @@
 
 ## Chapter 27
 
-1. Don`t boast about tomorrow;    for you don`t know what a day may bring forth.
+1. Don't boast about tomorrow;    for you don't know what a day may bring forth.
 
 2. Let another man praise you,    and not your own mouth;    a stranger, and not your own lips.
 
-3. A stone is heavy,    and sand is a burden;    but a fool`s provocation is heavier than both.
+3. A stone is heavy,    and sand is a burden;    but a fool's provocation is heavier than both.
 
 4. Wrath is cruel,    and anger is overwhelming;    but who is able to stand before jealousy?
 
@@ -1634,9 +1634,9 @@
 
 8. As a bird that wanders from her nest,    so is a man who wanders from his home.
 
-9. Perfume and incense bring joy to the heart;    so does earnest counsel from a man`s friend.
+9. Perfume and incense bring joy to the heart;    so does earnest counsel from a man's friend.
 
-10. Don`t forsake your friend and your father`s friend.    Don`t go to your brother`s house in the day of your disaster:    better is a neighbor who is near than a distant brother.
+10. Don't forsake your friend and your father's friend.    Don't go to your brother's house in the day of your disaster:    better is a neighbor who is near than a distant brother.
 
 11. Be wise, my son,    and bring joy to my heart,    then I can answer my tormentor.
 
@@ -1650,13 +1650,13 @@
 
 16. restraining her is like restraining the wind,    or like grasping oil in his right hand.
 
-17. Iron sharpens iron;    so a man sharpens his friend`s countenance.
+17. Iron sharpens iron;    so a man sharpens his friend's countenance.
 
 18. Whoever tends the fig tree shall eat its fruit.    He who looks after his master shall be honored.
 
-19. As water reflects a face,    so a man`s heart reflects the man.
+19. As water reflects a face,    so a man's heart reflects the man.
 
-20. Sheol and Abaddon are never satisfied;    and a man`s eyes are never satisfied.
+20. Sheol and Abaddon are never satisfied;    and a man's eyes are never satisfied.
 
 21. The crucible is for silver,    and the furnace for gold;    but man is refined by his praise.
 
@@ -1670,7 +1670,7 @@
 
 26. The lambs are for your clothing,    and the goats are the price of a field.
 
-27. There will be plenty of goats` milk for your food,    for your family`s food,    and for the nourishment of your servant girls.
+27. There will be plenty of goats' milk for your food,    for your family's food,    and for the nourishment of your servant girls.
 
 
 ## Chapter 28
@@ -1683,7 +1683,7 @@
 
 4. Those who forsake the law praise the wicked;    but those who keep the law contend with them.
 
-5. Evil men don`t understand justice;    but those who seek Yahweh understand it fully.
+5. Evil men don't understand justice;    but those who seek Yahweh understand it fully.
 
 6. Better is the poor who walks in his integrity,    than he who is perverse in his ways, and he is rich.
 
@@ -1699,7 +1699,7 @@
 
 12. When the righteous triumph, there is great glory;    but when the wicked rise, men hide themselves.
 
-13. He who conceals his sins doesn`t prosper,    but whoever confesses and renounces them finds mercy.
+13. He who conceals his sins doesn't prosper,    but whoever confesses and renounces them finds mercy.
 
 14. Blessed is the man who always fears;    but one who hardens his heart falls into trouble.
 
@@ -1717,11 +1717,11 @@
 
 21. To show partiality is not good;    yet a man will do wrong for a piece of bread.
 
-22. A stingy man hurries after riches,    and doesn`t know that poverty waits for him.
+22. A stingy man hurries after riches,    and doesn't know that poverty waits for him.
 
 23. One who rebukes a man will afterward find more favor    than one who flatters with the tongue.
 
-24. Whoever robs his father or his mother, and says, "It`s not       wrong."    He is a partner with a destroyer.
+24. Whoever robs his father or his mother, and says, "It's not       wrong."    He is a partner with a destroyer.
 
 25. One who is greedy stirs up strife;    but one who trusts in Yahweh will prosper.
 
@@ -1746,7 +1746,7 @@
 
 6. An evil man is snared by his sin,    but the righteous can sing and be glad.
 
-7. The righteous care about justice for the poor.    The wicked aren`t concerned about knowledge.
+7. The righteous care about justice for the poor.    The wicked aren't concerned about knowledge.
 
 8. Mockers stir up a city,    but wise men turn away anger.
 
@@ -1770,7 +1770,7 @@
 
 18. Where there is no revelation, the people cast off restraint;    but one who keeps the law is blessed.
 
-19. A servant can`t be corrected by words.    Though he understands, yet he will not respond.
+19. A servant can't be corrected by words.    Though he understands, yet he will not respond.
 
 20. Do you see a man who is hasty in his words?    There is more hope for a fool than for him.
 
@@ -1778,13 +1778,13 @@
 
 22. An angry man stirs up strife,    and a wrathful man abounds in sin.
 
-23. A man`s pride brings him low,    but one of lowly spirit gains honor.
+23. A man's pride brings him low,    but one of lowly spirit gains honor.
 
 24. Whoever is an accomplice of a thief is an enemy of his own soul.    He takes an oath, but dares not testify.
 
 25. The fear of man proves to be a snare,    but whoever puts his trust in Yahweh is kept safe.
 
-26. Many seek the ruler`s favor,    but a man`s justice comes from Yahweh.
+26. Many seek the ruler's favor,    but a man's justice comes from Yahweh.
 
 27. A dishonest man detests the righteous,    and the upright in their ways detest the wicked.
 
@@ -1793,25 +1793,25 @@
 
 1. The words of Agur the son of Jakeh, the oracle: the man says to Ithiel,    to Ithiel and Ucal:
 
-2. "Surely I am the most ignorant man,    and don`t have a man`s understanding.
+2. "Surely I am the most ignorant man,    and don't have a man's understanding.
 
 3. I have not learned wisdom,    neither do I have the knowledge of the Holy One.
 
-4. Who has ascended up into heaven, and descended?    Who has gathered the wind in his fists?    Who has bound the waters in his garment?    Who has established all the ends of the earth?    What is his name, and what is his son`s name, if you know?
+4. Who has ascended up into heaven, and descended?    Who has gathered the wind in his fists?    Who has bound the waters in his garment?    Who has established all the ends of the earth?    What is his name, and what is his son's name, if you know?
 
 5. "Every word of God is flawless.    He is a shield to those who take refuge in him.
 
-6. Don`t you add to his words,    lest he reprove you, and you be found a liar.
+6. Don't you add to his words,    lest he reprove you, and you be found a liar.
 
-7. "Two things I have asked of you;    don`t deny me before I die:
+7. "Two things I have asked of you;    don't deny me before I die:
 
 8. Remove far from me falsehood and lies.    Give me neither poverty nor riches.    Feed me with the food that is needful for me;
 
-9. lest I be full, deny you, and say, `Who is Yahweh?`    or lest I be poor, and steal,    and so dishonor the name of my God.
+9. lest I be full, deny you, and say, 'Who is Yahweh?'    or lest I be poor, and steal,    and so dishonor the name of my God.
 
-10. "Don`t slander a servant to his master,    lest he curse you, and you be held guilty.
+10. "Don't slander a servant to his master,    lest he curse you, and you be held guilty.
 
-11. There is a generation that curses their father,    and doesn`t bless their mother.
+11. There is a generation that curses their father,    and doesn't bless their mother.
 
 12. There is a generation that is pure in their own eyes,    yet are not washed from their filthiness.
 
@@ -1819,19 +1819,19 @@
 
 14. There is a generation whose teeth are like swords,    and their jaws like knives,    to devour the poor from the earth, and the needy from among men.
 
-15. "The leach has two daughters:    `Give, give.`  "There are three things that are never satisfied;    four that don`t say, `Enough:`
+15. "The leach has two daughters:    'Give, give.'  "There are three things that are never satisfied;    four that don't say, 'Enough:'
 
-16. Sheol,    the barren womb;    the earth that is not satisfied with water;    and the fire that doesn`t say, `Enough.`
+16. Sheol,    the barren womb;    the earth that is not satisfied with water;    and the fire that doesn't say, 'Enough.'
 
 17. "The eye that mocks at his father,    and scorns obedience to his mother:    the ravens of the valley shall pick it out,    the young eagles shall eat it.
 
-18. "There are three things which are too amazing for me,    four which I don`t understand:
+18. "There are three things which are too amazing for me,    four which I don't understand:
 
 19. The way of an eagle in the air;    the way of a serpent on a rock;    the way of a ship in the midst of the sea;    and the way of a man with a maiden.
 
-20. "So is the way of an adulterous woman:    she eats and wipes her mouth,    and says, `I have done nothing wrong.`
+20. "So is the way of an adulterous woman:    she eats and wipes her mouth,    and says, 'I have done nothing wrong.'
 
-21. "For three things the earth tremble,    and under four, it can`t bear up:
+21. "For three things the earth tremble,    and under four, it can't bear up:
 
 22. For a servant when he is king;    a fool when he is filled with food;
 
@@ -1845,11 +1845,11 @@
 
 27. The locusts have no king,    yet they advance in ranks.
 
-28. You can catch a lizard with your hands,    yet it is in kings` palaces.
+28. You can catch a lizard with your hands,    yet it is in kings' palaces.
 
 29. "There are three things which are stately in their march,    four which are stately in going:
 
-30. The lion, which is mightiest among animals,    and doesn`t turn away for any;
+30. The lion, which is mightiest among animals,    and doesn't turn away for any;
 
 31. the greyhound,    the male goat also;    and the king against whom there is no rising up.
 
@@ -1864,9 +1864,9 @@
 
 2. "Oh, my son!    Oh, son of my womb!    Oh, son of my vows!
 
-3. Don`t give your strength to women,    nor your ways to that which destroys kings.
+3. Don't give your strength to women,    nor your ways to that which destroys kings.
 
-4. It is not for kings, Lemuel;    it is not for kings to drink wine;    nor for princes to say, `Where is strong drink?`
+4. It is not for kings, Lemuel;    it is not for kings to drink wine;    nor for princes to say, 'Where is strong drink?'
 
 5. lest they drink, and forget the law,    and pervert the justice due to anyone who is afflicted.
 
@@ -1894,7 +1894,7 @@
 
 17. She girds her waist with strength,    and makes her arms strong.
 
-18. She perceives that her merchandise is profitable.    Her lamp doesn`t go out by night.
+18. She perceives that her merchandise is profitable.    Her lamp doesn't go out by night.
 
 19. She lays her hands to the distaff,    and her hands hold the spindle.
 
@@ -1912,7 +1912,7 @@
 
 26. She opens her mouth with wisdom.    Faithful instruction is on her tongue.
 
-27. She looks well to the ways of her household,    and doesn`t eat the bread of idleness.
+27. She looks well to the ways of her household,    and doesn't eat the bread of idleness.
 
 28. Her children rise up and call her blessed.    Her husband also praises her:
 

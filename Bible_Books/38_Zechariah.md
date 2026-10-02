@@ -6,19 +6,19 @@
 
 2. "Yahweh was very displeased with your fathers.
 
-3. Therefore tell them: Thus says Yahweh of Armies: `Return to me,` says Yahweh of Armies, `and I will return to you,` says Yahweh of Armies.
+3. Therefore tell them: Thus says Yahweh of Armies: 'Return to me,' says Yahweh of Armies, 'and I will return to you,' says Yahweh of Armies.
 
-4. Don`t you be like your fathers, to whom the former prophets proclaimed, saying: Thus says Yahweh of Armies, `Return now from your evil ways, and from your evil doings;` but they did not hear, nor listen to me, says Yahweh.
+4. Don't you be like your fathers, to whom the former prophets proclaimed, saying: Thus says Yahweh of Armies, 'Return now from your evil ways, and from your evil doings;' but they did not hear, nor listen to me, says Yahweh.
 
 5. Your fathers, where are they? And the prophets, do they live forever?
 
-6. But my words and my decrees, which I commanded my servants the prophets, didn`t they overtake your fathers?     "Then they repented and said, `Just as Yahweh of Armies determined to do to us, according to our ways, and according to our practices, so he has dealt with us.`"
+6. But my words and my decrees, which I commanded my servants the prophets, didn't they overtake your fathers?     "Then they repented and said, 'Just as Yahweh of Armies determined to do to us, according to our ways, and according to our practices, so he has dealt with us.'"
 
 7. On the twenty-fourth day of the eleventh month, which is the month Shebat, in the second year of Darius, the word of Yahweh came to Zechariah the son of Berechiah, the son of Iddo, the prophet, saying,
 
 8. "I had a vision in the night, and behold, a man riding on a red horse, and he stood among the myrtle trees that were in a ravine; and behind him there were red, brown, and white horses.
 
-9. Then I asked, `My lord, what are these?`"     The angel who talked with me said to me, "I will show you what these are."
+9. Then I asked, 'My lord, what are these?'"     The angel who talked with me said to me, "I will show you what these are."
 
 10. The man who stood among the myrtle trees answered, "They are the ones Yahweh has sent to go back and forth through the earth."
 
@@ -28,13 +28,13 @@
 
 13. Yahweh answered the angel who talked with me with kind and comforting words.
 
-14. So the angel who talked with me said to me, "Proclaim, saying, `Thus says Yahweh of Armies: "I am jealous for Jerusalem and for Zion with a great jealousy.
+14. So the angel who talked with me said to me, "Proclaim, saying, 'Thus says Yahweh of Armies: "I am jealous for Jerusalem and for Zion with a great jealousy.
 
 15. I am very angry with the nations that are at ease; for I was but a little displeased, but they added to the calamity."
 
-16. Therefore thus says Yahweh: "I have returned to Jerusalem with mercy. My house shall be built in it," says Yahweh of Armies, "and a line shall be stretched forth over Jerusalem."`
+16. Therefore thus says Yahweh: "I have returned to Jerusalem with mercy. My house shall be built in it," says Yahweh of Armies, "and a line shall be stretched forth over Jerusalem."'
 
-17. "Proclaim further, saying, `Thus says Yahweh of Armies: "My cities will again overflow with prosperity, and Yahweh will again comfort Zion, and will again choose Jerusalem."`"
+17. "Proclaim further, saying, 'Thus says Yahweh of Armies: "My cities will again overflow with prosperity, and Yahweh will again comfort Zion, and will again choose Jerusalem."'"
 
 18. I lifted up my eyes, and saw, and behold, four horns.
 
@@ -53,19 +53,19 @@
 
 3. Behold, the angel who talked with me went forth, and another angel went out to meet him,
 
-4. and said to him, "Run, speak to this young man, saying, `Jerusalem will be inhabited as villages without walls, because of the multitude of men and livestock in it.
+4. and said to him, "Run, speak to this young man, saying, 'Jerusalem will be inhabited as villages without walls, because of the multitude of men and livestock in it.
 
-5. For I,` says Yahweh, `will be to her a wall of fire around it, and I will be the glory in the midst of her.
+5. For I,' says Yahweh, 'will be to her a wall of fire around it, and I will be the glory in the midst of her.
 
-6. Come! Come! Flee from the land of the north,` says Yahweh; `for I have spread you abroad as the four winds of the sky,` says Yahweh.
+6. Come! Come! Flee from the land of the north,' says Yahweh; 'for I have spread you abroad as the four winds of the sky,' says Yahweh.
 
-7. `Come, Zion! Escape, you who dwell with the daughter of Babylon.`
+7. 'Come, Zion! Escape, you who dwell with the daughter of Babylon.'
 
-8. For thus says Yahweh of Armies: `For honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye.
+8. For thus says Yahweh of Armies: 'For honor he has sent me to the nations which plundered you; for he who touches you touches the apple of his eye.
 
 9. For, behold, I will shake my hand over them, and they will be a spoil to those who served them; and you will know that Yahweh of Armies has sent me.
 
-10. Sing and rejoice, daughter of Zion; for, behold, I come, and I will dwell in the midst of you,` says Yahweh.
+10. Sing and rejoice, daughter of Zion; for, behold, I come, and I will dwell in the midst of you,' says Yahweh.
 
 11. Many nations shall join themselves to Yahweh in that day, and shall be my people; and I will dwell in the midst of you, and you shall know that Yahweh of Armies has sent me to you.
 
@@ -78,7 +78,7 @@
 
 1. He showed me Joshua the high priest standing before the angel of Yahweh, and Satan standing at his right hand to be his adversary.
 
-2. Yahweh said to Satan, "Yahweh rebuke you, Satan! Yes, Yahweh who has chosen Jerusalem rebuke you! Isn`t this a burning stick plucked out of the fire?"
+2. Yahweh said to Satan, "Yahweh rebuke you, Satan! Yes, Yahweh who has chosen Jerusalem rebuke you! Isn't this a burning stick plucked out of the fire?"
 
 3. Now Joshua was clothed with filthy garments, and was standing before the angel.
 
@@ -88,13 +88,13 @@
 
 6. The angel of Yahweh protested to Joshua, saying,
 
-7. "Thus says Yahweh of Armies: `If you will walk in my ways, and if you will follow my instructions, then you also shall judge my house, and shall also keep my courts, and I will give you a place of access among these who stand by.
+7. "Thus says Yahweh of Armies: 'If you will walk in my ways, and if you will follow my instructions, then you also shall judge my house, and shall also keep my courts, and I will give you a place of access among these who stand by.
 
 8. Hear now, Joshua the high priest, you and your fellows who sit before you; for they are men who are a sign: for, behold, I will bring forth my servant, the Branch.
 
-9. For, behold, the stone that I have set before Joshua; on one stone are seven eyes: behold, I will engrave its engraving,` says Yahweh of Armies, `and I will remove the iniquity of that land in one day.
+9. For, behold, the stone that I have set before Joshua; on one stone are seven eyes: behold, I will engrave its engraving,' says Yahweh of Armies, 'and I will remove the iniquity of that land in one day.
 
-10. In that day,` says Yahweh of Armies, `you will invite every man his neighbor under the vine and under the fig tree.`"
+10. In that day,' says Yahweh of Armies, 'you will invite every man his neighbor under the vine and under the fig tree.'"
 
 
 ## Chapter 4
@@ -107,11 +107,11 @@
 
 4. I answered and spoke to the angel who talked with me, saying, "What are these, my lord?"
 
-5. Then the angel who talked with me answered me, "Don`t you know what these are?"     I said, "No, my lord."
+5. Then the angel who talked with me answered me, "Don't you know what these are?"     I said, "No, my lord."
 
-6. Then he answered and spoke to me, saying, "This is the word of Yahweh to Zerubbabel, saying, `Not by might, nor by power, but by my Spirit,` says Yahweh of Armies.
+6. Then he answered and spoke to me, saying, "This is the word of Yahweh to Zerubbabel, saying, 'Not by might, nor by power, but by my Spirit,' says Yahweh of Armies.
 
-7. Who are you, great mountain? Before Zerubbabel you are a plain; and he will bring out the capstone with shouts of `Grace, grace, to it!`"
+7. Who are you, great mountain? Before Zerubbabel you are a plain; and he will bring out the capstone with shouts of 'Grace, grace, to it!'"
 
 8. Moreover the word of Yahweh came to me, saying,
 
@@ -123,7 +123,7 @@
 
 12. I asked him the second time, "What are these two olive branches, which are beside the two golden spouts, that pour the golden oil out of themselves?"
 
-13. He answered me, "Don`t you know what these are?"     I said, "No, my lord."
+13. He answered me, "Don't you know what these are?"     I said, "No, my lord."
 
 14. Then he said, "These are the two anointed ones who stand by the Lord of the whole earth."
 
@@ -177,36 +177,36 @@
 
 11. Yes, take silver and gold, and make crowns, and set them on the head of Joshua the son of Jehozadak, the high priest;
 
-12. and speak to him, saying, `Thus says Yahweh of Armies, "Behold, the man whose name is the Branch: and he shall grow up out of his place; and he shall build the temple of Yahweh;
+12. and speak to him, saying, 'Thus says Yahweh of Armies, "Behold, the man whose name is the Branch: and he shall grow up out of his place; and he shall build the temple of Yahweh;
 
 13. even he shall build the temple of Yahweh; and he shall bear the glory, and shall sit and rule on his throne; and he shall be a priest on his throne; and the counsel of peace shall be between them both.
 
 14. The crowns shall be to Helem, and to Tobijah, and to Jedaiah, and to Hen the son of Zephaniah, for a memorial in the temple of Yahweh.
 
-15. Those who are far off shall come and build in the temple of Yahweh; and you shall know that Yahweh of Armies has sent me to you. This will happen, if you will diligently obey the voice of Yahweh your God."`"
+15. Those who are far off shall come and build in the temple of Yahweh; and you shall know that Yahweh of Armies has sent me to you. This will happen, if you will diligently obey the voice of Yahweh your God."'"
 
 
 ## Chapter 7
 
 1. It happened in the fourth year of king Darius that the word of Yahweh came to Zechariah in the fourth day of the ninth month, the month of Chislev.
 
-2. The people of Bethel sent Sharezer and Regem Melech, and their men, to entreat Yahweh`s favor,
+2. The people of Bethel sent Sharezer and Regem Melech, and their men, to entreat Yahweh's favor,
 
 3. and to speak to the priests of the house of Yahweh of Armies, and to the prophets, saying, "Should I weep in the fifth month, separating myself, as I have done these so many years?"
 
 4. Then the word of Yahweh of Armies came to me, saying,
 
-5. "Speak to all the people of the land, and to the priests, saying, `When you fasted and mourned in the fifth and in the seventh month for these seventy years, did you at all fast to me, really to me?
+5. "Speak to all the people of the land, and to the priests, saying, 'When you fasted and mourned in the fifth and in the seventh month for these seventy years, did you at all fast to me, really to me?
 
-6. When you eat, and when you drink, don`t you eat for yourselves, and drink for yourselves?
+6. When you eat, and when you drink, don't you eat for yourselves, and drink for yourselves?
 
-7. Aren`t these the words which Yahweh proclaimed by the former prophets, when Jerusalem was inhabited and in prosperity, and its cities around her, and the South and the lowland were inhabited?`"
+7. Aren't these the words which Yahweh proclaimed by the former prophets, when Jerusalem was inhabited and in prosperity, and its cities around her, and the South and the lowland were inhabited?'"
 
 8. The word of Yahweh came to Zechariah, saying,
 
-9. "Thus has Yahweh of Armies spoken, saying, `Execute true judgment, and show kindness and compassion every man to his brother.
+9. "Thus has Yahweh of Armies spoken, saying, 'Execute true judgment, and show kindness and compassion every man to his brother.
 
-10. Don`t oppress the widow, nor the fatherless, the foreigner, nor the poor; and let none of you devise evil against his brother in your heart.`
+10. Don't oppress the widow, nor the fatherless, the foreigner, nor the poor; and let none of you devise evil against his brother in your heart.'
 
 11. But they refused to listen, and turned their backs, and stopped their ears, that they might not hear.
 
@@ -223,7 +223,7 @@
 
 2. Thus says Yahweh of Armies: "I am jealous for Zion with great jealousy, and I am jealous for her with great wrath."
 
-3. Thus says Yahweh: "I have returned to Zion, and will dwell in the midst of Jerusalem. Jerusalem shall be called `The City of Truth;` and the mountain of Yahweh of Armies, `The Holy Mountain.`"
+3. Thus says Yahweh: "I have returned to Zion, and will dwell in the midst of Jerusalem. Jerusalem shall be called 'The City of Truth;' and the mountain of Yahweh of Armies, 'The Holy Mountain.'"
 
 4. Thus says Yahweh of Armies: "Old men and old women will again dwell in the streets of Jerusalem, every man with his staff in his hand for very age.
 
@@ -243,11 +243,11 @@
 
 12. "For the seed of peace and the vine will yield its fruit, and the ground will give its increase, and the heavens will give their dew; and I will cause the remnant of this people to inherit all these things.
 
-13. It shall come to pass that, as you were a curse among the nations, house of Judah and house of Israel, so will I save you, and you shall be a blessing. Don`t be afraid. Let your hands be strong."
+13. It shall come to pass that, as you were a curse among the nations, house of Judah and house of Israel, so will I save you, and you shall be a blessing. Don't be afraid. Let your hands be strong."
 
-14. For thus says Yahweh of Armies: "As I thought to do evil to you, when your fathers provoked me to wrath," says Yahweh of Armies, "and I didn`t repent;
+14. For thus says Yahweh of Armies: "As I thought to do evil to you, when your fathers provoked me to wrath," says Yahweh of Armies, "and I didn't repent;
 
-15. so again have I thought in these days to do good to Jerusalem and to the house of Judah. Don`t be afraid.
+15. so again have I thought in these days to do good to Jerusalem and to the house of Judah. Don't be afraid.
 
 16. These are the things that you shall do: speak every man the truth with his neighbor. Execute the judgment of truth and peace in your gates,
 
@@ -259,11 +259,11 @@
 
 20. Thus says Yahweh of Armies: "Many peoples, and the inhabitants of many cities will yet come;
 
-21. and the inhabitants of one shall go to another, saying, `Let us go speedily to entreat the favor of Yahweh, and to seek Yahweh of Armies. I will go also.`
+21. and the inhabitants of one shall go to another, saying, 'Let us go speedily to entreat the favor of Yahweh, and to seek Yahweh of Armies. I will go also.'
 
 22. Yes, many peoples and strong nations will come to seek Yahweh of Armies in Jerusalem, and to entreat the favor of Yahweh."
 
-23. Thus says Yahweh of Armies: "In those days, ten men will take hold, out of all the languages of the nations, they will take hold of the skirt of him who is a Jew, saying, `We will go with you, for we have heard that God is with you.`"
+23. Thus says Yahweh of Armies: "In those days, ten men will take hold, out of all the languages of the nations, they will take hold of the skirt of him who is a Jew, saying, 'We will go with you, for we have heard that God is with you.'"
 
 
 ## Chapter 9
@@ -323,7 +323,7 @@
 
 9. I will sow them among the peoples;    and they will remember me in far countries;    and they will live with their children, and will return.
 
-10. I will bring them again also out of the land of Egypt,    and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon;    and there won`t be room enough for them.
+10. I will bring them again also out of the land of Egypt,    and gather them out of Assyria; and I will bring them into the land of Gilead and Lebanon;    and there won't be room enough for them.
 
 11. He will pass through the sea of affliction,    and will strike the waves in the sea,    and all the depths of the Nile will dry up;    and the pride of Assyria will be brought down,    and the scepter of Egypt will depart.
 
@@ -340,15 +340,15 @@
 
 4. Thus says Yahweh my God: "Feed the flock of slaughter.
 
-5. Their buyers slaughter them, and go unpunished. Those who sell them say, `Blessed be Yahweh, for I am rich;` and their own shepherds don`t pity them.
+5. Their buyers slaughter them, and go unpunished. Those who sell them say, 'Blessed be Yahweh, for I am rich;' and their own shepherds don't pity them.
 
-6. For I will no more pity the inhabitants of the land," says Yahweh; "but, behold, I will deliver the men everyone into his neighbor`s hand, and into the hand of his king. They will strike the land, and out of their hand I will not deliver them."
+6. For I will no more pity the inhabitants of the land," says Yahweh; "but, behold, I will deliver the men everyone into his neighbor's hand, and into the hand of his king. They will strike the land, and out of their hand I will not deliver them."
 
 7. So I fed the flock of slaughter, especially the oppressed of the flock. I took for myself two staffs. The one I called "Favor," and the other I called "Union," and I fed the flock.
 
 8. I cut off the three shepherds in one month; for my soul was weary of them, and their soul also loathed me.
 
-9. Then I said, "I will not feed you. That which dies, let it die; and that which is to be cut off, let it be cut off; and let those who are left eat each other`s flesh."
+9. Then I said, "I will not feed you. That which dies, let it die; and that which is to be cut off, let it be cut off; and let those who are left eat each other's flesh."
 
 10. I took my staff Favor, and cut it apart, that I might break my covenant that I had made with all the peoples.
 
@@ -377,7 +377,7 @@
 
 4. In that day," says Yahweh, "I will strike every horse with terror, and his rider with madness; and I will open my eyes on the house of Judah, and will strike every horse of the peoples with blindness.
 
-5. The chieftains of Judah will say in their heart, `The inhabitants of Jerusalem are my strength in Yahweh of Armies their God.`
+5. The chieftains of Judah will say in their heart, 'The inhabitants of Jerusalem are my strength in Yahweh of Armies their God.'
 
 6. In that day I will make the chieftains of Judah like a pan of fire among wood, and like a flaming torch among sheaves; and they will devour all the surrounding peoples, on the right hand and on the left; and Jerusalem will yet again dwell in their own place, even in Jerusalem.
 
@@ -404,19 +404,19 @@
 
 2. It will come to pass in that day, says Yahweh of Armies, that I will cut off the names of the idols out of the land, and they will be remembered no more. I will also cause the prophets and the spirit of impurity to pass out of the land.
 
-3. It will happen that, when anyone still prophesies, then his father and his mother who bore him will tell him, `You must die, because you speak lies in the name of Yahweh;` and his father and his mother who bore him will stab him when he prophesies.
+3. It will happen that, when anyone still prophesies, then his father and his mother who bore him will tell him, 'You must die, because you speak lies in the name of Yahweh;' and his father and his mother who bore him will stab him when he prophesies.
 
 4. It will happen in that day, that the prophets will each be ashamed of his vision, when he prophesies; neither will they wear a hairy mantle to deceive:
 
-5. but he will say, `I am no prophet, I am a tiller of the ground; for I have been made a bondservant from my youth.`
+5. but he will say, 'I am no prophet, I am a tiller of the ground; for I have been made a bondservant from my youth.'
 
-6. One will say to him, `What are these wounds between your arms?` Then he will answer, `Those with which I was wounded in the house of my friends.`
+6. One will say to him, 'What are these wounds between your arms?' Then he will answer, 'Those with which I was wounded in the house of my friends.'
 
 7. "Awake, sword, against my shepherd,    and against the man who is close to me," says Yahweh of Armies. "Strike the shepherd, and the sheep will be scattered;    and I will turn my hand against the little ones.
 
 8. It shall happen that in all the land," says Yahweh,    "two parts in it will be cut off and die;    but the third will be left in it.
 
-9. I will bring the third part into the fire,    and will refine them as silver is refined,    and will test them like gold is tested. They will call on my name, and I will hear them.    I will say, `It is my people;`    and they will say, `Yahweh is my God.`"
+9. I will bring the third part into the fire,    and will refine them as silver is refined,    and will test them like gold is tested. They will call on my name, and I will hear them.    I will say, 'It is my people;'    and they will say, 'Yahweh is my God.'"
 
 
 ## Chapter 14
@@ -439,7 +439,7 @@
 
 9. Yahweh will be King over all the earth. In that day Yahweh will be one, and his name one.
 
-10. All the land will be made like the Arabah, from Geba to Rimmon south of Jerusalem; and she will be lifted up, and will dwell in her place, from Benjamin`s gate to the place of the first gate, to the corner gate, and from the tower of Hananel to the king`s winepresses.
+10. All the land will be made like the Arabah, from Geba to Rimmon south of Jerusalem; and she will be lifted up, and will dwell in her place, from Benjamin's gate to the place of the first gate, to the corner gate, and from the tower of Hananel to the king's winepresses.
 
 11. Men will dwell therein, and there will be no more curse; but Jerusalem will dwell safely.
 
@@ -453,13 +453,13 @@
 
 16. It will happen that everyone who is left of all the nations that came against Jerusalem will go up from year to year to worship the King, Yahweh of Armies, and to keep the feast of tents.
 
-17. It will be, that whoever of all the families of the earth doesn`t go up to Jerusalem to worship the King, Yahweh of Armies, on them there will be no rain.
+17. It will be, that whoever of all the families of the earth doesn't go up to Jerusalem to worship the King, Yahweh of Armies, on them there will be no rain.
 
-18. If the family of Egypt doesn`t go up, and doesn`t come, neither will it rain on them. This will be the plague with which Yahweh will strike the nations that don`t go up to keep the feast of tents.
+18. If the family of Egypt doesn't go up, and doesn't come, neither will it rain on them. This will be the plague with which Yahweh will strike the nations that don't go up to keep the feast of tents.
 
-19. This will be the punishment of Egypt, and the punishment of all the nations that don`t go up to keep the feast of tents.
+19. This will be the punishment of Egypt, and the punishment of all the nations that don't go up to keep the feast of tents.
 
-20. In that day there will be on the bells of the horses, "HOLY TO YAHWEH;" and the pots in Yahweh`s house will be like the bowls before the altar.
+20. In that day there will be on the bells of the horses, "HOLY TO YAHWEH;" and the pots in Yahweh's house will be like the bowls before the altar.
 
 21. Yes, every pot in Jerusalem and in Judah will be holy to Yahweh of Armies; and all those who sacrifice will come and take of them, and cook in them. In that day there will no longer be a Canaanite in the house of Yahweh of Armies.
 

@@ -24,7 +24,7 @@
 
 11. Then he sweeps by like the wind, and goes on. He is indeed guilty, whose strength is his god."
 
-12. Aren`t you from everlasting, Yahweh my God, my Holy One? We will not die. Yahweh, you have appointed him for judgment. You, Rock, have established him to punish.
+12. Aren't you from everlasting, Yahweh my God, my Holy One? We will not die. Yahweh, you have appointed him for judgment. You, Rock, have established him to punish.
 
 13. You who have purer eyes than to see evil, and who cannot look on perversity, why do you tolerate those who deal treacherously, and keep silent when the wicked swallows up the man who is more righteous than he,
 
@@ -43,17 +43,17 @@
 
 2. Yahweh answered me, "Write the vision, and make it plain on tablets, that he who runs may read it.
 
-3. For the vision is yet for the appointed time, and it hurries toward the end, and won`t prove false. Though it takes time, wait for it; because it will surely come. It won`t delay.
+3. For the vision is yet for the appointed time, and it hurries toward the end, and won't prove false. Though it takes time, wait for it; because it will surely come. It won't delay.
 
 4. Behold, his soul is puffed up. It is not upright in him, but the righteous will live by his faith.
 
-5. Yes, moreover, wine is treacherous. A haughty man who doesn`t stay at home, who enlarges his desire as Sheol, and he is like death, and can`t be satisfied, but gathers to himself all nations, and heaps to himself all peoples.
+5. Yes, moreover, wine is treacherous. A haughty man who doesn't stay at home, who enlarges his desire as Sheol, and he is like death, and can't be satisfied, but gathers to himself all nations, and heaps to himself all peoples.
 
-6. Won`t all these take up a parable against him, and a taunting proverb against him, and say, `Woe to him who increases that which is not his, and who enriches himself by extortion! How long?`
+6. Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which is not his, and who enriches himself by extortion! How long?'
 
-7. Won`t your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim?
+7. Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim?
 
-8. Because you have plundered many nations, all the remnant of the peoples will plunder you, because of men`s blood, and for the violence done to the land, to the city and to all who dwell in it.
+8. Because you have plundered many nations, all the remnant of the peoples will plunder you, because of men's blood, and for the violence done to the land, to the city and to all who dwell in it.
 
 9. Woe to him who gets an evil gain for his house, that he may set his nest on high, that he may be delivered from the hand of evil!
 
@@ -63,19 +63,19 @@
 
 12. Woe to him who builds a town with blood, and establishes a city by iniquity!
 
-13. Behold, isn`t it of Yahweh of Armies that the peoples labor for the fire, and the nations weary themselves for vanity?
+13. Behold, isn't it of Yahweh of Armies that the peoples labor for the fire, and the nations weary themselves for vanity?
 
 14. For the earth will be filled with the knowledge of the glory of Yahweh, as the waters cover the sea.
 
 15. "Woe to him who gives his neighbor drink, pouring your inflaming wine until they are drunk, so that you may gaze at their naked bodies!
 
-16. You are filled with shame, and not glory. You will also drink, and be exposed! The cup of Yahweh`s right hand will come around to you, and disgrace will cover your glory.
+16. You are filled with shame, and not glory. You will also drink, and be exposed! The cup of Yahweh's right hand will come around to you, and disgrace will cover your glory.
 
-17. For the violence done to Lebanon will overwhelm you, and the destruction of the animals, which made them afraid; because of men`s blood, and for the violence done to the land, to every city and to those who dwell in them.
+17. For the violence done to Lebanon will overwhelm you, and the destruction of the animals, which made them afraid; because of men's blood, and for the violence done to the land, to every city and to those who dwell in them.
 
 18. "What value does the engraved image have, that its maker has engraved it; the molten image, even the teacher of lies, that he who fashions its form trusts in it, to make mute idols?
 
-19. Woe to him who says to the wood, `Awake!` or to the mute stone, `Arise!` Shall this teach? Behold, it is overlaid with gold and silver, and there is no breath at all in its midst.
+19. Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Behold, it is overlaid with gold and silver, and there is no breath at all in its midst.
 
 20. But Yahweh is in his holy temple. Let all the earth be silent before him!"
 
@@ -114,9 +114,9 @@
 
 16. I heard, and my body trembled.    My lips quivered at the voice. Rottenness enters into my bones, and I tremble in my place,    because I must wait quietly for the day of trouble,    for the coming up of the people who invade us.
 
-17. For though the fig tree doesn`t flourish,    nor fruit be in the vines;    the labor of the olive fails,    the fields yield no food;    the flocks are cut off from the fold,    and there is no herd in the stalls:
+17. For though the fig tree doesn't flourish,    nor fruit be in the vines;    the labor of the olive fails,    the fields yield no food;    the flocks are cut off from the fold,    and there is no herd in the stalls:
 
 18. yet I will rejoice in Yahweh.    I will be joyful in the God of my salvation!
 
-19. Yahweh, the Lord, is my strength.    He makes my feet like deer`s feet,    and enables me to go in high places.     For the music director, on my stringed instruments.
+19. Yahweh, the Lord, is my strength.    He makes my feet like deer's feet,    and enables me to go in high places.     For the music director, on my stringed instruments.
 

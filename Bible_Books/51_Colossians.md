@@ -18,7 +18,7 @@
 
 8. who also declared to us your love in the Spirit.
 
-9. For this cause, we also, since the day we heard this, don`t cease praying and making requests for you, that you may be filled with the knowledge of his will in all spiritual wisdom and understanding,
+9. For this cause, we also, since the day we heard this, don't cease praying and making requests for you, that you may be filled with the knowledge of his will in all spiritual wisdom and understanding,
 
 10. that you may walk worthily of the Lord, to please him in all respects, bearing fruit in every good work, and increasing in the knowledge of God;
 
@@ -48,7 +48,7 @@
 
 23. if it is so that you continue in the faith, grounded and steadfast, and not moved away from the hope of the Good News which you heard, which is being proclaimed in all creation under heaven; of which I, Paul, was made a servant.
 
-24. Now I rejoice in my sufferings for your sake, and fill up on my part that which is lacking of the afflictions of Christ in my flesh for his body`s sake, which is the assembly;
+24. Now I rejoice in my sufferings for your sake, and fill up on my part that which is lacking of the afflictions of Christ in my flesh for his body's sake, which is the assembly;
 
 25. of which I was made a servant, according to the stewardship of God which was given me toward you, to fulfill the word of God,
 
@@ -77,7 +77,7 @@
 
 7. rooted and built up in him, and established in the faith, even as you were taught, abounding in it in thanksgiving.
 
-8. Be careful that you don`t let anyone rob you through his philosophy and vain deceit, after the tradition of men, after the elements of the world, and not after Christ.
+8. Be careful that you don't let anyone rob you through his philosophy and vain deceit, after the tradition of men, after the elements of the world, and not after Christ.
 
 9. For in him all the fullness of the Godhead dwells bodily,
 
@@ -95,19 +95,19 @@
 
 16. Let no one therefore judge you in eating, or in drinking, or with respect to a feast day or a new moon or a Sabbath day,
 
-17. which are a shadow of the things to come; but the body is Christ`s.
+17. which are a shadow of the things to come; but the body is Christ's.
 
 18. Let no one rob you of your prize by a voluntary humility and worshipping of the angels, dwelling in the things which he has not seen, vainly puffed up by his fleshly mind,
 
-19. and not holding firmly to the Head, from whom all the body, being supplied and knit together through the joints and ligaments, grows with God`s growth.
+19. and not holding firmly to the Head, from whom all the body, being supplied and knit together through the joints and ligaments, grows with God's growth.
 
 20. If you died with Christ from the elements of the world, why, as though living in the world, do you subject yourselves to ordinances,
 
-21. "Don`t handle, nor taste, nor touch"
+21. "Don't handle, nor taste, nor touch"
 
 22. (all of which perish with use), according to the precepts and doctrines of men?
 
-23. Which things indeed appear like wisdom in self-imposed worship, and humility, and severity to the body; but aren`t of any value against the indulgence of the flesh.
+23. Which things indeed appear like wisdom in self-imposed worship, and humility, and severity to the body; but aren't of any value against the indulgence of the flesh.
 
 
 ## Chapter 3
@@ -122,19 +122,19 @@
 
 5. Put to death therefore your members which are on the earth: sexual immorality, uncleanness, depraved passion, evil desire, and covetousness, which is idolatry;
 
-6. for which things` sake the wrath of God comes on the children of disobedience.
+6. for which things' sake the wrath of God comes on the children of disobedience.
 
 7. You also once walked in those, when you lived in them;
 
 8. but now you also put them all away: anger, wrath, malice, slander, and shameful speaking out of your mouth.
 
-9. Don`t lie to one another, seeing that you have put off the old man with his doings,
+9. Don't lie to one another, seeing that you have put off the old man with his doings,
 
 10. and have put on the new man, who is being renewed in knowledge after the image of his Creator,
 
-11. where there can`t be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, bondservant, freeman; but Christ is all, and in all.
+11. where there can't be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, bondservant, freeman; but Christ is all, and in all.
 
-12. Put on therefore, as God`s chosen ones, holy and beloved, a heart of compassion, kindness, lowliness, humility, and perseverance;
+12. Put on therefore, as God's chosen ones, holy and beloved, a heart of compassion, kindness, lowliness, humility, and perseverance;
 
 13. bearing with one another, and forgiving each other, if any man has a complaint against any; even as Christ forgave you, so you also do.
 
@@ -148,11 +148,11 @@
 
 18. Wives, be in subjection to your husbands, as is fitting in the Lord.
 
-19. Husbands, love your wives, and don`t be bitter against them.
+19. Husbands, love your wives, and don't be bitter against them.
 
 20. Children, obey your parents in all things, for this pleases the Lord.
 
-21. Fathers, don`t provoke your children, so that they won`t be discouraged.
+21. Fathers, don't provoke your children, so that they won't be discouraged.
 
 22. Servants, obey in all things those who are your masters according to the flesh, not just when they are looking, as men pleasers, but in singleness of heart, fearing God.
 

@@ -2,7 +2,7 @@
 
 ## Zaanaim
 
-wanderings; the unloading of tents, so called probably from the fact of nomads in tents encamping amid the cities and villages of that region, a place in the north-west of Lake Merom, near Kedesh, in Naphtali. Here Sisera was slain by Jael, "the wife of Heber the Kenite," who had pitched his tent in the "plain [R.V., `as far as the oak`] of Zaanaim" (Judg. 4:11).    It has been, however, suggested by some that, following the LXX. and the Talmud, the letter b, which in Hebrew means "in," should be taken as a part of the word following, and the phrase would then be "unto the oak of Bitzanaim," a place which has been identified with the ruins of Bessum, about half-way between Tiberias and Mount Tabor.
+wanderings; the unloading of tents, so called probably from the fact of nomads in tents encamping amid the cities and villages of that region, a place in the north-west of Lake Merom, near Kedesh, in Naphtali. Here Sisera was slain by Jael, "the wife of Heber the Kenite," who had pitched his tent in the "plain [R.V., 'as far as the oak'] of Zaanaim" (Judg. 4:11).    It has been, however, suggested by some that, following the LXX. and the Talmud, the letter b, which in Hebrew means "in," should be taken as a part of the word following, and the phrase would then be "unto the oak of Bitzanaim," a place which has been identified with the ruins of Bessum, about half-way between Tiberias and Mount Tabor.
 
 ## Zaanan
 
@@ -18,7 +18,7 @@ terror, one of the "dukes of Edom" (Gen. 36:27); called also Zavan (1 Chr. 1:42)
 
 ## Zabad
 
-gift. (1.) One of David`s valiant men (1 Chr. 11:41), the descendant of Ahlai, of the "children of Sheshan" (2:31).    (2.) A descendant of Tahath (7:21).    (3.) The son of Shemath. He conspired against Joash, king of Judah, and slew him (2 Chr. 24:25, 26). He is called also Jozachar (2 Kings 12:21).    (4.) Ezra 10:27.    (5.) Ezra 10:33.    (6.) Ezra 10:43.
+gift. (1.) One of David's valiant men (1 Chr. 11:41), the descendant of Ahlai, of the "children of Sheshan" (2:31).    (2.) A descendant of Tahath (7:21).    (3.) The son of Shemath. He conspired against Joash, king of Judah, and slew him (2 Chr. 24:25, 26). He is called also Jozachar (2 Kings 12:21).    (4.) Ezra 10:27.    (5.) Ezra 10:33.    (6.) Ezra 10:43.
 
 ## Zabbai
 
@@ -30,15 +30,15 @@ gift, Ezra 8:14.
 
 ## Zabdi
 
-gift of Jehovah. (1.) An ancestor of Achan (Josh. 7:1, 17, 18). He is probably the "Zimri" of 1 Chr. 2:6.    (2.) A Benjamite (1 Chr. 8:19).    (3.) Called "the Shiphmite," one of David`s officers, who had charge of his vineyards (1 Chr. 27:27).    (4.) A Levite, one of the sons of Asaph (Neh. 11:17); probably the same as Zichri (1 Chr. 9:15), and Zaccur (Neh. 12:35).
+gift of Jehovah. (1.) An ancestor of Achan (Josh. 7:1, 17, 18). He is probably the "Zimri" of 1 Chr. 2:6.    (2.) A Benjamite (1 Chr. 8:19).    (3.) Called "the Shiphmite," one of David's officers, who had charge of his vineyards (1 Chr. 27:27).    (4.) A Levite, one of the sons of Asaph (Neh. 11:17); probably the same as Zichri (1 Chr. 9:15), and Zaccur (Neh. 12:35).
 
 ## Zabdiel
 
-gift of God. (1.) The father of Jashobeam, who was one of David`s officers (1 Chr. 27:2).    (2.) An overseer of the priests after the Captivity (Neh. 11:14).
+gift of God. (1.) The father of Jashobeam, who was one of David's officers (1 Chr. 27:2).    (2.) An overseer of the priests after the Captivity (Neh. 11:14).
 
 ## Zabud
 
-gift, the son of Nathan, who was "king`s friend" in the court of Solomon (1 Kings 4:5).
+gift, the son of Nathan, who was "king's friend" in the court of Solomon (1 Kings 4:5).
 
 ## Zabulon
 
@@ -62,7 +62,7 @@ remembered by the Lord. (1.) Son of Jeroboam II., king of Israel. On the death o
 
 ## Zacharias
 
-(1.) A priest of the course of Abia, the eighth of the twenty-four courses into which the priests had been originally divided by David (1 Chr. 23:1-19). Only four of these courses or "families" of the priests returned from the Exile (Ezra 2:36-39); but they were then re-distributed under the old designations. The priests served at the temple twice each year, and only for a week each time. Zacharias`s time had come for this service. During this period his home would be one of the chambers set apart for the priests on the sides of the temple ground. The offering of incense was one of the most solemn parts of the daily worship of the temple, and lots were drawn each day to determine who should have this great honour, an honour which no priest could enjoy more than once during his lifetime.    While Zacharias ministered at the golden altar of incense in the holy place, it was announced to him by the angel Gabriel that his wife Elisabeth, who was also of a priestly family, now stricken in years, would give birth to a son who was to be called John, and that he would be the forerunner of the long-expected Messiah (Luke 1:12-17). As a punishment for his refusing to believe this message, he was struck dumb and "not able to speak until the day that these things should be performed" (20). Nine months passed away, and Elisabeth`s child was born, and when in answer to their inquiry Zacharias wrote on a "writing tablet," "His name is John," his mouth was opened, and he praised God (60-79). The child (John the Baptist), thus "born out of due time," "waxed strong in spirit" (1:80).    (2.) The "son of Barachias," mentioned as having been slain between the temple and the altar (Matt. 23:35; Luke 11:51). "Barachias" here may be another name for Jehoiada, as some think. (See ZECHARIAH .)
+(1.) A priest of the course of Abia, the eighth of the twenty-four courses into which the priests had been originally divided by David (1 Chr. 23:1-19). Only four of these courses or "families" of the priests returned from the Exile (Ezra 2:36-39); but they were then re-distributed under the old designations. The priests served at the temple twice each year, and only for a week each time. Zacharias's time had come for this service. During this period his home would be one of the chambers set apart for the priests on the sides of the temple ground. The offering of incense was one of the most solemn parts of the daily worship of the temple, and lots were drawn each day to determine who should have this great honour, an honour which no priest could enjoy more than once during his lifetime.    While Zacharias ministered at the golden altar of incense in the holy place, it was announced to him by the angel Gabriel that his wife Elisabeth, who was also of a priestly family, now stricken in years, would give birth to a son who was to be called John, and that he would be the forerunner of the long-expected Messiah (Luke 1:12-17). As a punishment for his refusing to believe this message, he was struck dumb and "not able to speak until the day that these things should be performed" (20). Nine months passed away, and Elisabeth's child was born, and when in answer to their inquiry Zacharias wrote on a "writing tablet," "His name is John," his mouth was opened, and he praised God (60-79). The child (John the Baptist), thus "born out of due time," "waxed strong in spirit" (1:80).    (2.) The "son of Barachias," mentioned as having been slain between the temple and the altar (Matt. 23:35; Luke 11:51). "Barachias" here may be another name for Jehoiada, as some think. (See ZECHARIAH .)
 
 ## Zacher
 
@@ -78,7 +78,7 @@ little, a place probably east of the Dead Sea, where Joram discomfited the host 
 
 ## Zalmon
 
-shady. (1.) One of David`s warriors, called the Ahohite (2 Sam. 23:28); called also Ilai (1 Chr. 11:29).    (2.) A wood near Shechem, from which Abimelech and his party brought boughs and "put them to the hold" of Shechem, "and set the hold on fire" (Judg. 9:48). Probably the southern peak of Gerizim, now called Jebel Sulman. (See SALMON .)
+shady. (1.) One of David's warriors, called the Ahohite (2 Sam. 23:28); called also Ilai (1 Chr. 11:29).    (2.) A wood near Shechem, from which Abimelech and his party brought boughs and "put them to the hold" of Shechem, "and set the hold on fire" (Judg. 9:48). Probably the southern peak of Gerizim, now called Jebel Sulman. (See SALMON .)
 
 ## Zalmonah
 
@@ -94,7 +94,7 @@ a race of giants; "a people great, and many, and tall, as the Anakims" (Deut. 2:
 
 ## Zanoah
 
-marsh. (1.) A town in the low country or shephelah of Judah, near Zorah (Josh. 15:34). It was re-occupied after the return from the Captivity (Neh. 11:30). Zanu`ah in Wady Ismail, 10 miles west of Jerusalem, occupies probably the same site.    (2.) A town in the hill country of Judah, some 10 miles to the south-west of Hebron (Josh. 15:56).
+marsh. (1.) A town in the low country or shephelah of Judah, near Zorah (Josh. 15:34). It was re-occupied after the return from the Captivity (Neh. 11:30). Zanu'ah in Wady Ismail, 10 miles west of Jerusalem, occupies probably the same site.    (2.) A town in the hill country of Judah, some 10 miles to the south-west of Hebron (Josh. 15:56).
 
 ## Zaphnath-paaneah
 
@@ -110,7 +110,7 @@ When the Hebrews crossed the Jordan, as soon as the feet of the priests were dip
 
 ## Zareth-shahar
 
-the splendour of the dawn, a city "in the mount of the valley" (Josh. 13:19). It is identified with the ruins of Zara, near the mouth of the Wady Zerka Main, on the eastern shore of the Dead Sea, some 3 miles south of the Callirrhoe. Of this town but little remains. "A few broken basaltic columns and pieces of wall about 200 yards back from the shore, and a ruined fort rather nearer the sea, about the middle of the coast line of the plain, are all that are left" (Tristram`s Land of Moab).
+the splendour of the dawn, a city "in the mount of the valley" (Josh. 13:19). It is identified with the ruins of Zara, near the mouth of the Wady Zerka Main, on the eastern shore of the Dead Sea, some 3 miles south of the Callirrhoe. Of this town but little remains. "A few broken basaltic columns and pieces of wall about 200 yards back from the shore, and a ruined fort rather nearer the sea, about the middle of the coast line of the plain, are all that are left" (Tristram's Land of Moab).
 
 ## Zarthan
 
@@ -138,11 +138,11 @@ a sect of Jews which originated with Judas the Gaulonite (Acts 5:37). They refus
 
 ## Zebadiah
 
-gift of Jehovah. (1.) A son of Asahel, Joab`s brother (1 Chr. 27:7).    (2.) A Levite who took part as one of the teachers in the system of national education instituted by Jehoshaphat (2 Chr. 17:7, 8).    (3.) The son of Ishmael, "the ruler of the house of Judah in all the king`s matters" (2 Chr. 19:8-11).    (4.) A son of Beriah (1 Chr. 8:15).    (5.) A Korhite porter of the Lord`s house (1 Chr. 26:2). Three or four others of this name are also mentioned.
+gift of Jehovah. (1.) A son of Asahel, Joab's brother (1 Chr. 27:7).    (2.) A Levite who took part as one of the teachers in the system of national education instituted by Jehoshaphat (2 Chr. 17:7, 8).    (3.) The son of Ishmael, "the ruler of the house of Judah in all the king's matters" (2 Chr. 19:8-11).    (4.) A son of Beriah (1 Chr. 8:15).    (5.) A Korhite porter of the Lord's house (1 Chr. 26:2). Three or four others of this name are also mentioned.
 
 ## Zebah
 
-man-killer, or sacrifice, one of the two kings who led the vast host of the Midianites who invaded the land of Israel, and over whom Gideon gained a great and decisive victory (Judg. 8). Zebah and Zalmunna had succeeded in escaping across the Jordan with a remnant of the Midianite host, but were overtaken at Karkor, probably in the Hauran, and routed by Gideon. The kings were taken alive and brought back across the Jordan; and confessing that they had personally taken part in the slaughter of Gideon`s brothers, they were put to death (comp. 1 Sam. 12:11; Isa. 10:26; Ps. 83:11).
+man-killer, or sacrifice, one of the two kings who led the vast host of the Midianites who invaded the land of Israel, and over whom Gideon gained a great and decisive victory (Judg. 8). Zebah and Zalmunna had succeeded in escaping across the Jordan with a remnant of the Midianite host, but were overtaken at Karkor, probably in the Hauran, and routed by Gideon. The kings were taken alive and brought back across the Jordan; and confessing that they had personally taken part in the slaughter of Gideon's brothers, they were put to death (comp. 1 Sam. 12:11; Isa. 10:26; Ps. 83:11).
 
 ## Zebaim
 
@@ -150,11 +150,11 @@ man-killer, or sacrifice, one of the two kings who led the vast host of the Midi
 
 ## Zebedee
 
-a Galilean fisherman, the husband of Salome (q.v.), and the father of James and John, two of our Lord`s disciples (Matt. 4:21; 27:56; Mark 15:40). He seems to have been a man of some position in Capernaum, for he had two boats (Luke 5:4) and "hired servants" (Mark 1:20) of his own. No mention is made of him after the call of his two sons by Jesus.
+a Galilean fisherman, the husband of Salome (q.v.), and the father of James and John, two of our Lord's disciples (Matt. 4:21; 27:56; Mark 15:40). He seems to have been a man of some position in Capernaum, for he had two boats (Luke 5:4) and "hired servants" (Mark 1:20) of his own. No mention is made of him after the call of his two sons by Jesus.
 
 ## Zeboim
 
-gazelles or roes. (1.) One of the "five cities of the plain" of Sodom, generally coupled with Admah (Gen. 10:19; 14:2; Deut. 29:23; Hos. 11:8). It had a king of its own (Shemeber), and was therefore a place of some importance. It was destroyed along with the other cities of the plain.    (2.) A valley or rugged glen somewhere near Gibeah in Benjamin (1 Sam. 13:18). It was probably the ravine now bearing the name Wady Shakh-ed-Dub`a, or "ravine of the hyena," north of Jericho.    (3.) A place mentioned only in Neh. 11:34, inhabited by the Benjamites after the Captivity.
+gazelles or roes. (1.) One of the "five cities of the plain" of Sodom, generally coupled with Admah (Gen. 10:19; 14:2; Deut. 29:23; Hos. 11:8). It had a king of its own (Shemeber), and was therefore a place of some importance. It was destroyed along with the other cities of the plain.    (2.) A valley or rugged glen somewhere near Gibeah in Benjamin (1 Sam. 13:18). It was probably the ravine now bearing the name Wady Shakh-ed-Dub'a, or "ravine of the hyena," north of Jericho.    (3.) A place mentioned only in Neh. 11:34, inhabited by the Benjamites after the Captivity.
 
 ## Zebudah
 
@@ -162,7 +162,7 @@ given, the wife of Josiah and mother of Jehoiakim (2 Kings 23:36).
 
 ## Zebul
 
-habitation, the governor of Shechem under Abimelech (Judg. 9:28, 30, 36). He informed his master of the intention of the people of Shechem to transfer their allegiance to the Hivite tribe of Hamor. This led to Abimelech`s destroying the city, when he put its entire population to the sword, and sowed the ruins with salt (Judg. 9:28-45).
+habitation, the governor of Shechem under Abimelech (Judg. 9:28, 30, 36). He informed his master of the intention of the people of Shechem to transfer their allegiance to the Hivite tribe of Hamor. This led to Abimelech's destroying the city, when he put its entire population to the sword, and sowed the ruins with salt (Judg. 9:28-45).
 
 ## Zebulonite
 
@@ -174,15 +174,15 @@ dwelling, the sixth and youngest son of Jacob and Leah (Gen. 30:20). Little is k
 
 ## Zebulun, Lot of
 
-in Galilee, to the north of Issachar and south of Asher and Naphtali (Josh. 19:10-16), and between the Sea of Galilee and the Mediterranean. According to ancient prophecy this part of Galilee enjoyed a large share of our Lord`s public ministry (Isa. 9:1, 2; Matt. 4:12-16).
+in Galilee, to the north of Issachar and south of Asher and Naphtali (Josh. 19:10-16), and between the Sea of Galilee and the Mediterranean. According to ancient prophecy this part of Galilee enjoyed a large share of our Lord's public ministry (Isa. 9:1, 2; Matt. 4:12-16).
 
 ## Zebulun, Tribe of
 
-numbered at Sinai (Num. 1:31) and before entering Canaan (26:27). It was one of the tribes which did not drive out the Canaanites, but only made them tributary (Judg. 1:30). It took little interest in public affairs. It responded, however, readily to the summons of Gideon (6:35), and afterwards assisted in enthroning David at Hebron (1 Chr. 12:33, 40). Along with the other northern tribes, Zebulun was carried away into the land of Assyria by Tiglath-pileser (2 Kings 15:29).    In Deborah`s song the words, "Out of Zebulun they that handle the pen of the writer" (Judg. 5:14) has been rendered in the R.V., "They that handle the marshal`s staff." This is a questionable rendering. "The word _sopher_ (`scribe` or `writer`) defines the word _shebhet_ (`rod` or `pen`) with which it is conjoined. The `rod of the scribe` on the Assyrian monuments was the stylus of wood or metal, with the help of which the clay tablet was engraved, or the papyrus inscribed with characters. The scribe who wielded it was the associate and assistant of the `lawgivers.`" (Sayce).
+numbered at Sinai (Num. 1:31) and before entering Canaan (26:27). It was one of the tribes which did not drive out the Canaanites, but only made them tributary (Judg. 1:30). It took little interest in public affairs. It responded, however, readily to the summons of Gideon (6:35), and afterwards assisted in enthroning David at Hebron (1 Chr. 12:33, 40). Along with the other northern tribes, Zebulun was carried away into the land of Assyria by Tiglath-pileser (2 Kings 15:29).    In Deborah's song the words, "Out of Zebulun they that handle the pen of the writer" (Judg. 5:14) has been rendered in the R.V., "They that handle the marshal's staff." This is a questionable rendering. "The word _sopher_ ('scribe' or 'writer') defines the word _shebhet_ ('rod' or 'pen') with which it is conjoined. The 'rod of the scribe' on the Assyrian monuments was the stylus of wood or metal, with the help of which the clay tablet was engraved, or the papyrus inscribed with characters. The scribe who wielded it was the associate and assistant of the 'lawgivers.'" (Sayce).
 
 ## Zechariah
 
-Jehovah is renowned or remembered. (1.) A prophet of Judah, the eleventh of the twelve minor prophets. Like Ezekiel, he was of priestly extraction. He describes himself (1:1) as "the son of Berechiah." In Ezra 5:1 and 6:14 he is called "the son of Iddo," who was properly his grandfather. His prophetical career began in the second year of Darius (B.C. 520), about sixteen years after the return of the first company from exile. He was contemporary with Haggai (Ezra 5:1).    His book consists of two distinct parts, (1) chapters 1 to 8, inclusive, and (2) 9 to the end. It begins with a preface (1:1-6), which recalls the nation`s past history, for the purpose of presenting a solemn warning to the present generation. Then follows a series of eight visions (1:7-6:8), succeeding one another in one night, which may be regarded as a symbolical history of Israel, intended to furnish consolation to the returned exiles and stir up hope in their minds. The symbolical action, the crowning of Joshua (6:9-15), describes how the kingdoms of the world become the kingdom of God`s Christ.    Chapters 7 and 8, delivered two years later, are an answer to the question whether the days of mourning for the destruction of the city should be any longer kept, and an encouraging address to the people, assuring them of God`s presence and blessing.    The second part of the book (ch. 9-14) bears no date. It is probable that a considerable interval separates it from the first part. It consists of two burdens.    The first burden (ch. 9-11) gives an outline of the course of God`s providential dealings with his people down to the time of the Advent.    The second burden (ch. 12-14) points out the glories that await Israel in "the latter day", the final conflict and triumph of God`s kingdom.    (2.) The son or grandson of Jehoiada, the high priest in the times of Ahaziah and Joash. After the death of Jehoiada he boldly condemned both the king and the people for their rebellion against God (2 Chr. 24:20), which so stirred up their resentment against him that at the king`s commandment they stoned him with stones, and he died "in the court of the house of the Lord" (24:21). Christ alludes to this deed of murder in Matt. 23:35, Luke 11:51. (See ZACHARIAS  [2].)    (3.) A prophet, who had "understanding in the seeing of God," in the time of Uzziah, who was much indebted to him for his wise counsel (2 Chr. 26:5).    Besides these, there is a large number of persons mentioned in Scripture bearing this name of whom nothing is known.    (4.) One of the chiefs of the tribe of Reuben (1 Chr. 5:7).    (5.) One of the porters of the tabernacle (1 Chr. 9:21).    (6.) 1 Chr. 9:37.    (7.) A Levite who assisted at the bringing up of the ark from the house of Obededom (1 Chr. 15:20-24).    (8.) A Kohathite Levite (1 Chr. 24:25).    (9.) A Merarite Levite (1 Chr. 27:21).    (10.) The father of Iddo (1 Chr. 27:21).    (11.) One who assisted in teaching the law to the people in the time of Jehoshaphat (2 Chr. 17:7).    (12.) A Levite of the sons of Asaph (2 Chr. 20:14).    (13.) One of Jehoshaphat`s sons (2 Chr. 21:2).    (14.) The father of Abijah, who was the mother of Hezekiah (2 Chr. 29:1).    (15.) One of the sons of Asaph (2 Chr. 29:13).    (16.) One of the "rulers of the house of God" (2 Chr. 35:8).    (17.) A chief of the people in the time of Ezra, who consulted him about the return from captivity (Ezra 8:16); probably the same as mentioned in Neh. 8:4,    (18.) Neh. 11:12.    (19.) Neh. 12:16.    (20.) Neh. 12:35,41.    (21.) Isa. 8:2.
+Jehovah is renowned or remembered. (1.) A prophet of Judah, the eleventh of the twelve minor prophets. Like Ezekiel, he was of priestly extraction. He describes himself (1:1) as "the son of Berechiah." In Ezra 5:1 and 6:14 he is called "the son of Iddo," who was properly his grandfather. His prophetical career began in the second year of Darius (B.C. 520), about sixteen years after the return of the first company from exile. He was contemporary with Haggai (Ezra 5:1).    His book consists of two distinct parts, (1) chapters 1 to 8, inclusive, and (2) 9 to the end. It begins with a preface (1:1-6), which recalls the nation's past history, for the purpose of presenting a solemn warning to the present generation. Then follows a series of eight visions (1:7-6:8), succeeding one another in one night, which may be regarded as a symbolical history of Israel, intended to furnish consolation to the returned exiles and stir up hope in their minds. The symbolical action, the crowning of Joshua (6:9-15), describes how the kingdoms of the world become the kingdom of God's Christ.    Chapters 7 and 8, delivered two years later, are an answer to the question whether the days of mourning for the destruction of the city should be any longer kept, and an encouraging address to the people, assuring them of God's presence and blessing.    The second part of the book (ch. 9-14) bears no date. It is probable that a considerable interval separates it from the first part. It consists of two burdens.    The first burden (ch. 9-11) gives an outline of the course of God's providential dealings with his people down to the time of the Advent.    The second burden (ch. 12-14) points out the glories that await Israel in "the latter day", the final conflict and triumph of God's kingdom.    (2.) The son or grandson of Jehoiada, the high priest in the times of Ahaziah and Joash. After the death of Jehoiada he boldly condemned both the king and the people for their rebellion against God (2 Chr. 24:20), which so stirred up their resentment against him that at the king's commandment they stoned him with stones, and he died "in the court of the house of the Lord" (24:21). Christ alludes to this deed of murder in Matt. 23:35, Luke 11:51. (See ZACHARIAS  [2].)    (3.) A prophet, who had "understanding in the seeing of God," in the time of Uzziah, who was much indebted to him for his wise counsel (2 Chr. 26:5).    Besides these, there is a large number of persons mentioned in Scripture bearing this name of whom nothing is known.    (4.) One of the chiefs of the tribe of Reuben (1 Chr. 5:7).    (5.) One of the porters of the tabernacle (1 Chr. 9:21).    (6.) 1 Chr. 9:37.    (7.) A Levite who assisted at the bringing up of the ark from the house of Obededom (1 Chr. 15:20-24).    (8.) A Kohathite Levite (1 Chr. 24:25).    (9.) A Merarite Levite (1 Chr. 27:21).    (10.) The father of Iddo (1 Chr. 27:21).    (11.) One who assisted in teaching the law to the people in the time of Jehoshaphat (2 Chr. 17:7).    (12.) A Levite of the sons of Asaph (2 Chr. 20:14).    (13.) One of Jehoshaphat's sons (2 Chr. 21:2).    (14.) The father of Abijah, who was the mother of Hezekiah (2 Chr. 29:1).    (15.) One of the sons of Asaph (2 Chr. 29:13).    (16.) One of the "rulers of the house of God" (2 Chr. 35:8).    (17.) A chief of the people in the time of Ezra, who consulted him about the return from captivity (Ezra 8:16); probably the same as mentioned in Neh. 8:4,    (18.) Neh. 11:12.    (19.) Neh. 12:16.    (20.) Neh. 12:35,41.    (21.) Isa. 8:2.
 
 ## Zedad
 
@@ -190,7 +190,7 @@ side; sloping place, a town in the north of Palestine, near Hamath (Num. 34:8; E
 
 ## Zedekiah
 
-righteousness of Jehovah. (1.) The last king of Judah. He was the third son of Josiah, and his mother`s name was Hamutal, the daughter of Jeremiah of Libnah, and hence he was the brother of Jehoahaz (2 Kings 23:31; 24:17, 18). His original name was Mattaniah; but when Nebuchadnezzar placed him on the throne as the successor to Jehoiachin he changed his name to Zedekiah. The prophet Jeremiah was his counsellor, yet "he did evil in the sight of the Lord" (2 Kings 24:19, 20; Jer. 52:2, 3). He ascended the throne at the age of twenty-one years. The kingdom was at that time tributary to Nebuchadnezzar; but, despite the strong remonstrances of Jeremiah and others, as well as the example of Jehoiachin, he threw off the yoke of Babylon, and entered into an alliance with Hophra, king of Egypt. This brought up Nebuchadnezzar, "with all his host" (2 King 25:1), against Jerusalem. During this siege, which lasted about eighteen months, "every worst woe befell the devoted city, which drank the cup of God`s fury to the dregs" (2 Kings 25:3; Lam. 4:4, 5, 10). The city was plundered and laid in ruins. Zedekiah and his followers, attempting to escape, were made captive and taken to Riblah. There, after seeing his own children put to death, his own eyes were put out, and, being loaded with chains, he was carried captive (B.C. 588) to Babylon (2 Kings 25:1-7; 2 Chr. 36:12; Jer. 32:4,5; 34:2, 3; 39:1-7; 52:4-11; Ezek. 12:12), where he remained a prisoner, how long is unknown, to the day of his death.    After the fall of Jerusalem, Nebuzaraddan was sent to carry out its complete destruction. The city was razed to the ground. Only a small number of vinedressers and husbandmen were permitted to remain in the land (Jer. 52:16). Gedaliah, with a Chaldean guard stationed at Mizpah, ruled over Judah (2 Kings 25:22, 24; jer. 40:1, 2, 5, 6).    (2.) The son of Chenaanah, a false prophet in the days of Ahab (1 Kings 22:11, 24; 2 Chr. 18:10, 23).    (3.) The son of Hananiah, a prince of Judah in the days of Jehoiakim (Jer. 36:12).
+righteousness of Jehovah. (1.) The last king of Judah. He was the third son of Josiah, and his mother's name was Hamutal, the daughter of Jeremiah of Libnah, and hence he was the brother of Jehoahaz (2 Kings 23:31; 24:17, 18). His original name was Mattaniah; but when Nebuchadnezzar placed him on the throne as the successor to Jehoiachin he changed his name to Zedekiah. The prophet Jeremiah was his counsellor, yet "he did evil in the sight of the Lord" (2 Kings 24:19, 20; Jer. 52:2, 3). He ascended the throne at the age of twenty-one years. The kingdom was at that time tributary to Nebuchadnezzar; but, despite the strong remonstrances of Jeremiah and others, as well as the example of Jehoiachin, he threw off the yoke of Babylon, and entered into an alliance with Hophra, king of Egypt. This brought up Nebuchadnezzar, "with all his host" (2 King 25:1), against Jerusalem. During this siege, which lasted about eighteen months, "every worst woe befell the devoted city, which drank the cup of God's fury to the dregs" (2 Kings 25:3; Lam. 4:4, 5, 10). The city was plundered and laid in ruins. Zedekiah and his followers, attempting to escape, were made captive and taken to Riblah. There, after seeing his own children put to death, his own eyes were put out, and, being loaded with chains, he was carried captive (B.C. 588) to Babylon (2 Kings 25:1-7; 2 Chr. 36:12; Jer. 32:4,5; 34:2, 3; 39:1-7; 52:4-11; Ezek. 12:12), where he remained a prisoner, how long is unknown, to the day of his death.    After the fall of Jerusalem, Nebuzaraddan was sent to carry out its complete destruction. The city was razed to the ground. Only a small number of vinedressers and husbandmen were permitted to remain in the land (Jer. 52:16). Gedaliah, with a Chaldean guard stationed at Mizpah, ruled over Judah (2 Kings 25:22, 24; jer. 40:1, 2, 5, 6).    (2.) The son of Chenaanah, a false prophet in the days of Ahab (1 Kings 22:11, 24; 2 Chr. 18:10, 23).    (3.) The son of Hananiah, a prince of Judah in the days of Jehoiakim (Jer. 36:12).
 
 ## Zeeb
 
@@ -198,15 +198,15 @@ the wolf, one of the two leaders of the great Midianite host which invaded Israe
 
 ## Zelah
 
-slope; side, a town in Benjamin, where Saul and his son Jonathan were buried (2 Sam. 21:14). It was probably Saul`s birthplace.
+slope; side, a town in Benjamin, where Saul and his son Jonathan were buried (2 Sam. 21:14). It was probably Saul's birthplace.
 
 ## Zelek
 
-cleft, an Ammonite; one of David`s valiant men (2 Sam. 23:37).
+cleft, an Ammonite; one of David's valiant men (2 Sam. 23:37).
 
 ## Zelophehad
 
-first-born, of the tribe of Manasseh, and of the family of Gilead; died in the wilderness. Having left no sons, his daughters, concerned lest their father`s name should be "done away from among his family," made an appeal to Moses, who, by divine direction, appointed it as "a statute of judgment" in Israel that daughters should inherit their father`s portion when no sons were left (Num. 27:1-11). But that the possession of Zelophehad might not pass away in the year of jubilee from the tribe to which he belonged, it was ordained by Moses that his daughters should not marry any one out of their father`s tribe; and this afterwards became a general law (Num. 36).
+first-born, of the tribe of Manasseh, and of the family of Gilead; died in the wilderness. Having left no sons, his daughters, concerned lest their father's name should be "done away from among his family," made an appeal to Moses, who, by divine direction, appointed it as "a statute of judgment" in Israel that daughters should inherit their father's portion when no sons were left (Num. 27:1-11). But that the possession of Zelophehad might not pass away in the year of jubilee from the tribe to which he belonged, it was ordained by Moses that his daughters should not marry any one out of their father's tribe; and this afterwards became a general law (Num. 36).
 
 ## Zelotes
 
@@ -230,15 +230,15 @@ a disciple called "the lawyer," whom Paul wished Titus to bring with him (Titus 
 
 ## Zephaniah
 
-Jehovah has concealed, or Jehovah of darkness. (1.) The son of Cushi, and great-grandson of Hezekiah, and the ninth in the order of the minor prophets. He prophesied in the days of Josiah, king of Judah (B.C. 641-610), and was contemporary with Jeremiah, with whom he had much in common. The book of his prophecies consists of:    (a) An introduction (1:1-6), announcing the judgment of the world, and the judgment upon Israel, because of their transgressions.    (b) The description of the judgment (1:7-18).    (c) An exhortation to seek God while there is still time (2:1-3).    (d) The announcement of judgment on the heathen (2:4-15).    (e) The hopeless misery of Jerusalem (3:1-7).    (f) The promise of salvation (3:8-20).    (2.) The son of Maaseiah, the "second priest" in the reign of Zedekiah, often mentioned in Jeremiah as having been sent from the king to inquire (Jer. 21:1) regarding the coming woes which he had denounced, and to entreat the prophet`s intercession that the judgment threatened might be averted (Jer. 29:25, 26, 29; 37:3; 52:24). He, along with some other captive Jews, was put to death by the king of Babylon "at Riblah in the land of Hamath" (2 Kings 25:21).    (3.) A Kohathite ancestor of the prophet Samuel (1 Chr. 6:36).    (4.) The father of Josiah, the priest who dwelt in Jerusalem when Darius issued the decree that the temple should be rebuilt (Zech. 6:10).
+Jehovah has concealed, or Jehovah of darkness. (1.) The son of Cushi, and great-grandson of Hezekiah, and the ninth in the order of the minor prophets. He prophesied in the days of Josiah, king of Judah (B.C. 641-610), and was contemporary with Jeremiah, with whom he had much in common. The book of his prophecies consists of:    (a) An introduction (1:1-6), announcing the judgment of the world, and the judgment upon Israel, because of their transgressions.    (b) The description of the judgment (1:7-18).    (c) An exhortation to seek God while there is still time (2:1-3).    (d) The announcement of judgment on the heathen (2:4-15).    (e) The hopeless misery of Jerusalem (3:1-7).    (f) The promise of salvation (3:8-20).    (2.) The son of Maaseiah, the "second priest" in the reign of Zedekiah, often mentioned in Jeremiah as having been sent from the king to inquire (Jer. 21:1) regarding the coming woes which he had denounced, and to entreat the prophet's intercession that the judgment threatened might be averted (Jer. 29:25, 26, 29; 37:3; 52:24). He, along with some other captive Jews, was put to death by the king of Babylon "at Riblah in the land of Hamath" (2 Kings 25:21).    (3.) A Kohathite ancestor of the prophet Samuel (1 Chr. 6:36).    (4.) The father of Josiah, the priest who dwelt in Jerusalem when Darius issued the decree that the temple should be rebuilt (Zech. 6:10).
 
 ## Zephath
 
-beacon; watch-tower, a Canaanite town; called also Hormah (q.v.), Judg. 1:17. It has been identified with the pass of es-Sufah, but with greater probability with S`beita.
+beacon; watch-tower, a Canaanite town; called also Hormah (q.v.), Judg. 1:17. It has been identified with the pass of es-Sufah, but with greater probability with S'beita.
 
 ## Zephathah
 
-a valley in the west of Judah, near Mareshah; the scene of Asa`s conflict with Zerah the Ethiopian (2 Chr. 14:9-13). Identified with the Wady Safieh.
+a valley in the west of Judah, near Mareshah; the scene of Asa's conflict with Zerah the Ethiopian (2 Chr. 14:9-13). Identified with the Wady Safieh.
 
 ## Zerah
 
@@ -274,7 +274,7 @@ the seed of Babylon, the son of Salathiel or Shealtiel (Hag. 1:1; Zorobabel, Mat
 
 ## Zeruiah
 
-stricken of the Lord, David`s sister, and the mother of Abishai, Joab, and Asahel (1 Chr. 2:16), who were the three leading heroes of David`s army, and being his nephews, they were admitted to the closest companionship with him.
+stricken of the Lord, David's sister, and the mother of Abishai, Joab, and Asahel (1 Chr. 2:16), who were the three leading heroes of David's army, and being his nephews, they were admitted to the closest companionship with him.
 
 ## Zetham
 
@@ -330,7 +330,7 @@ drought. (1.) The name of a family of Nethinim (Ezra 2:43; Neh. 7:46). (2.) A ru
 
 ## Ziklag
 
-a town in the Negeb, or south country of Judah (Josh. 15:31), in the possession of the Philistines when David fled to Gath from Ziph with all his followers. Achish, the king, assigned him Ziklag as his place of residence. There he dwelt for over a year and four months. From this time it pertained to the kings of Judah (1 Sam. 27:6). During his absence with his army to join the Philistine expedition against the Israelites (29:11), it was destroyed by the Amalekites (30:1, 2), whom David, however, pursued and utterly routed, returning all the captives (1 Sam. 30:26-31). Two days after his return from this expedition, David received tidings of the disastrous battle of Gilboa and of the death of Saul (2 Sam. 1:1-16). He now left Ziklag and returned to Hebron, along with his two wives, Ahinoam and Abigail, and his band of 600 men. It has been identified with `Asluj, a heap of ruins south of Beersheba. Conder, however, identifies it with Khirbet Zuheilikah, ruins found on three hills half a mile apart, some seventeen miles north-west of Beersheba, on the confines of Philistia, Judah, and Amalek.
+a town in the Negeb, or south country of Judah (Josh. 15:31), in the possession of the Philistines when David fled to Gath from Ziph with all his followers. Achish, the king, assigned him Ziklag as his place of residence. There he dwelt for over a year and four months. From this time it pertained to the kings of Judah (1 Sam. 27:6). During his absence with his army to join the Philistine expedition against the Israelites (29:11), it was destroyed by the Amalekites (30:1, 2), whom David, however, pursued and utterly routed, returning all the captives (1 Sam. 30:26-31). Two days after his return from this expedition, David received tidings of the disastrous battle of Gilboa and of the death of Saul (2 Sam. 1:1-16). He now left Ziklag and returned to Hebron, along with his two wives, Ahinoam and Abigail, and his band of 600 men. It has been identified with 'Asluj, a heap of ruins south of Beersheba. Conder, however, identifies it with Khirbet Zuheilikah, ruins found on three hills half a mile apart, some seventeen miles north-west of Beersheba, on the confines of Philistia, Judah, and Amalek.
 
 ## Zillah
 
@@ -338,7 +338,7 @@ shadow, one of the wives of Lamech, of the line of Cain, and mother of Tubal-cai
 
 ## Zilpah
 
-drooping, Leah`s handmaid, and the mother of Gad and Asher (Gen. 30:9-13).
+drooping, Leah's handmaid, and the mother of Gad and Asher (Gen. 30:9-13).
 
 ## Zilthai
 
@@ -366,11 +366,11 @@ ornament, one of the sons of Shimei (1 Chr. 23:10).
 
 ## Zion
 
-sunny; height, one of the eminences on which Jerusalem was built. It was surrounded on all sides, except the north, by deep valleys, that of the Tyropoeon (q.v.) separating it from Moriah (q.v.), which it surpasses in height by 105 feet. It was the south-eastern hill of Jerusalem.    When David took it from the Jebusites (Josh. 15:63; 2 Sam. 5:7) he built on it a citadel and a palace, and it became "the city of David" (1 Kings 8:1; 2 Kings 19:21, 31; 1 Chr. 11:5). In the later books of the Old Testament this name was sometimes used (Ps. 87:2; 149:2; Isa. 33:14; Joel 2:1) to denote Jerusalem in general, and sometimes God`s chosen Israel (Ps. 51:18; 87:5).    In the New Testament (see SION ) it is used sometimes to denote the Church of God (Heb. 12:22), and sometimes the heavenly city (Rev. 14:1).
+sunny; height, one of the eminences on which Jerusalem was built. It was surrounded on all sides, except the north, by deep valleys, that of the Tyropoeon (q.v.) separating it from Moriah (q.v.), which it surpasses in height by 105 feet. It was the south-eastern hill of Jerusalem.    When David took it from the Jebusites (Josh. 15:63; 2 Sam. 5:7) he built on it a citadel and a palace, and it became "the city of David" (1 Kings 8:1; 2 Kings 19:21, 31; 1 Chr. 11:5). In the later books of the Old Testament this name was sometimes used (Ps. 87:2; 149:2; Isa. 33:14; Joel 2:1) to denote Jerusalem in general, and sometimes God's chosen Israel (Ps. 51:18; 87:5).    In the New Testament (see SION ) it is used sometimes to denote the Church of God (Heb. 12:22), and sometimes the heavenly city (Rev. 14:1).
 
 ## Zior
 
-littleness, a city in the mountains of Judah (Josh. 15:54); the modern Si`air, 4 1/2 miles north-north-east of Hebron.
+littleness, a city in the mountains of Judah (Josh. 15:54); the modern Si'air, 4 1/2 miles north-north-east of Hebron.
 
 ## Ziph
 
@@ -390,7 +390,7 @@ a little bird, the father of Balak, king of Moab (Num. 22:2, 4).
 
 ## Zipporah
 
-a female bird. Reuel`s daughter, who became the wife of Moses (Ex. 2:21). In consequence of the event recorded in Ex. 4:24-26, she and her two sons, Gershom and Eliezer, when so far on the way with Moses toward Egypt, were sent back by him to her own kinsfolk, the Midianites, with whom they sojourned till Moses afterwards joined them (18:2-6).
+a female bird. Reuel's daughter, who became the wife of Moses (Ex. 2:21). In consequence of the event recorded in Ex. 4:24-26, she and her two sons, Gershom and Eliezer, when so far on the way with Moses toward Egypt, were sent back by him to her own kinsfolk, the Midianites, with whom they sojourned till Moses afterwards joined them (18:2-6).
 
 ## Zithri
 
@@ -438,15 +438,15 @@ spreading out, a son of Helem (1 Chr. 7:35), a chief of Asher.
 
 ## Zophar
 
-chirping, one of Job`s friends who came to condole with him in his distress (Job 2:11. The LXX. render here "king of the Mineans" = Ma`in, Maonites, Judg. 10:12, in Southern Arabia). He is called a Naamathite, or an inhabitant of some unknown place called Naamah.
+chirping, one of Job's friends who came to condole with him in his distress (Job 2:11. The LXX. render here "king of the Mineans" = Ma'in, Maonites, Judg. 10:12, in Southern Arabia). He is called a Naamathite, or an inhabitant of some unknown place called Naamah.
 
 ## Zophim, Field of
 
-field of watchers, a place in Moab on the range of Pisgah (Num. 23:14). To this place Balak brought Balaam, that he might from thence curse the children of Israel. Balaam could only speak the word of the Lord, and that was blessing. It is the modern Tal`at-es-Safa. (See PISGAH .)
+field of watchers, a place in Moab on the range of Pisgah (Num. 23:14). To this place Balak brought Balaam, that he might from thence curse the children of Israel. Balaam could only speak the word of the Lord, and that was blessing. It is the modern Tal'at-es-Safa. (See PISGAH .)
 
 ## Zorah
 
-place of wasps, a town in the low country of Judah, afterwards given to Dan (Josh. 19:41; Judg. 18:2), probably the same as Zoreah (Josh. 15:33). This was Samson`s birthplace (Judg. 13:2, 25), and near it he found a grave (16:31). It was situated on the crest of a hill overlooking the valley of Sorek, and was fortified by Rehoboam (2 Chr. 11:10). It has been identified with Sur`ah, in the Wady Surar, 8 miles west of Jerusalem. It is noticed on monuments in the fifteenth century B.C. as attacked by the Abiri or Hebrews.
+place of wasps, a town in the low country of Judah, afterwards given to Dan (Josh. 19:41; Judg. 18:2), probably the same as Zoreah (Josh. 15:33). This was Samson's birthplace (Judg. 13:2, 25), and near it he found a grave (16:31). It was situated on the crest of a hill overlooking the valley of Sorek, and was fortified by Rehoboam (2 Chr. 11:10). It has been identified with Sur'ah, in the Wady Surar, 8 miles west of Jerusalem. It is noticed on monuments in the fifteenth century B.C. as attacked by the Abiri or Hebrews.
 
 ## Zuph
 
@@ -454,7 +454,7 @@ honeycomb, a Kohathite Levite, ancestor of Elkanah and Samuel (1 Sam. 1:1); call
 
 ## Zuph, Land of
 
-(1 Sam. 9:5, 6), a district in which lay Samuel`s city, Ramah. It was probably so named after Elkanah`s son, Zuph (1 Chr. 6:26, marg.).
+(1 Sam. 9:5, 6), a district in which lay Samuel's city, Ramah. It was probably so named after Elkanah's son, Zuph (1 Chr. 6:26, marg.).
 
 ## Zur
 

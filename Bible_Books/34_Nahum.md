@@ -18,7 +18,7 @@
 
 8. But with an overflowing flood, he will make a full end of her place, and will pursue his enemies into darkness.
 
-9. What do you plot against Yahweh? He will make a full end. Affliction won`t rise up the second time.
+9. What do you plot against Yahweh? He will make a full end. Affliction won't rise up the second time.
 
 10. For entangled like thorns, and drunken as with their drink, they are consumed utterly like dry stubble.
 
@@ -55,7 +55,7 @@
 
 10. She is empty, void, and waste. The heart melts, the knees knock together, their bodies and faces have grown pale.
 
-11. Where is the den of the lions, and the feeding place of the young lions, where the lion and the lioness walked, the lion`s cubs, and no one made them afraid?
+11. Where is the den of the lions, and the feeding place of the young lions, where the lion and the lioness walked, the lion's cubs, and no one made them afraid?
 
 12. The lion tore in pieces enough for his cubs, and strangled for his lionesses, and filled his caves with the kill, and his dens with prey.
 
@@ -64,7 +64,7 @@
 
 ## Chapter 3
 
-1. Woe to the bloody city! It is all full of lies and robbery. The prey doesn`t depart.
+1. Woe to the bloody city! It is all full of lies and robbery. The prey doesn't depart.
 
 2. The noise of the whip, the noise of the rattling of wheels, prancing horses, and bounding chariots,
 
@@ -76,7 +76,7 @@
 
 6. I will throw abominable filth on you, and make you vile, and will set you a spectacle.
 
-7. It will happen that all those who look at you will flee from you, and say, `Nineveh is laid waste! Who will mourn for her?` Where will I seek comforters for you?"
+7. It will happen that all those who look at you will flee from you, and say, 'Nineveh is laid waste! Who will mourn for her?' Where will I seek comforters for you?"
 
 8. Are you better than No-Amon, who was situated among the rivers, who had the waters around her; whose rampart was the sea, and her wall was of the sea?
 
@@ -100,5 +100,5 @@
 
 18. Your shepherds slumber, king of Assyria. Your nobles lie down. Your people are scattered on the mountains, and there is no one to gather them.
 
-19. There is no healing your wound, for your injury is fatal. All who hear the report of you clap their hands over you; for who hasn`t felt your endless cruelty?
+19. There is no healing your wound, for your injury is fatal. All who hear the report of you clap their hands over you; for who hasn't felt your endless cruelty?
 

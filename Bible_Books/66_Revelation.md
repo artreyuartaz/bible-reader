@@ -4,7 +4,7 @@
 
 1. This is the Revelation of Jesus Christ, which God gave him to show to his servants the things which must happen soon, which he sent and made known by his angel to his servant, John,
 
-2. who testified to God`s word, and of the testimony of Jesus Christ, about everything that he saw.
+2. who testified to God's word, and of the testimony of Jesus Christ, about everything that he saw.
 
 3. Blessed is he who reads and those who hear the words of the prophecy, and keep the things that are written in it, for the time is at hand.
 
@@ -18,9 +18,9 @@
 
 8. "I am the Alpha and the Omega," says the Lord God, "who is and who was and who is to come, the Almighty."
 
-9. I John, your brother and partner with you in oppression, Kingdom, and perseverance in Christ Jesus, was on the isle that is called Patmos because of God`s Word and the testimony of Jesus Christ.
+9. I John, your brother and partner with you in oppression, Kingdom, and perseverance in Christ Jesus, was on the isle that is called Patmos because of God's Word and the testimony of Jesus Christ.
 
-10. I was in the Spirit on the Lord`s day, and I heard behind me a loud voice, like a trumpet
+10. I was in the Spirit on the Lord's day, and I heard behind me a loud voice, like a trumpet
 
 11. saying, "What you see, write in a book and send to the seven assemblies: to Ephesus, Smyrna, Pergamum, Thyatira, Sardis, Philadelphia, and to Laodicea."
 
@@ -34,7 +34,7 @@
 
 16. He had seven stars in his right hand. Out of his mouth proceeded a sharp two-edged sword. His face was like the sun shining at its brightest.
 
-17. When I saw him, I fell at his feet like a dead man.     He laid his right hand on me, saying, "Don`t be afraid. I am the first and the last,
+17. When I saw him, I fell at his feet like a dead man.     He laid his right hand on me, saying, "Don't be afraid. I am the first and the last,
 
 18. and the Living one. I was dead, and behold, I am alive forevermore. Amen. I have the keys of Death and of Hades.
 
@@ -47,9 +47,9 @@
 
 1. "To the angel of the assembly in Ephesus write:     "He who holds the seven stars in his right hand, he who walks among the seven golden lampstands says these things:
 
-2. "I know your works, and your toil and perseverance, and that you can`t tolerate evil men, and have tested those who call themselves apostles, and they are not, and found them false.
+2. "I know your works, and your toil and perseverance, and that you can't tolerate evil men, and have tested those who call themselves apostles, and they are not, and found them false.
 
-3. You have perseverance and have endured for my name`s sake, and have not grown weary.
+3. You have perseverance and have endured for my name's sake, and have not grown weary.
 
 4. But I have this against you, that you left your first love.
 
@@ -63,13 +63,13 @@
 
 9. "I know your works, oppression, and your poverty (but you are rich), and the blasphemy of those who say they are Jews, and they are not, but are a synagogue of Satan.
 
-10. Don`t be afraid of the things which you are about to suffer. Behold, the devil is about to throw some of you into prison, that you may be tested; and you will have oppression for ten days. Be faithful to death, and I will give you the crown of life.
+10. Don't be afraid of the things which you are about to suffer. Behold, the devil is about to throw some of you into prison, that you may be tested; and you will have oppression for ten days. Be faithful to death, and I will give you the crown of life.
 
-11. He who has an ear, let him hear what the Spirit says to the assemblies. He who overcomes won`t be harmed by the second death.
+11. He who has an ear, let him hear what the Spirit says to the assemblies. He who overcomes won't be harmed by the second death.
 
 12. "To the angel of the assembly in Pergamum write:     "He who has the sharp two-edged sword says these things:
 
-13. "I know your works and where you dwell, where Satan`s throne is. You hold firmly to my name, and didn`t deny my faith in the days of Antipas my witness, my faithful one, who was killed among you, where Satan dwells.
+13. "I know your works and where you dwell, where Satan's throne is. You hold firmly to my name, and didn't deny my faith in the days of Antipas my witness, my faithful one, who was killed among you, where Satan dwells.
 
 14. But I have a few things against you, because you have there some who hold the teaching of Balaam, who taught Balak to throw a stumbling block before the children of Israel, to eat things sacrificed to idols, and to commit sexual immorality.
 
@@ -91,7 +91,7 @@
 
 23. I will kill her children with Death, and all the assemblies will know that I am he who searches the minds and hearts. I will give to each one of you according to your deeds.
 
-24. But to you I say, to the rest who are in Thyatira, as many as don`t have this teaching, who don`t know what some call `the deep things of Satan,` to you I say, I am not putting any other burden on you.
+24. But to you I say, to the rest who are in Thyatira, as many as don't have this teaching, who don't know what some call 'the deep things of Satan,' to you I say, I am not putting any other burden on you.
 
 25. Nevertheless, hold that which you have firmly until I come.
 
@@ -110,7 +110,7 @@
 
 2. Wake up, and keep the things that remain, which you were about to throw away, for I have found no works of yours perfected before my God.
 
-3. Remember therefore how you have received and heard. Keep it, and repent. If therefore you won`t watch, I will come as a thief, and you won`t know what hour I will come upon you.
+3. Remember therefore how you have received and heard. Keep it, and repent. If therefore you won't watch, I will come as a thief, and you won't know what hour I will come upon you.
 
 4. Nevertheless you have a few names in Sardis that did not defile their garments. They will walk with me in white, for they are worthy.
 
@@ -120,7 +120,7 @@
 
 7. "To the angel of the assembly in Philadelphia write:     "He who is holy, he who is true, he who has the key of David, he who opens and no one can shut, and who shuts and no one opens, says these things:
 
-8. "I know your works (behold, I have set before you an open door, which no one can shut), that you have a little power, and kept my word, and didn`t deny my name.
+8. "I know your works (behold, I have set before you an open door, which no one can shut), that you have a little power, and kept my word, and didn't deny my name.
 
 9. Behold, I give of the synagogue of Satan, of those who say they are Jews, and they are not, but lie. Behold, I will make them to come and worship before your feet, and to know that I have loved you.
 
@@ -132,13 +132,13 @@
 
 13. He who has an ear, let him hear what the Spirit says to the assemblies.
 
-14. "To the angel of the assembly in Laodicea write:     "The Amen, the Faithful and True Witness, the Head of God`s creation, says these things:
+14. "To the angel of the assembly in Laodicea write:     "The Amen, the Faithful and True Witness, the Head of God's creation, says these things:
 
 15. "I know your works, that you are neither cold nor hot. I wish you were cold or hot.
 
 16. So, because you are lukewarm, and neither hot nor cold, I will vomit you out of my mouth.
 
-17. Because you say, `I am rich, and have gotten riches, and have need of nothing;` and don`t know that you are the wretched one, miserable, poor, blind, and naked;
+17. Because you say, 'I am rich, and have gotten riches, and have need of nothing;' and don't know that you are the wretched one, miserable, poor, blind, and naked;
 
 18. I counsel you to buy from me gold refined by fire, that you may become rich; and white garments, that you may clothe yourself, and that the shame of your nakedness may not be revealed; and eye salve to anoint your eyes, that you may see.
 
@@ -186,7 +186,7 @@
 
 4. And I wept much, because no one was found worthy to open the book, or to look in it.
 
-5. One of the elders said to me, "Don`t weep. Behold, the Lion who is of the tribe of Judah, the Root of David, has overcome; he who opens the book and its seven seals."
+5. One of the elders said to me, "Don't weep. Behold, the Lion who is of the tribe of Judah, the Root of David, has overcome; he who opens the book and its seven seals."
 
 6. I saw in the midst of the throne and of the four living creatures, and in the midst of the elders, a Lamb standing, as though it had been slain, having seven horns, and seven eyes, which are the seven Spirits of God, sent out into all the earth.
 
@@ -219,7 +219,7 @@
 
 5. When he opened the third seal, I heard the third living creature saying, "Come and see!" And behold, a black horse, and he who sat on it had a balance in his hand.
 
-6. I heard a voice in the midst of the four living creatures saying, "A choenix of wheat for a denarius, and three choenix of barley for a denarius! Don`t damage the oil and the wine!"
+6. I heard a voice in the midst of the four living creatures saying, "A choenix of wheat for a denarius, and three choenix of barley for a denarius! Don't damage the oil and the wine!"
 
 7. When he opened the fourth seal, I heard the fourth living creature saying, "Come and see!"
 
@@ -250,7 +250,7 @@
 
 2. I saw another angel ascend from the sunrise, having the seal of the living God. He cried with a loud voice to the four angels to whom it was given to harm the earth and the sea,
 
-3. saying, "Don`t harm the earth, neither the sea, nor the trees, until we have sealed the bondservants of our God on their foreheads!"
+3. saying, "Don't harm the earth, neither the sea, nor the trees, until we have sealed the bondservants of our God on their foreheads!"
 
 4. I heard the number of those who were sealed, one hundred forty-four thousand, sealed out of every tribe of the children of Israel:
 
@@ -272,7 +272,7 @@
 
 13. One of the elders answered, saying to me, "These who are arrayed in white robes, who are they, and from where did they come?"
 
-14. I told him, "My lord, you know."     He said to me, "These are those who came out of the great tribulation. They washed their robes, and made them white in the Lamb`s blood.
+14. I told him, "My lord, you know."     He said to me, "These are those who came out of the great tribulation. They washed their robes, and made them white in the Lamb's blood.
 
 15. Therefore they are before the throne of God, they serve him day and night in his temple. He who sits on the throne will spread his tabernacle over them.
 
@@ -289,7 +289,7 @@
 
 3. Another angel came and stood over the altar, having a golden censer. Much incense was given to him, that he should add it to the prayers of all the saints on the golden altar which was before the throne.
 
-4. The smoke of the incense, with the prayers of the saints, went up before God out of the angel`s hand.
+4. The smoke of the incense, with the prayers of the saints, went up before God out of the angel's hand.
 
 5. The angel took the censer, and he filled it with the fire of the altar, and threw it on the earth. There followed thunders, sounds, lightnings, and an earthquake.
 
@@ -305,7 +305,7 @@
 
 11. The name of the star is called "Wormwood." One third of the waters became wormwood. Many people died from the waters, because they were made bitter.
 
-12. The fourth angel sounded, and one third of the sun was struck, and one third of the moon, and one third of the stars; so that one third of them would be darkened, and the day wouldn`t shine for one third of it, and the night in the same way.
+12. The fourth angel sounded, and one third of the sun was struck, and one third of the moon, and one third of the stars; so that one third of them would be darkened, and the day wouldn't shine for one third of it, and the night in the same way.
 
 13. I saw, and I heard an eagle, flying in mid heaven, saying with a loud voice, "Woe! Woe! Woe for those who dwell on the earth, because of the other voices of the trumpets of the three angels, who are yet to sound!"
 
@@ -318,15 +318,15 @@
 
 3. Then out of the smoke came forth locusts on the earth, and power was given to them, as the scorpions of the earth have power.
 
-4. They were told that they should not hurt the grass of the earth, neither any green thing, neither any tree, but only those people who don`t have God`s seal on their foreheads.
+4. They were told that they should not hurt the grass of the earth, neither any green thing, neither any tree, but only those people who don't have God's seal on their foreheads.
 
 5. They were given power not to kill them, but to torment them for five months. Their torment was like the torment of a scorpion, when it strikes a person.
 
 6. In those days people will seek death, and will in no way find it. They will desire to die, and death will flee from them.
 
-7. The shapes of the locusts were like horses prepared for war. On their heads were something like golden crowns, and their faces were like people`s faces.
+7. The shapes of the locusts were like horses prepared for war. On their heads were something like golden crowns, and their faces were like people's faces.
 
-8. They had hair like women`s hair, and their teeth were like those of lions.
+8. They had hair like women's hair, and their teeth were like those of lions.
 
 9. They had breastplates, like breastplates of iron. The sound of their wings was like the sound of chariots, or of many horses rushing to war.
 
@@ -350,9 +350,9 @@
 
 19. For the power of the horses is in their mouths, and in their tails. For their tails are like serpents, and have heads, and with them they harm.
 
-20. The rest of mankind, who were not killed with these plagues, didn`t repent of the works of their hands, that they wouldn`t worship demons, and the idols of gold, and of silver, and of brass, and of stone, and of wood; which can neither see, nor hear, nor walk.
+20. The rest of mankind, who were not killed with these plagues, didn't repent of the works of their hands, that they wouldn't worship demons, and the idols of gold, and of silver, and of brass, and of stone, and of wood; which can neither see, nor hear, nor walk.
 
-21. They didn`t repent of their murders, nor of their sorceries, nor of their sexual immorality, nor of their thefts.
+21. They didn't repent of their murders, nor of their sorceries, nor of their sexual immorality, nor of their thefts.
 
 
 ## Chapter 10
@@ -363,7 +363,7 @@
 
 3. He cried with a loud voice, as a lion roars. When he cried, the seven thunders uttered their voices.
 
-4. When the seven thunders sounded, I was about to write; but I heard a voice from the sky saying, "Seal up the things which the seven thunders said, and don`t write them."
+4. When the seven thunders sounded, I was about to write; but I heard a voice from the sky saying, "Seal up the things which the seven thunders said, and don't write them."
 
 5. The angel who I saw standing on the sea and on the land lifted up his right hand to the sky,
 
@@ -375,16 +375,16 @@
 
 9. I went to the angel, telling him to give me the little book.     He said to me, "Take it, and eat it up. It will make your stomach bitter, but in your mouth it will be as sweet as honey."
 
-10. I took the little book out of the angel`s hand, and ate it up. It was as sweet as honey in my mouth. When I had eaten it, my stomach was made bitter.
+10. I took the little book out of the angel's hand, and ate it up. It was as sweet as honey in my mouth. When I had eaten it, my stomach was made bitter.
 
 11. They told me, "You must prophesy again over many peoples, nations, languages, and kings."
 
 
 ## Chapter 11
 
-1. A reed like a rod was given to me. Someone said, "Rise, and measure God`s temple, and the altar, and those who worship in it.
+1. A reed like a rod was given to me. Someone said, "Rise, and measure God's temple, and the altar, and those who worship in it.
 
-2. Leave out the court which is outside of the temple, and don`t measure it, for it has been given to the nations. They will tread the holy city under foot for forty-two months.
+2. Leave out the court which is outside of the temple, and don't measure it, for it has been given to the nations. They will tread the holy city under foot for forty-two months.
 
 3. I will give power to my two witnesses, and they will prophesy one thousand two hundred sixty days, clothed in sackcloth."
 
@@ -412,13 +412,13 @@
 
 15. The seventh angel sounded, and great voices in heaven followed, saying, "The kingdom of the world has become the Kingdom of our Lord, and of his Christ. He will reign forever and ever!"
 
-16. The twenty-four elders, who sit on their thrones before God`s throne, fell on their faces and worshiped God,
+16. The twenty-four elders, who sit on their thrones before God's throne, fell on their faces and worshiped God,
 
 17. saying: "We give you thanks, Lord God, the Almighty, the one who is and who was; because you have taken your great power, and reigned.
 
 18. The nations were angry, and your wrath came, as did the time for the dead to be judged, and to give your bondservants the prophets, their reward, as well as to the saints, and those who fear your name, to the small and the great; and to destroy those who destroy the earth."
 
-19. God`s temple that is in heaven was opened, and the ark of the Lord`s covenant was seen in his temple. Lightnings, sounds, thunders, an earthquake, and great hail followed.
+19. God's temple that is in heaven was opened, and the ark of the Lord's covenant was seen in his temple. Lightnings, sounds, thunders, an earthquake, and great hail followed.
 
 
 ## Chapter 12
@@ -437,13 +437,13 @@
 
 7. There was war in the sky. Michael and his angels made war on the dragon. The dragon and his angels made war.
 
-8. They didn`t prevail, neither was a place found for him any more in heaven.
+8. They didn't prevail, neither was a place found for him any more in heaven.
 
 9. The great dragon was thrown down, the old serpent, he who is called the devil and Satan, the deceiver of the whole world. He was thrown down to the earth, and his angels were thrown down with him.
 
 10. I heard a loud voice in heaven, saying, "Now is come the salvation, the power, and the Kingdom of our God, and the authority of his Christ; for the accuser of our brothers has been thrown down, who accuses them before our God day and night.
 
-11. They overcame him because of the Lamb`s blood, and because of the word of their testimony. They didn`t love their life, even to death.
+11. They overcame him because of the Lamb's blood, and because of the word of their testimony. They didn't love their life, even to death.
 
 12. Therefore rejoice, heavens, and you who dwell in them. Woe to the earth and to the sea, because the devil has gone down to you, having great wrath, knowing that he has but a short time."
 
@@ -455,7 +455,7 @@
 
 16. The earth helped the woman, and the earth opened its mouth and swallowed up the river which the dragon spewed out of his mouth.
 
-17. The dragon grew angry with the woman, and went away to make war with the rest of her seed, who keep God`s commandments and hold Jesus` testimony.
+17. The dragon grew angry with the woman, and went away to make war with the rest of her seed, who keep God's commandments and hold Jesus' testimony.
 
 
 ## Chapter 13
@@ -488,7 +488,7 @@
 
 14. He deceives my own people who dwell on the earth because of the signs he was granted to do in front of the beast; saying to those who dwell on the earth, that they should make an image to the beast who had the sword wound and lived.
 
-15. It was given to him to give breath to it, to the image of the beast, that the image of the beast should both speak, and cause as many as wouldn`t worship the image of the beast to be killed.
+15. It was given to him to give breath to it, to the image of the beast, that the image of the beast should both speak, and cause as many as wouldn't worship the image of the beast to be killed.
 
 16. He causes all, the small and the great, the rich and the poor, and the free and the slave, to be given marks on their right hands, or on their foreheads;
 
@@ -523,7 +523,7 @@
 
 12. Here is the patience of the saints, those who keep the commandments of God, and the faith of Jesus."
 
-13. I heard the voice from heaven saying, "Write, `Blessed are the dead who die in the Lord from now on.`"     "Yes," says the Spirit, "that they may rest from their labors; for their works follow with them."
+13. I heard the voice from heaven saying, "Write, 'Blessed are the dead who die in the Lord from now on.'"     "Yes," says the Spirit, "that they may rest from their labors; for their works follow with them."
 
 14. I looked, and behold, a white cloud; and on the cloud one sitting like a son of man, having on his head a golden crown, and in his hand a sharp sickle.
 
@@ -533,7 +533,7 @@
 
 17. Another angel came out from the temple which is in heaven. He also had a sharp sickle.
 
-18. Another angel came out from the altar, he who has power over fire, and he called with a great voice to him who had the sharp sickle, saying, "Send forth your sharp sickle, and gather the clusters of the vine of the earth, for the earth`s grapes are fully ripe!"
+18. Another angel came out from the altar, he who has power over fire, and he called with a great voice to him who had the sharp sickle, saying, "Send forth your sharp sickle, and gather the clusters of the vine of the earth, for the earth's grapes are fully ripe!"
 
 19. The angel thrust his sickle into the earth, and gathered the vintage of the earth, and threw it into the great winepress of the wrath of God.
 
@@ -542,13 +542,13 @@
 
 ## Chapter 15
 
-1. I saw another great and marvelous sign in the sky: seven angels having the seven last plagues, for in them God`s wrath is finished.
+1. I saw another great and marvelous sign in the sky: seven angels having the seven last plagues, for in them God's wrath is finished.
 
 2. I saw something like a sea of glass mixed with fire, and those who overcame the beast, his image, and the number of his name, standing on the sea of glass, having harps of God.
 
 3. They sang the song of Moses, the servant of God, and the song of the Lamb, saying, "Great and marvelous are your works, Lord God, the Almighty!    Righteous and true are your ways, you King of the nations.
 
-4. Who wouldn`t fear you, Lord,    and glorify your name? For you only are holy.    For all the nations will come and worship before you.    For your righteous acts have been revealed."
+4. Who wouldn't fear you, Lord,    and glorify your name? For you only are holy.    For all the nations will come and worship before you.    For your righteous acts have been revealed."
 
 5. After these things I looked, and the temple of the tabernacle of the testimony in heaven was opened.
 
@@ -577,11 +577,11 @@
 
 8. The fourth poured out his bowl on the sun, and it was given to him to scorch men with fire.
 
-9. People were scorched with great heat, and people blasphemed the name of God who has the power over these plagues. They didn`t repent and give him glory.
+9. People were scorched with great heat, and people blasphemed the name of God who has the power over these plagues. They didn't repent and give him glory.
 
 10. The fifth poured out his bowl on the throne of the beast, and his kingdom was darkened. They gnawed their tongues because of the pain,
 
-11. and they blasphemed the God of heaven because of their pains and their sores. They didn`t repent of their works.
+11. and they blasphemed the God of heaven because of their pains and their sores. They didn't repent of their works.
 
 12. The sixth poured out his bowl on the great river, the Euphrates. Its water was dried up, that the way might be made ready for the kings that come from the sunrise.
 
@@ -589,7 +589,7 @@
 
 14. for they are spirits of demons, performing signs; which go forth to the kings of the whole inhabited earth, to gather them together for the war of that great day of God, the Almighty.
 
-15. "Behold, I come like a thief. Blessed is he who watches, and keeps his clothes, so that he doesn`t walk naked, and they see his shame."
+15. "Behold, I come like a thief. Blessed is he who watches, and keeps his clothes, so that he doesn't walk naked, and they see his shame."
 
 16. He gathered them together into the place which is called in Hebrew, Megiddo.
 
@@ -651,37 +651,37 @@
 
 3. For all the nations have drunk of the wine of the wrath of her sexual immorality, the kings of the earth committed sexual immorality with her, and the merchants of the earth grew rich from the abundance of her luxury."
 
-4. I heard another voice from heaven, saying, "Come out of her, my people, that you have no participation in her sins, and that you don`t receive of her plagues,
+4. I heard another voice from heaven, saying, "Come out of her, my people, that you have no participation in her sins, and that you don't receive of her plagues,
 
 5. for her sins have reached to the sky, and God has remembered her iniquities.
 
 6. Return to her just as she returned, and repay her double as she did, and according to her works. In the cup which she mixed, mix to her double.
 
-7. However much she glorified herself, and grew wanton, so much give her of torment and mourning. For she says in her heart, `I sit a queen, and am no widow, and will in no way see mourning.`
+7. However much she glorified herself, and grew wanton, so much give her of torment and mourning. For she says in her heart, 'I sit a queen, and am no widow, and will in no way see mourning.'
 
 8. Therefore in one day her plagues will come: death, mourning, and famine; and she will be utterly burned with fire; for the Lord God who has judged her is strong.
 
 9. The kings of the earth, who committed sexual immorality and lived wantonly with her, will weep and wail over her, when they look at the smoke of her burning,
 
-10. standing far away for the fear of her torment, saying, `Woe, woe, the great city, Babylon, the strong city! For your judgment has come in one hour.`
+10. standing far away for the fear of her torment, saying, 'Woe, woe, the great city, Babylon, the strong city! For your judgment has come in one hour.'
 
 11. The merchants of the earth weep and mourn over her, for no one buys their merchandise any more;
 
 12. merchandise of gold, silver, precious stones, pearls, fine linen, purple, silk, scarlet, all expensive wood, every vessel of ivory, every vessel made of most precious wood, and of brass, and iron, and marble;
 
-13. and cinnamon, incense, perfume, frankincense, wine, olive oil, fine flour, wheat, sheep, horses, chariots, and people`s bodies and souls.
+13. and cinnamon, incense, perfume, frankincense, wine, olive oil, fine flour, wheat, sheep, horses, chariots, and people's bodies and souls.
 
 14. The fruits which your soul lusted after have been lost to you, and all things that were dainty and sumptuous have perished from you, and you will find them no more at all.
 
 15. The merchants of these things, who were made rich by her, will stand far away for the fear of her torment, weeping and mourning;
 
-16. saying, `Woe, woe, the great city, she who was dressed in fine linen, purple, and scarlet, and decked with gold and precious stones and pearls!
+16. saying, 'Woe, woe, the great city, she who was dressed in fine linen, purple, and scarlet, and decked with gold and precious stones and pearls!
 
-17. For in an hour such great riches are made desolate.` Every shipmaster, and everyone who sails anywhere, and mariners, and as many as gain their living by sea, stood far away,
+17. For in an hour such great riches are made desolate.' Every shipmaster, and everyone who sails anywhere, and mariners, and as many as gain their living by sea, stood far away,
 
-18. and cried out as they looked at the smoke of her burning, saying, `What is like the great city?`
+18. and cried out as they looked at the smoke of her burning, saying, 'What is like the great city?'
 
-19. They cast dust on their heads, and cried, weeping and mourning, saying, `Woe, woe, the great city, in which all who had their ships in the sea were made rich by reason of her great wealth!` For in one hour is she made desolate.
+19. They cast dust on their heads, and cried, weeping and mourning, saying, 'Woe, woe, the great city, in which all who had their ships in the sea were made rich by reason of her great wealth!' For in one hour is she made desolate.
 
 20. "Rejoice over her, O heaven, you saints, apostles, and prophets; for God has judged your judgment on her."
 
@@ -712,9 +712,9 @@
 
 8. It was given to her that she would array herself in bright, pure, fine linen: for the fine linen is the righteous acts of the saints.
 
-9. He said to me, "Write, `Blessed are those who are invited to the marriage supper of the Lamb.`" He said to me, "These are true words of God."
+9. He said to me, "Write, 'Blessed are those who are invited to the marriage supper of the Lamb.'" He said to me, "These are true words of God."
 
-10. I fell down before his feet to worship him. He said to me, "Look! Don`t do it! I am a fellow bondservant with you and with your brothers who hold the testimony of Jesus. Worship God, for the testimony of Jesus is the Spirit of Prophecy."
+10. I fell down before his feet to worship him. He said to me, "Look! Don't do it! I am a fellow bondservant with you and with your brothers who hold the testimony of Jesus. Worship God, for the testimony of Jesus is the Spirit of Prophecy."
 
 11. I saw the heaven opened, and behold, a white horse, and he who sat on it is called Faithful and True. In righteousness he judges and makes war.
 
@@ -747,9 +747,9 @@
 
 3. and cast him into the abyss, and shut it, and sealed it over him, that he should deceive the nations no more, until the thousand years were finished. After this, he must be freed for a short time.
 
-4. I saw thrones, and they sat on them, and judgment was given to them. I saw the souls of those who had been beheaded for the testimony of Jesus, and for the word of God, and such as didn`t worship the beast nor his image, and didn`t receive the mark on their forehead and on their hand. They lived, and reigned with Christ for a thousand years.
+4. I saw thrones, and they sat on them, and judgment was given to them. I saw the souls of those who had been beheaded for the testimony of Jesus, and for the word of God, and such as didn't worship the beast nor his image, and didn't receive the mark on their forehead and on their hand. They lived, and reigned with Christ for a thousand years.
 
-5. The rest of the dead didn`t live until the thousand years were finished. This is the first resurrection.
+5. The rest of the dead didn't live until the thousand years were finished. This is the first resurrection.
 
 6. Blessed and holy is he who has part in the first resurrection. Over these, the second death has no power, but they will be priests of God and of Christ, and will reign with him one thousand years.
 
@@ -778,7 +778,7 @@
 
 2. I saw the holy city, New Jerusalem, coming down out of heaven from God, made ready like a bride adorned for her husband.
 
-3. I heard a loud voice out of heaven saying, "Behold, God`s dwelling is with people, and he will dwell with them, and they will be his people, and God himself will be with them as their God.
+3. I heard a loud voice out of heaven saying, "Behold, God's dwelling is with people, and he will dwell with them, and they will be his people, and God himself will be with them as their God.
 
 4. He will wipe away from them every tear from their eyes. Death will be no more; neither will there be mourning, nor crying, nor pain, any more. The first things have passed away."
 
@@ -790,7 +790,7 @@
 
 8. But for the cowardly, unbelieving, sinners, abominable, murderers, sexually immoral, sorcerers, idolaters, and all liars, their part is in the lake that burns with fire and sulfur, which is the second death."
 
-9. One of the seven angels who had the seven bowls, who were loaded with the seven last plagues came, and he spoke with me, saying, "Come here. I will show you the wife, the Lamb`s bride."
+9. One of the seven angels who had the seven bowls, who were loaded with the seven last plagues came, and he spoke with me, saying, "Come here. I will show you the wife, the Lamb's bride."
 
 10. He carried me away in the Spirit to a great and high mountain, and showed me the holy city, Jerusalem, coming down out of heaven from God,
 
@@ -810,7 +810,7 @@
 
 18. The construction of its wall was jasper. The city was pure gold, like pure glass.
 
-19. The foundations of the city`s wall were adorned with all kinds of precious stones. The first foundation was jasper; the second, sapphire; the third, chalcedony; the fourth, emerald;
+19. The foundations of the city's wall were adorned with all kinds of precious stones. The first foundation was jasper; the second, sapphire; the third, chalcedony; the fourth, emerald;
 
 20. the fifth, sardonyx; the sixth, sardius; the seventh, chrysolite; the eighth, beryl; the ninth, topaz; the tenth, chrysoprasus; the eleventh, jacinth; and the twelfth, amethyst.
 
@@ -826,7 +826,7 @@
 
 26. and they shall bring the glory and the honor of the nations into it so that they may enter.
 
-27. There will in no way enter into it anything profane, or one who causes an abomination or a lie, but only those who are written in the Lamb`s book of life.
+27. There will in no way enter into it anything profane, or one who causes an abomination or a lie, but only those who are written in the Lamb's book of life.
 
 
 ## Chapter 22
@@ -847,9 +847,9 @@
 
 8. Now I, John, am the one who heard and saw these things. When I heard and saw, I fell down to worship before the feet of the angel who had shown me these things.
 
-9. He said to me, "See you don`t do it! I am a fellow bondservant with you and with your brothers, the prophets, and with those who keep the words of this book. Worship God."
+9. He said to me, "See you don't do it! I am a fellow bondservant with you and with your brothers, the prophets, and with those who keep the words of this book. Worship God."
 
-10. He said to me, "Don`t seal up the words of the prophecy of this book, for the time is at hand.
+10. He said to me, "Don't seal up the words of the prophecy of this book, for the time is at hand.
 
 11. He who acts unjustly, let him act unjustly still. He who is filthy, let him be filthy still. He who is righteous, let him do righteousness still. He who is holy, let him be holy still."
 

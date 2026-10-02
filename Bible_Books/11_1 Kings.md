@@ -2,13 +2,13 @@
 
 ## Chapter 1
 
-1. Now king David was old and stricken in years; and they covered him with clothes, but he couldn`t keep warm.
+1. Now king David was old and stricken in years; and they covered him with clothes, but he couldn't keep warm.
 
 2. Therefore his servants said to him, "Let there be sought for my lord the king a young virgin: and let her stand before the king, and cherish him; and let her lie in your bosom, that my lord the king may keep warm."
 
 3. So they sought for a beautiful young lady throughout all the borders of Israel, and found Abishag the Shunammite, and brought her to the king.
 
-4. The young lady was very beautiful; and she cherished the king, and ministered to him; but the king didn`t know her intimately.
+4. The young lady was very beautiful; and she cherished the king, and ministered to him; but the king didn't know her intimately.
 
 5. Then Adonijah the son of Haggith exalted himself, saying, "I will be king." Then he prepared him chariots and horsemen, and fifty men to run before him.
 
@@ -18,15 +18,15 @@
 
 8. But Zadok the priest, and Benaiah the son of Jehoiada, and Nathan the prophet, and Shimei, and Rei, and the mighty men who belonged to David, were not with Adonijah.
 
-9. Adonijah killed sheep and cattle and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king`s sons, and all the men of Judah, the king`s servants:
+9. Adonijah killed sheep and cattle and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king's sons, and all the men of Judah, the king's servants:
 
-10. but Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he didn`t call.
+10. but Nathan the prophet, and Benaiah, and the mighty men, and Solomon his brother, he didn't call.
 
-11. Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven`t you heard that Adonijah the son of Haggith reigns, and David our lord doesn`t know it?
+11. Then Nathan spoke to Bathsheba the mother of Solomon, saying, "Haven't you heard that Adonijah the son of Haggith reigns, and David our lord doesn't know it?
 
 12. Now therefore come, please let me give you counsel, that you may save your own life, and the life of your son Solomon.
 
-13. Go in to king David, and tell him, `Didn`t you, my lord, king, swear to your handmaid, saying, Assuredly Solomon your son shall reign after me, and he shall sit on my throne? Why then does Adonijah reign?`
+13. Go in to king David, and tell him, 'Didn't you, my lord, king, swear to your handmaid, saying, Assuredly Solomon your son shall reign after me, and he shall sit on my throne? Why then does Adonijah reign?'
 
 14. Behold, while you yet talk there with the king, I also will come in after you, and confirm your words."
 
@@ -34,11 +34,11 @@
 
 16. Bathsheba bowed, and did obeisance to the king. The king said, "What would you like?"
 
-17. She said to him, "My lord, you swore by Yahweh your God to your handmaid, `Assuredly Solomon your son shall reign after me, and he shall sit on my throne.`
+17. She said to him, "My lord, you swore by Yahweh your God to your handmaid, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne.'
 
-18. Now, behold, Adonijah reigns; and you, my lord the king, don`t know it.
+18. Now, behold, Adonijah reigns; and you, my lord the king, don't know it.
 
-19. He has slain cattle and fatlings and sheep in abundance, and has called all the sons of the king, and Abiathar the priest, and Joab the captain of the army; but he hasn`t called Solomon your servant.
+19. He has slain cattle and fatlings and sheep in abundance, and has called all the sons of the king, and Abiathar the priest, and Joab the captain of the army; but he hasn't called Solomon your servant.
 
 20. You, my lord the king, the eyes of all Israel are on you, that you should tell them who shall sit on the throne of my lord the king after him.
 
@@ -48,19 +48,19 @@
 
 23. They told the king, saying, "Behold, Nathan the prophet!"     When he had come in before the king, he bowed himself before the king with his face to the ground.
 
-24. Nathan said, "My lord, king, have you said, `Adonijah shall reign after me, and he shall sit on my throne?`
+24. Nathan said, "My lord, king, have you said, 'Adonijah shall reign after me, and he shall sit on my throne?'
 
-25. For he is gone down this day, and has slain cattle and fatlings and sheep in abundance, and has called all the king`s sons, and the captains of the army, and Abiathar the priest. Behold, they are eating and drinking before him, and say, `Long live king Adonijah!`
+25. For he is gone down this day, and has slain cattle and fatlings and sheep in abundance, and has called all the king's sons, and the captains of the army, and Abiathar the priest. Behold, they are eating and drinking before him, and say, 'Long live king Adonijah!'
 
-26. But he hasn`t called me, even me your servant, and Zadok the priest, and Benaiah the son of Jehoiada, and your servant Solomon.
+26. But he hasn't called me, even me your servant, and Zadok the priest, and Benaiah the son of Jehoiada, and your servant Solomon.
 
-27. Is this thing done by my lord the king, and you haven`t shown to your servants who should sit on the throne of my lord the king after him?"
+27. Is this thing done by my lord the king, and you haven't shown to your servants who should sit on the throne of my lord the king after him?"
 
-28. Then king David answered, "Call to me Bathsheba." She came into the king`s presence, and stood before the king.
+28. Then king David answered, "Call to me Bathsheba." She came into the king's presence, and stood before the king.
 
 29. The king swore, and said, "As Yahweh lives, who has redeemed my soul out of all adversity,
 
-30. most certainly as I swore to you by Yahweh, the God of Israel, saying, `Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;` most certainly so will I do this day."
+30. most certainly as I swore to you by Yahweh, the God of Israel, saying, 'Assuredly Solomon your son shall reign after me, and he shall sit on my throne in my place;' most certainly so will I do this day."
 
 31. Then Bathsheba bowed with her face to the earth, and did obeisance to the king, and said, "Let my lord king David live forever!"
 
@@ -68,7 +68,7 @@
 
 33. The king said to them, "Take with you the servants of your lord, and cause Solomon my son to ride on my own mule, and bring him down to Gihon.
 
-34. Let Zadok the priest and Nathan the prophet anoint him there king over Israel. Blow the trumpet, and say, `Long live king Solomon!`
+34. Let Zadok the priest and Nathan the prophet anoint him there king over Israel. Blow the trumpet, and say, 'Long live king Solomon!'
 
 35. Then you shall come up after him, and he shall come and sit on my throne; for he shall be king in my place. I have appointed him to be prince over Israel and over Judah."
 
@@ -76,7 +76,7 @@
 
 37. As Yahweh has been with my lord the king, even so may he be with Solomon, and make his throne greater than the throne of my lord king David."
 
-38. So Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites and the Pelethites, went down, and caused Solomon to ride on king David`s mule, and brought him to Gihon.
+38. So Zadok the priest, and Nathan the prophet, and Benaiah the son of Jehoiada, and the Cherethites and the Pelethites, went down, and caused Solomon to ride on king David's mule, and brought him to Gihon.
 
 39. Zadok the priest took the horn of oil out of the Tent, and anointed Solomon. They blew the trumpet; and all the people said, "Long live king Solomon!"
 
@@ -88,21 +88,21 @@
 
 43. Jonathan answered Adonijah, "Most certainly our lord king David has made Solomon king.
 
-44. The king has sent with him Zadok the priest, Nathan the prophet, Benaiah the son of Jehoiada, and the Cherethites and the Pelethites; and they have caused him to ride on the king`s mule.
+44. The king has sent with him Zadok the priest, Nathan the prophet, Benaiah the son of Jehoiada, and the Cherethites and the Pelethites; and they have caused him to ride on the king's mule.
 
 45. Zadok the priest and Nathan the prophet have anointed him king in Gihon. They have come up from there rejoicing, so that the city rang again. This is the noise that you have heard.
 
 46. Also, Solomon sits on the throne of the kingdom.
 
-47. Moreover the king`s servants came to bless our lord king David, saying, `May your God make the name of Solomon better than your name, and make his throne greater than your throne;` and the king bowed himself on the bed.
+47. Moreover the king's servants came to bless our lord king David, saying, 'May your God make the name of Solomon better than your name, and make his throne greater than your throne;' and the king bowed himself on the bed.
 
-48. Also thus said the king, `Blessed be Yahweh, the God of Israel, who has given one to sit on my throne this day, my eyes even seeing it.`"
+48. Also thus said the king, 'Blessed be Yahweh, the God of Israel, who has given one to sit on my throne this day, my eyes even seeing it.'"
 
 49. All the guests of Adonijah were afraid, and rose up, and each man went his way.
 
 50. Adonijah feared because of Solomon; and he arose, and went, and caught hold on the horns of the altar.
 
-51. It was told Solomon, saying, "Behold, Adonijah fears king Solomon; for, behold, he has laid hold on the horns of the altar, saying, `Let king Solomon swear to me first that he will not kill his servant with the sword.`"
+51. It was told Solomon, saying, "Behold, Adonijah fears king Solomon; for, behold, he has laid hold on the horns of the altar, saying, 'Let king Solomon swear to me first that he will not kill his servant with the sword.'"
 
 52. Solomon said, "If he shows himself a worthy man, there shall not a hair of him fall to the earth; but if wickedness be found in him, he shall die."
 
@@ -117,17 +117,17 @@
 
 3. and keep the instruction of Yahweh your God, to walk in his ways, to keep his statutes, his commandments, his ordinances, and his testimonies, according to that which is written in the law of Moses, that you may prosper in all that you do, and wherever you turn yourself.
 
-4. That Yahweh may establish his word which he spoke concerning me, saying, `If your children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail you,` he said, `a man on the throne of Israel.`
+4. That Yahweh may establish his word which he spoke concerning me, saying, 'If your children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail you,' he said, 'a man on the throne of Israel.'
 
 5. "Moreover you know also what Joab the son of Zeruiah did to me, even what he did to the two captains of the armies of Israel, to Abner the son of Ner, and to Amasa the son of Jether, whom he killed, and shed the blood of war in peace, and put the blood of war on his sash that was about his waist, and in his shoes that were on his feet.
 
-6. Do therefore according to your wisdom, and don`t let his gray head go down to Sheol in peace.
+6. Do therefore according to your wisdom, and don't let his gray head go down to Sheol in peace.
 
 7. But show kindness to the sons of Barzillai the Gileadite, and let them be of those who eat at your table; for so they came to me when I fled from Absalom your brother.
 
-8. "Behold, there is with you Shimei the son of Gera, the Benjamite, of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by Yahweh, saying, `I will not put you to death with the sword.`
+8. "Behold, there is with you Shimei the son of Gera, the Benjamite, of Bahurim, who cursed me with a grievous curse in the day when I went to Mahanaim; but he came down to meet me at the Jordan, and I swore to him by Yahweh, saying, 'I will not put you to death with the sword.'
 
-9. Now therefore don`t hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Sheol with blood."
+9. Now therefore don't hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Sheol with blood."
 
 10. David slept with his fathers, and was buried in the city of David.
 
@@ -139,17 +139,17 @@
 
 14. He said moreover, I have something to tell you."     She said, "Say on."
 
-15. He said, "You know that the kingdom was mine, and that all Israel set their faces on me, that I should reign. However the kingdom is turned around, and has become my brother`s; for it was his from Yahweh.
+15. He said, "You know that the kingdom was mine, and that all Israel set their faces on me, that I should reign. However the kingdom is turned around, and has become my brother's; for it was his from Yahweh.
 
-16. Now I ask one petition of you. Don`t deny me."     She said to him, "Say on."
+16. Now I ask one petition of you. Don't deny me."     She said to him, "Say on."
 
-17. He said, "Please speak to Solomon the king (for he will not tell you `no`), that he give me Abishag the Shunammite as wife."
+17. He said, "Please speak to Solomon the king (for he will not tell you 'no'), that he give me Abishag the Shunammite as wife."
 
 18. Bathsheba said, "Alright. I will speak for you to the king."
 
-19. Bathsheba therefore went to king Solomon, to speak to him for Adonijah. The king rose up to meet her, and bowed himself to her, and sat down on his throne, and caused a throne to be set for the king`s mother; and she sat on his right hand.
+19. Bathsheba therefore went to king Solomon, to speak to him for Adonijah. The king rose up to meet her, and bowed himself to her, and sat down on his throne, and caused a throne to be set for the king's mother; and she sat on his right hand.
 
-20. Then she said, "I ask one small petition of you; don`t deny me."     The king said to her, "Ask on, my mother; for I will not deny you."
+20. Then she said, "I ask one small petition of you; don't deny me."     The king said to her, "Ask on, my mother; for I will not deny you."
 
 21. She said, "Let Abishag the Shunammite be given to Adonijah your brother as wife."
 
@@ -165,15 +165,15 @@
 
 27. So Solomon thrust out Abiathar from being priest to Yahweh, that he might fulfill the word of Yahweh, which he spoke concerning the house of Eli in Shiloh.
 
-28. The news came to Joab; for Joab had turned after Adonijah, though he didn`t turn after Absalom. Joab fled to the Tent of Yahweh, and caught hold on the horns of the altar.
+28. The news came to Joab; for Joab had turned after Adonijah, though he didn't turn after Absalom. Joab fled to the Tent of Yahweh, and caught hold on the horns of the altar.
 
 29. It was told king Solomon, "Joab has fled to the Tent of Yahweh, and behold, he is by the altar." Then Solomon sent Benaiah the son of Jehoiada, saying, "Go, fall on him."
 
-30. Benaiah came to the Tent of Yahweh, and said to him, "Thus says the king, `Come forth!`"     He said, "No; but I will die here."     Benaiah brought the king word again, saying, "Thus said Joab, and thus he answered me."
+30. Benaiah came to the Tent of Yahweh, and said to him, "Thus says the king, 'Come forth!'"     He said, "No; but I will die here."     Benaiah brought the king word again, saying, "Thus said Joab, and thus he answered me."
 
-31. The king said to him, "Do as he has said, and fall on him, and bury him; that you may take away the blood, which Joab shed without cause, from me and from my father`s house.
+31. The king said to him, "Do as he has said, and fall on him, and bury him; that you may take away the blood, which Joab shed without cause, from me and from my father's house.
 
-32. Yahweh will return his blood on his own head, because he fell on two men more righteous and better than he, and killed them with the sword, and my father David didn`t know it: Abner the son of Ner, captain of the army of Israel, and Amasa the son of Jether, captain of the army of Judah.
+32. Yahweh will return his blood on his own head, because he fell on two men more righteous and better than he, and killed them with the sword, and my father David didn't know it: Abner the son of Ner, captain of the army of Israel, and Amasa the son of Jether, captain of the army of Judah.
 
 33. So shall their blood return on the head of Joab, and on the head of his seed forever. But to David, and to his seed, and to his house, and to his throne, there shall be peace forever from Yahweh."
 
@@ -181,7 +181,7 @@
 
 35. The king put Benaiah the son of Jehoiada in his room over the army; and Zadok the priest did the king put in the room of Abiathar.
 
-36. The king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem, and dwell there, and don`t go out from there anywhere.
+36. The king sent and called for Shimei, and said to him, "Build yourself a house in Jerusalem, and dwell there, and don't go out from there anywhere.
 
 37. For on the day you go out, and pass over the brook Kidron, know for certain that you shall surely die: your blood shall be on your own head."
 
@@ -193,7 +193,7 @@
 
 41. It was told Solomon that Shimei had gone from Jerusalem to Gath, and was come again.
 
-42. The king sent and called for Shimei, and said to him, "Didn`t I adjure you by Yahweh, and warn you, saying, `Know for certain, that on the day you go out, and walk abroad any where, you shall surely die?` You said to me, `The saying that I have heard is good.`
+42. The king sent and called for Shimei, and said to him, "Didn't I adjure you by Yahweh, and warn you, saying, 'Know for certain, that on the day you go out, and walk abroad any where, you shall surely die?' You said to me, 'The saying that I have heard is good.'
 
 43. Why then have you not kept the oath of Yahweh, and the commandment that I have instructed you with?"
 
@@ -206,7 +206,7 @@
 
 ## Chapter 3
 
-1. Solomon made affinity with Pharaoh king of Egypt, and took Pharaoh`s daughter, and brought her into the city of David, until he had made an end of building his own house, and the house of Yahweh, and the wall of Jerusalem all around.
+1. Solomon made affinity with Pharaoh king of Egypt, and took Pharaoh's daughter, and brought her into the city of David, until he had made an end of building his own house, and the house of Yahweh, and the wall of Jerusalem all around.
 
 2. Only the people sacrificed in the high places, because there was no house built for the name of Yahweh until those days.
 
@@ -218,9 +218,9 @@
 
 6. Solomon said, "You have shown to your servant David my father great loving kindness, according as he walked before you in truth, and in righteousness, and in uprightness of heart with you. You have kept for him this great loving kindness, that you have given him a son to sit on his throne, as it is this day.
 
-7. Now, Yahweh my God, you have made your servant king instead of David my father. I am but a little child. I don`t know how to go out or come in.
+7. Now, Yahweh my God, you have made your servant king instead of David my father. I am but a little child. I don't know how to go out or come in.
 
-8. Your servant is in the midst of your people which you have chosen, a great people, that can`t be numbered nor counted for multitude.
+8. Your servant is in the midst of your people which you have chosen, a great people, that can't be numbered nor counted for multitude.
 
 9. Give your servant therefore an understanding heart to judge your people, that I may discern between good and evil; for who is able to judge this your great people?"
 
@@ -242,7 +242,7 @@
 
 18. It happened the third day after I delivered, that this woman delivered also. We were together. There was no stranger with us in the house, just us two in the house.
 
-19. This woman`s child died in the night, because she lay on it.
+19. This woman's child died in the night, because she lay on it.
 
 20. She arose at midnight, and took my son from beside me, while your handmaid slept, and laid it in her bosom, and laid her dead child in my bosom.
 
@@ -250,7 +250,7 @@
 
 22. The other woman said, "No; but the living is my son, and the dead is your son."     This said, "No; but the dead is your son, and the living is my son." Thus they spoke before the king.
 
-23. Then the king said, "The one says, `This is my son who lives, and your son is the dead;` and the other says, `No; but your son is the dead one, and my son is the living one.`"
+23. Then the king said, "The one says, 'This is my son who lives, and your son is the dead;' and the other says, 'No; but your son is the dead one, and my son is the living one.'"
 
 24. The king said, "Get me a sword." They brought a sword before the king.
 
@@ -273,7 +273,7 @@
 
 4. and Benaiah the son of Jehoiada was over the army; and Zadok and Abiathar were priests;
 
-5. and Azariah the son of Nathan was over the officers; and Zabud the son of Nathan was chief minister, [and] the king`s friend;
+5. and Azariah the son of Nathan was over the officers; and Zabud the son of Nathan was chief minister, [and] the king's friend;
 
 6. and Ahishar was over the household; and Adoniram the son of Abda was over the men subject to forced labor.
 
@@ -307,7 +307,7 @@
 
 21. Solomon ruled over all the kingdoms from the River to the land of the Philistines, and to the border of Egypt: they brought tribute, and served Solomon all the days of his life.
 
-22. Solomon`s provision for one day was thirty measures of fine flour, and sixty measures of meal,
+22. Solomon's provision for one day was thirty measures of fine flour, and sixty measures of meal,
 
 23. ten head of fat cattle, and twenty head of cattle out of the pastures, and one hundred sheep, besides harts, and gazelles, and roebucks, and fattened fowl.
 
@@ -317,13 +317,13 @@
 
 26. Solomon had forty thousand stalls of horses for his chariots, and twelve thousand horsemen.
 
-27. Those officers provided food for king Solomon, and for all who came to king Solomon`s table, every man in his month; they let nothing be lacking.
+27. Those officers provided food for king Solomon, and for all who came to king Solomon's table, every man in his month; they let nothing be lacking.
 
 28. Barley also and straw for the horses and swift steeds brought they to the place where [the officers] were, every man according to his duty.
 
 29. God gave Solomon wisdom and understanding exceeding much, and very great understanding, even as the sand that is on the seashore.
 
-30. Solomon`s wisdom excelled the wisdom of all the children of the east, and all the wisdom of Egypt.
+30. Solomon's wisdom excelled the wisdom of all the children of the east, and all the wisdom of Egypt.
 
 31. For he was wiser than all men; than Ethan the Ezrahite, and Heman, and Calcol, and Darda, the sons of Mahol: and his fame was in all the nations all around.
 
@@ -344,7 +344,7 @@
 
 4. But now Yahweh my God has given me rest on every side. There is neither adversary, nor evil occurrence.
 
-5. Behold, I purpose to build a house for the name of Yahweh my God, as Yahweh spoke to David my father, saying, `Your son, whom I will set on your throne in your room, he shall build the house for my name.`
+5. Behold, I purpose to build a house for the name of Yahweh my God, as Yahweh spoke to David my father, saying, 'Your son, whom I will set on your throne in your room, he shall build the house for my name.'
 
 6. Now therefore command that they cut me cedar trees out of Lebanon. My servants shall be with your servants; and I will give you wages for your servants according to all that you shall say. For you know that there is not among us any who knows how to cut timber like the Sidonians."
 
@@ -366,16 +366,16 @@
 
 15. Solomon had seventy thousand who bore burdens, and eighty thousand who were stone cutters in the mountains;
 
-16. besides Solomon`s chief officers who were over the work, three thousand and three hundred, who bore rule over the people who labored in the work.
+16. besides Solomon's chief officers who were over the work, three thousand and three hundred, who bore rule over the people who labored in the work.
 
 17. The king commanded, and they cut out great stones, costly stones, to lay the foundation of the house with worked stone.
 
-18. Solomon`s builders and Hiram`s builders and the Gebalites did fashion them, and prepared the timber and the stones to build the house.
+18. Solomon's builders and Hiram's builders and the Gebalites did fashion them, and prepared the timber and the stones to build the house.
 
 
 ## Chapter 6
 
-1. It happened in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon`s reign over Israel, in the month Ziv, which is the second month, that he began to build the house of Yahweh.
+1. It happened in the four hundred and eightieth year after the children of Israel were come out of the land of Egypt, in the fourth year of Solomon's reign over Israel, in the month Ziv, which is the second month, that he began to build the house of Yahweh.
 
 2. The house which king Solomon built for Yahweh, its length was sixty cubits, and its breadth twenty [cubits], and its height thirty cubits.
 
@@ -468,7 +468,7 @@
 
 7. He made the porch of the throne where he was to judge, even the porch of judgment: and it was covered with cedar from floor to floor.
 
-8. His house where he was to dwell, the other court within the porch, was of the like work. He made also a house for Pharaoh`s daughter (whom Solomon had taken as wife), like this porch.
+8. His house where he was to dwell, the other court within the porch, was of the like work. He made also a house for Pharaoh's daughter (whom Solomon had taken as wife), like this porch.
 
 9. All these were of costly stones, even of cut stone, according to measure, sawed with saws, inside and outside, even from the foundation to the coping, and so on the outside to the great court.
 
@@ -559,7 +559,7 @@
 
 ## Chapter 8
 
-1. Then Solomon assembled the elders of Israel, and all the heads of the tribes, the princes of the fathers` [houses] of the children of Israel, to king Solomon in Jerusalem, to bring up the ark of the covenant of Yahweh out of the city of David, which is Zion.
+1. Then Solomon assembled the elders of Israel, and all the heads of the tribes, the princes of the fathers' [houses] of the children of Israel, to king Solomon in Jerusalem, to bring up the ark of the covenant of Yahweh out of the city of David, which is Zion.
 
 2. All the men of Israel assembled themselves to king Solomon at the feast, in the month Ethanim, which is the seventh month.
 
@@ -589,13 +589,13 @@
 
 15. He said, "Blessed is Yahweh, the God of Israel, who spoke with his mouth to David your father, and has with his hand fulfilled it, saying,
 
-16. `Since the day that I brought forth my people Israel out of Egypt, I chose no city out of all the tribes of Israel to build a house, that my name might be there; but I chose David to be over my people Israel.`
+16. 'Since the day that I brought forth my people Israel out of Egypt, I chose no city out of all the tribes of Israel to build a house, that my name might be there; but I chose David to be over my people Israel.'
 
 17. "Now it was in the heart of David my father to build a house for the name of Yahweh, the God of Israel.
 
-18. But Yahweh said to David my father, `Whereas it was in your heart to build a house for my name, you did well that it was in your heart.
+18. But Yahweh said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart.
 
-19. Nevertheless, you shall not build the house; but your son who shall come forth out of your body, he shall build the house for my name.`
+19. Nevertheless, you shall not build the house; but your son who shall come forth out of your body, he shall build the house for my name.'
 
 20. Yahweh has established his word that he spoke; for I have risen up in the place of David my father, and I sit on the throne of Israel, as Yahweh promised, and have built the house for the name of Yahweh, the God of Israel.
 
@@ -607,15 +607,15 @@
 
 24. who have kept with your servant David my father that which you promised him. Yes, you spoke with your mouth, and have fulfilled it with your hand, as it is this day.
 
-25. Now therefore, may Yahweh, the God of Israel, keep with your servant David my father that which you have promised him, saying, `There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.`
+25. Now therefore, may Yahweh, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk before me as you have walked before me.'
 
 26. "Now therefore, God of Israel, please let your word be verified, which you spoke to your servant David my father.
 
-27. But will God in very deed dwell on the earth? Behold, heaven and the heaven of heavens can`t contain you; how much less this house that I have built!
+27. But will God in very deed dwell on the earth? Behold, heaven and the heaven of heavens can't contain you; how much less this house that I have built!
 
 28. Yet have respect for the prayer of your servant, and for his supplication, Yahweh my God, to listen to the cry and to the prayer which your servant prays before you this day;
 
-29. that your eyes may be open toward this house night and day, even toward the place of which you have said, `My name shall be there;` to listen to the prayer which your servant shall pray toward this place.
+29. that your eyes may be open toward this house night and day, even toward the place of which you have said, 'My name shall be there;' to listen to the prayer which your servant shall pray toward this place.
 
 30. Listen to the supplication of your servant, and of your people Israel, when they shall pray toward this place. Yes, hear in heaven, your dwelling place; and when you hear, forgive.
 
@@ -639,7 +639,7 @@
 
 40. that they may fear you all the days that they live in the land which you gave to our fathers.
 
-41. "Moreover concerning the foreigner, who is not of your people Israel, when he shall come out of a far country for your name`s sake
+41. "Moreover concerning the foreigner, who is not of your people Israel, when he shall come out of a far country for your name's sake
 
 42. (for they shall hear of your great name, and of your mighty hand, and of your outstretched arm); when he shall come and pray toward this house;
 
@@ -649,9 +649,9 @@
 
 45. then hear in heaven their prayer and their supplication, and maintain their cause.
 
-46. If they sin against you (for there is no man who doesn`t sin), and you are angry with them, and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near;
+46. If they sin against you (for there is no man who doesn't sin), and you are angry with them, and deliver them to the enemy, so that they carry them away captive to the land of the enemy, far off or near;
 
-47. yet if they shall repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, `We have sinned, and have done perversely; we have dealt wickedly;`
+47. yet if they shall repent in the land where they are carried captive, and turn again, and make supplication to you in the land of those who carried them captive, saying, 'We have sinned, and have done perversely; we have dealt wickedly;'
 
 48. if they return to you with all their heart and with all their soul in the land of their enemies, who carried them captive, and pray to you toward their land, which you gave to their fathers, the city which you have chosen, and the house which I have built for your name:
 
@@ -694,7 +694,7 @@
 
 ## Chapter 9
 
-1. It happened, when Solomon had finished the building of the house of Yahweh, and the king`s house, and all Solomon`s desire which he was pleased to do,
+1. It happened, when Solomon had finished the building of the house of Yahweh, and the king's house, and all Solomon's desire which he was pleased to do,
 
 2. that Yahweh appeared to Solomon the second time, as he had appeared to him at Gibeon.
 
@@ -702,21 +702,21 @@
 
 4. As for you, if you will walk before me, as David your father walked, in integrity of heart, and in uprightness, to do according to all that I have commanded you, and will keep my statutes and my ordinances;
 
-5. then I will establish the throne of your kingdom over Israel forever, according as I promised to David your father, saying, `There shall not fail you a man on the throne of Israel.`
+5. then I will establish the throne of your kingdom over Israel forever, according as I promised to David your father, saying, 'There shall not fail you a man on the throne of Israel.'
 
 6. But if you turn away from following me, you or your children, and not keep my commandments and my statutes which I have set before you, but shall go and serve other gods, and worship them;
 
 7. then will I cut off Israel out of the land which I have given them; and this house, which I have made holy for my name, will I cast out of my sight; and Israel shall be a proverb and a byword among all peoples.
 
-8. Though this house is so high, yet shall everyone who passes by it be astonished, and shall hiss; and they shall say, `Why has Yahweh done thus to this land, and to this house?`
+8. Though this house is so high, yet shall everyone who passes by it be astonished, and shall hiss; and they shall say, 'Why has Yahweh done thus to this land, and to this house?'
 
-9. and they shall answer, `Because they forsook Yahweh their God, who brought forth their fathers out of the land of Egypt, and laid hold of other gods, and worshiped them, and served them. Therefore Yahweh has brought all this evil on them.`"
+9. and they shall answer, 'Because they forsook Yahweh their God, who brought forth their fathers out of the land of Egypt, and laid hold of other gods, and worshiped them, and served them. Therefore Yahweh has brought all this evil on them.'"
 
-10. It happened at the end of twenty years, in which Solomon had built the two houses, the house of Yahweh and the king`s house
+10. It happened at the end of twenty years, in which Solomon had built the two houses, the house of Yahweh and the king's house
 
 11. (now Hiram the king of Tyre had furnished Solomon with cedar trees and fir trees, and with gold, according to all his desire), that then king Solomon gave Hiram twenty cities in the land of Galilee.
 
-12. Hiram came out from Tyre to see the cities which Solomon had given him; and they didn`t please him.
+12. Hiram came out from Tyre to see the cities which Solomon had given him; and they didn't please him.
 
 13. He said, "What cities are these which you have given me, my brother?" He called them the land of Cabul to this day.
 
@@ -724,7 +724,7 @@
 
 15. This is the reason of the levy which king Solomon raised, to build the house of Yahweh, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer.
 
-16. Pharaoh king of Egypt had gone up, and taken Gezer, and burnt it with fire, and slain the Canaanites who lived in the city, and given it for a portion to his daughter, Solomon`s wife.
+16. Pharaoh king of Egypt had gone up, and taken Gezer, and burnt it with fire, and slain the Canaanites who lived in the city, and given it for a portion to his daughter, Solomon's wife.
 
 17. Solomon built Gezer, and Beth Horon the lower,
 
@@ -738,9 +738,9 @@
 
 22. But of the children of Israel did Solomon make no bondservants; but they were the men of war, and his servants, and his princes, and his captains, and rulers of his chariots and of his horsemen.
 
-23. These were the chief officers who were over Solomon`s work, five hundred fifty, who bore rule over the people who labored in the work.
+23. These were the chief officers who were over Solomon's work, five hundred fifty, who bore rule over the people who labored in the work.
 
-24. But Pharaoh`s daughter came up out of the city of David to her house which [Solomon] had built for her: then did he build Millo.
+24. But Pharaoh's daughter came up out of the city of David to her house which [Solomon] had built for her: then did he build Millo.
 
 25. Three times a year did Solomon offer burnt offerings and peace offerings on the altar which he built to Yahweh, burning incense therewith, [on the altar] that was before Yahweh. So he finished the house.
 
@@ -757,7 +757,7 @@
 
 2. She came to Jerusalem with a very great train, with camels that bore spices, and very much gold, and precious stones; and when she was come to Solomon, she talked with him of all that was in her heart.
 
-3. Solomon told her all her questions: there was not anything hidden from the king which he didn`t tell her.
+3. Solomon told her all her questions: there was not anything hidden from the king which he didn't tell her.
 
 4. When the queen of Sheba had seen all the wisdom of Solomon, and the house that he had built,
 
@@ -765,7 +765,7 @@
 
 6. She said to the king, "It was a true report that I heard in my own land of your acts, and of your wisdom.
 
-7. However I didn`t believe the words, until I came, and my eyes had seen it. Behold, the half was not told me! Your wisdom and prosperity exceed the fame which I heard.
+7. However I didn't believe the words, until I came, and my eyes had seen it. Behold, the half was not told me! Your wisdom and prosperity exceed the fame which I heard.
 
 8. Happy are your men, happy are these your servants, who stand continually before you, who hear your wisdom.
 
@@ -775,7 +775,7 @@
 
 11. The navy also of Hiram, that brought gold from Ophir, brought in from Ophir great plenty of almug trees and precious stones.
 
-12. The king made of the almug trees pillars for the house of Yahweh, and for the king`s house, harps also and stringed instruments for the singers: there came no such almug trees, nor were seen, to this day.
+12. The king made of the almug trees pillars for the house of Yahweh, and for the king's house, harps also and stringed instruments for the singers: there came no such almug trees, nor were seen, to this day.
 
 13. King Solomon gave to the queen of Sheba all her desire, whatever she asked, besides that which Solomon gave her of his royal bounty. So she turned, and went to her own land, she and her servants.
 
@@ -793,7 +793,7 @@
 
 20. Twelve lions stood there on the one side and on the other on the six steps: there was nothing like it made in any kingdom.
 
-21. All king Solomon`s drinking vessels were of gold, and all the vessels of the house of the forest of Lebanon were of pure gold: none were of silver; it was nothing accounted of in the days of Solomon.
+21. All king Solomon's drinking vessels were of gold, and all the vessels of the house of the forest of Lebanon were of pure gold: none were of silver; it was nothing accounted of in the days of Solomon.
 
 22. For the king had at sea a navy of Tarshish with the navy of Hiram: once every three years came the navy of Tarshish, bringing gold, and silver, ivory, and apes, and peacocks.
 
@@ -807,7 +807,7 @@
 
 27. The king made silver to be in Jerusalem as stones, and cedars made he to be as the sycamore trees that are in the lowland, for abundance.
 
-28. The horses which Solomon had were brought out of Egypt; and the king`s merchants received them in droves, each drove at a price.
+28. The horses which Solomon had were brought out of Egypt; and the king's merchants received them in droves, each drove at a price.
 
 29. A chariot came up and went out of Egypt for six hundred [shekels] of silver, and a horse for one hundred fifty; and so for all the kings of the Hittites, and for the kings of Syria, did they bring them out by their means.
 
@@ -824,7 +824,7 @@
 
 5. For Solomon went after Ashtoreth the goddess of the Sidonians, and after Milcom the abomination of the Ammonites.
 
-6. Solomon did that which was evil in the sight of Yahweh, and didn`t go fully after Yahweh, as did David his father.
+6. Solomon did that which was evil in the sight of Yahweh, and didn't go fully after Yahweh, as did David his father.
 
 7. Then did Solomon build a high place for Chemosh the abomination of Moab, on the mountain that is before Jerusalem, and for Molech the abomination of the children of Ammon.
 
@@ -832,27 +832,27 @@
 
 9. Yahweh was angry with Solomon, because his heart was turned away from Yahweh, the God of Israel, who had appeared to him twice,
 
-10. and had commanded him concerning this thing, that he should not go after other gods: but he didn`t keep that which Yahweh commanded.
+10. and had commanded him concerning this thing, that he should not go after other gods: but he didn't keep that which Yahweh commanded.
 
 11. Therefore Yahweh said to Solomon, "Because this is done by you, and you have not kept my covenant and my statutes, which I have commanded you, I will surely tear the kingdom from you, and will give it to your servant.
 
-12. Notwithstanding I will not do it in your days, for David your father`s sake; but I will tear it out of the hand of your son.
+12. Notwithstanding I will not do it in your days, for David your father's sake; but I will tear it out of the hand of your son.
 
-13. However I will not tear away all the kingdom; but I will give one tribe to your son, for David my servant`s sake, and for Jerusalem`s sake which I have chosen."
+13. However I will not tear away all the kingdom; but I will give one tribe to your son, for David my servant's sake, and for Jerusalem's sake which I have chosen."
 
-14. Yahweh raised up an adversary to Solomon, Hadad the Edomite: he was of the king`s seed in Edom.
+14. Yahweh raised up an adversary to Solomon, Hadad the Edomite: he was of the king's seed in Edom.
 
 15. For it happened, when David was in Edom, and Joab the captain of the army was gone up to bury the slain, and had struck every male in Edom
 
 16. (for Joab and all Israel remained there six months, until he had cut off every male in Edom);
 
-17. that Hadad fled, he and certain Edomites of his father`s servants with him, to go into Egypt, Hadad being yet a little child.
+17. that Hadad fled, he and certain Edomites of his father's servants with him, to go into Egypt, Hadad being yet a little child.
 
 18. They arose out of Midian, and came to Paran; and they took men with them out of Paran, and they came to Egypt, to Pharaoh king of Egypt, who gave him a house, and appointed him food, and gave him land.
 
 19. Hadad found great favor in the sight of Pharaoh, so that he gave him as wife the sister of his own wife, the sister of Tahpenes the queen.
 
-20. The sister of Tahpenes bore him Genubath his son, whom Tahpenes weaned in Pharaoh`s house; and Genubath was in Pharaoh`s house among the sons of Pharaoh.
+20. The sister of Tahpenes bore him Genubath his son, whom Tahpenes weaned in Pharaoh's house; and Genubath was in Pharaoh's house among the sons of Pharaoh.
 
 21. When Hadad heard in Egypt that David slept with his fathers, and that Joab the captain of the army was dead, Hadad said to Pharaoh, "Let me depart, that I may go to my own country."
 
@@ -864,7 +864,7 @@
 
 25. He was an adversary to Israel all the days of Solomon, besides the mischief that Hadad [did]: and he abhorred Israel, and reigned over Syria.
 
-26. Jeroboam the son of Nebat, an Ephraimite of Zeredah, a servant of Solomon, whose mother`s name was Zeruah, a widow, he also lifted up his hand against the king.
+26. Jeroboam the son of Nebat, an Ephraimite of Zeredah, a servant of Solomon, whose mother's name was Zeruah, a widow, he also lifted up his hand against the king.
 
 27. This was the reason why he lifted up his hand against the king: Solomon built Millo, and repaired the breach of the city of David his father.
 
@@ -874,15 +874,15 @@
 
 30. Ahijah laid hold of the new garment that was on him, and tore it in twelve pieces.
 
-31. He said to Jeroboam, "Take ten pieces; for thus says Yahweh, the God of Israel, `Behold, I will tear the kingdom out of the hand of Solomon, and will give ten tribes to you
+31. He said to Jeroboam, "Take ten pieces; for thus says Yahweh, the God of Israel, 'Behold, I will tear the kingdom out of the hand of Solomon, and will give ten tribes to you
 
-32. (but he shall have one tribe, for my servant David`s sake and for Jerusalem`s sake, the city which I have chosen out of all the tribes of Israel);
+32. (but he shall have one tribe, for my servant David's sake and for Jerusalem's sake, the city which I have chosen out of all the tribes of Israel);
 
 33. because that they have forsaken me, and have worshiped Ashtoreth the goddess of the Sidonians, Chemosh the god of Moab, and Milcom the god of the children of Ammon. They have not walked in my ways, to do that which is right in my eyes, and [to keep] my statutes and my ordinances, as David his father did.
 
-34. "`However I will not take the whole kingdom out of his hand; but I will make him prince all the days of his life, for David my servant`s sake whom I chose, who kept my commandments and my statutes;
+34. "'However I will not take the whole kingdom out of his hand; but I will make him prince all the days of his life, for David my servant's sake whom I chose, who kept my commandments and my statutes;
 
-35. but I will take the kingdom out of his son`s hand, and will give it to you, even ten tribes.
+35. but I will take the kingdom out of his son's hand, and will give it to you, even ten tribes.
 
 36. To his son will I give one tribe, that David my servant may have a lamp always before me in Jerusalem, the city which I have chosen me to put my name there.
 
@@ -890,11 +890,11 @@
 
 38. It shall be, if you will listen to all that I command you, and will walk in my ways, and do that which is right in my eyes, to keep my statutes and my commandments, as David my servant did; that I will be with you, and will build you a sure house, as I built for David, and will give Israel to you.
 
-39. I will for this afflict the seed of David, but not forever.`"
+39. I will for this afflict the seed of David, but not forever.'"
 
 40. Solomon sought therefore to kill Jeroboam; but Jeroboam arose, and fled into Egypt, to Shishak king of Egypt, and was in Egypt until the death of Solomon.
 
-41. Now the rest of the acts of Solomon, and all that he did, and his wisdom, aren`t they written in the book of the acts of Solomon?
+41. Now the rest of the acts of Solomon, and all that he did, and his wisdom, aren't they written in the book of the acts of Solomon?
 
 42. The time that Solomon reigned in Jerusalem over all Israel was forty years.
 
@@ -919,11 +919,11 @@
 
 8. But he forsook the counsel of the old men which they had given him, and took counsel with the young men who had grown up with him, who stood before him.
 
-9. He said to them, "What counsel do you give, that we may return answer to this people, who have spoken to me, saying, `Make the yoke that your father did put on us lighter?`"
+9. He said to them, "What counsel do you give, that we may return answer to this people, who have spoken to me, saying, 'Make the yoke that your father did put on us lighter?'"
 
-10. The young men who had grown up with him spoke to him, saying, "Thus you shall tell this people who spoke to you, saying, `Your father made our yoke heavy, but make it lighter to us;` you shall say to them, `My little finger is thicker than my father`s waist.
+10. The young men who had grown up with him spoke to him, saying, "Thus you shall tell this people who spoke to you, saying, 'Your father made our yoke heavy, but make it lighter to us;' you shall say to them, 'My little finger is thicker than my father's waist.
 
-11. Now whereas my father burdened you with a heavy yoke, I will add to your yoke: my father chastised you with whips, but I will chastise you with scorpions.`"
+11. Now whereas my father burdened you with a heavy yoke, I will add to your yoke: my father chastised you with whips, but I will chastise you with scorpions.'"
 
 12. So Jeroboam and all the people came to Rehoboam the third day, as the king asked, saying, "Come to me again the third day."
 
@@ -931,9 +931,9 @@
 
 14. and spoke to them according to the counsel of the young men, saying, "My father made your yoke heavy, but I will add to your yoke. My father chastised you with whips, but I will chastise you with scorpions."
 
-15. So the king didn`t listen to the people; for it was a thing brought about of Yahweh, that he might establish his word, which Yahweh spoke by Ahijah the Shilonite to Jeroboam the son of Nebat.
+15. So the king didn't listen to the people; for it was a thing brought about of Yahweh, that he might establish his word, which Yahweh spoke by Ahijah the Shilonite to Jeroboam the son of Nebat.
 
-16. When all Israel saw that the king didn`t listen to them, the people answered the king, saying, "What portion have we in David? Neither do we have an inheritance in the son of Jesse. To your tents, Israel! Now see to your own house, David." So Israel departed to their tents.
+16. When all Israel saw that the king didn't listen to them, the people answered the king, saying, "What portion have we in David? Neither do we have an inheritance in the son of Jesse. To your tents, Israel! Now see to your own house, David." So Israel departed to their tents.
 
 17. But as for the children of Israel who lived in the cities of Judah, Rehoboam reigned over them.
 
@@ -949,7 +949,7 @@
 
 23. "Speak to Rehoboam the son of Solomon, king of Judah, and to all the house of Judah and Benjamin, and to the rest of the people, saying,
 
-24. `Thus says Yahweh, "You shall not go up, nor fight against your brothers, the children of Israel. Everyone return to his house; for this thing is of me."`" So they listened to the word of Yahweh, and returned and went their way, according to the word of Yahweh.
+24. 'Thus says Yahweh, "You shall not go up, nor fight against your brothers, the children of Israel. Everyone return to his house; for this thing is of me."'" So they listened to the word of Yahweh, and returned and went their way, according to the word of Yahweh.
 
 25. Then Jeroboam built Shechem in the hill country of Ephraim, and lived in it; and he went out from there, and built Penuel.
 
@@ -974,7 +974,7 @@
 
 1. Behold, there came a man of God out of Judah by the word of Yahweh to Beth El: and Jeroboam was standing by the altar to burn incense.
 
-2. He cried against the altar by the word of Yahweh, and said, "Altar, altar, thus says Yahweh: `Behold, a son shall be born to the house of David, Josiah by name. On you he shall sacrifice the priests of the high places who burn incense on you, and they will burn men`s bones on you.`"
+2. He cried against the altar by the word of Yahweh, and said, "Altar, altar, thus says Yahweh: 'Behold, a son shall be born to the house of David, Josiah by name. On you he shall sacrifice the priests of the high places who burn incense on you, and they will burn men's bones on you.'"
 
 3. He gave a sign the same day, saying, "This is the sign which Yahweh has spoken: Behold, the altar will be split apart, and the ashes that are on it will be poured out."
 
@@ -982,15 +982,15 @@
 
 5. The altar also was split apart, and the ashes poured out from the altar, according to the sign which the man of God had given by the word of Yahweh.
 
-6. The king answered the man of God, "Now entreat the favor of Yahweh your God, and pray for me, that my hand may be restored me again."     The man of God entreated Yahweh, and the king`s hand was restored him again, and became as it was before.
+6. The king answered the man of God, "Now entreat the favor of Yahweh your God, and pray for me, that my hand may be restored me again."     The man of God entreated Yahweh, and the king's hand was restored him again, and became as it was before.
 
 7. The king said to the man of God, "Come home with me, and refresh yourself, and I will give you a reward."
 
 8. The man of God said to the king, "Even if you gave me half of your house, I would not go in with you, neither would I eat bread nor drink water in this place;
 
-9. for so was it commanded me by the word of Yahweh, saying, `You shall eat no bread, nor drink water, neither return by the way that you came.`"
+9. for so was it commanded me by the word of Yahweh, saying, 'You shall eat no bread, nor drink water, neither return by the way that you came.'"
 
-10. So he went another way, and didn`t return by the way that he came to Bethel.
+10. So he went another way, and didn't return by the way that he came to Bethel.
 
 11. Now there lived an old prophet in Bethel; and one of his sons came and told him all the works that the man of God had done that day in Bethel. They also told their father the words which he had spoken to the king.
 
@@ -1004,17 +1004,17 @@
 
 16. He said, "I may not return with you, nor go in with you; neither will I eat bread nor drink water with you in this place.
 
-17. For it was said to me by the word of Yahweh, `You shall eat no bread nor drink water there, nor turn again to go by the way that you came.`"
+17. For it was said to me by the word of Yahweh, 'You shall eat no bread nor drink water there, nor turn again to go by the way that you came.'"
 
-18. He said to him, "I also am a prophet as you are; and an angel spoke to me by the word of Yahweh, saying, `Bring him back with you into your house, that he may eat bread and drink water.`" He lied to him.
+18. He said to him, "I also am a prophet as you are; and an angel spoke to me by the word of Yahweh, saying, 'Bring him back with you into your house, that he may eat bread and drink water.'" He lied to him.
 
 19. So he went back with him, and ate bread in his house, and drank water.
 
 20. It happened, as they sat at the table, that the word of Yahweh came to the prophet who brought him back;
 
-21. and he cried to the man of God who came from Judah, saying, "Thus says Yahweh, `Because you have been disobedient to the mouth of Yahweh, and have not kept the commandment which Yahweh your God commanded you,
+21. and he cried to the man of God who came from Judah, saying, "Thus says Yahweh, 'Because you have been disobedient to the mouth of Yahweh, and have not kept the commandment which Yahweh your God commanded you,
 
-22. but came back, and have eaten bread and drunk water in the place of which he said to you, "Eat no bread, and drink no water;" your body shall not come to the tomb of your fathers.`"
+22. but came back, and have eaten bread and drunk water in the place of which he said to you, "Eat no bread, and drink no water;" your body shall not come to the tomb of your fathers.'"
 
 23. It happened, after he had eaten bread, and after he had drunk, that he saddled the donkey for the prophet whom he had brought back.
 
@@ -1036,7 +1036,7 @@
 
 32. For the saying which he cried by the word of Yahweh against the altar in Bethel, and against all the houses of the high places which are in the cities of Samaria, will surely happen."
 
-33. After this thing Jeroboam didn`t return from his evil way, but again made priests of the high places from among all the people. Whoever wanted to, he consecrated him, that there might be priests of the high places.
+33. After this thing Jeroboam didn't return from his evil way, but again made priests of the high places from among all the people. Whoever wanted to, he consecrated him, that there might be priests of the high places.
 
 34. This thing became sin to the house of Jeroboam, even to cut it off, and to destroy it from off the surface of the earth.
 
@@ -1045,17 +1045,17 @@
 
 1. At that time Abijah the son of Jeroboam fell sick.
 
-2. Jeroboam said to his wife, "Please get up and disguise yourself, that you won`t be recognized as the wife of Jeroboam. Go to Shiloh. Behold, there is Ahijah the prophet, who spoke concerning me that I should be king over this people.
+2. Jeroboam said to his wife, "Please get up and disguise yourself, that you won't be recognized as the wife of Jeroboam. Go to Shiloh. Behold, there is Ahijah the prophet, who spoke concerning me that I should be king over this people.
 
 3. Take with you ten loaves, and cakes, and a jar of honey, and go to him. He will tell you what will become of the child."
 
-4. Jeroboam`s wife did so, and arose, and went to Shiloh, and came to the house of Ahijah. Now Ahijah could not see; for his eyes were set by reason of his age.
+4. Jeroboam's wife did so, and arose, and went to Shiloh, and came to the house of Ahijah. Now Ahijah could not see; for his eyes were set by reason of his age.
 
 5. Yahweh said to Ahijah, "Behold, the wife of Jeroboam comes to inquire of you concerning her son; for he is sick. Thus and thus you shall tell her; for it will be, when she comes in, that she will pretend to be another woman."
 
 6. It was so, when Ahijah heard the sound of her feet, as she came in at the door, that he said, "Come in, you wife of Jeroboam! Why do you pretend to be another? For I am sent to you with heavy news.
 
-7. Go, tell Jeroboam, `Thus says Yahweh, the God of Israel: "Because I exalted you from among the people, and made you prince over my people Israel,
+7. Go, tell Jeroboam, 'Thus says Yahweh, the God of Israel: "Because I exalted you from among the people, and made you prince over my people Israel,
 
 8. and tore the kingdom away from the house of David, and gave it you; and yet you have not been as my servant David, who kept my commandments, and who followed me with all his heart, to do that only which was right in my eyes,
 
@@ -1063,7 +1063,7 @@
 
 10. therefore, behold, I will bring evil on the house of Jeroboam, and will cut off from Jeroboam everyone who urinates on a wall, he who is shut up and he who is left at large in Israel, and will utterly sweep away the house of Jeroboam, as a man sweeps away dung, until it is all gone.
 
-11. He who dies of Jeroboam in the city shall the dogs eat; and he who dies in the field shall the birds of the sky eat: for Yahweh has spoken it."`
+11. He who dies of Jeroboam in the city shall the dogs eat; and he who dies in the field shall the birds of the sky eat: for Yahweh has spoken it."'
 
 12. Arise therefore, and go to your house. When your feet enter into the city, the child shall die.
 
@@ -1075,7 +1075,7 @@
 
 16. He will give Israel up because of the sins of Jeroboam, which he has sinned, and with which he has made Israel to sin."
 
-17. Jeroboam`s wife arose, and departed, and came to Tirzah. As she came to the threshold of the house, the child died.
+17. Jeroboam's wife arose, and departed, and came to Tirzah. As she came to the threshold of the house, the child died.
 
 18. All Israel buried him, and mourned for him, according to the word of Yahweh, which he spoke by his servant Ahijah the prophet.
 
@@ -1083,7 +1083,7 @@
 
 20. The days which Jeroboam reigned were two and twenty years: and he slept with his fathers, and Nadab his son reigned in his place.
 
-21. Rehoboam the son of Solomon reigned in Judah. Rehoboam was forty-one years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which Yahweh had chosen out of all the tribes of Israel, to put his name there: and his mother`s name was Naamah the Ammonitess.
+21. Rehoboam the son of Solomon reigned in Judah. Rehoboam was forty-one years old when he began to reign, and he reigned seventeen years in Jerusalem, the city which Yahweh had chosen out of all the tribes of Israel, to put his name there: and his mother's name was Naamah the Ammonitess.
 
 22. Judah did that which was evil in the sight of Yahweh, and they provoked him to jealousy with their sins which they committed, above all that their fathers had done.
 
@@ -1093,40 +1093,40 @@
 
 25. It happened in the fifth year of king Rehoboam, that Shishak king of Egypt came up against Jerusalem;
 
-26. and he took away the treasures of the house of Yahweh, and the treasures of the king`s house; he even took away all: and he took away all the shields of gold which Solomon had made.
+26. and he took away the treasures of the house of Yahweh, and the treasures of the king's house; he even took away all: and he took away all the shields of gold which Solomon had made.
 
-27. King Rehoboam made in their place shields of brass, and committed them to the hands of the captains of the guard, who kept the door of the king`s house.
+27. King Rehoboam made in their place shields of brass, and committed them to the hands of the captains of the guard, who kept the door of the king's house.
 
 28. It was so, that as often as the king went into the house of Yahweh, the guard bore them, and brought them back into the guard chamber.
 
-29. Now the rest of the acts of Rehoboam, and all that he did, aren`t they written in the book of the chronicles of the kings of Judah?
+29. Now the rest of the acts of Rehoboam, and all that he did, aren't they written in the book of the chronicles of the kings of Judah?
 
 30. There was war between Rehoboam and Jeroboam continually.
 
-31. Rehoboam slept with his fathers, and was buried with his fathers in the city of David: and his mother`s name was Naamah the Ammonitess. Abijam his son reigned in his place.
+31. Rehoboam slept with his fathers, and was buried with his fathers in the city of David: and his mother's name was Naamah the Ammonitess. Abijam his son reigned in his place.
 
 
 ## Chapter 15
 
 1. Now in the eighteenth year of king Jeroboam the son of Nebat began Abijam to reign over Judah.
 
-2. Three years reigned he in Jerusalem: and his mother`s name was Maacah the daughter of Abishalom.
+2. Three years reigned he in Jerusalem: and his mother's name was Maacah the daughter of Abishalom.
 
 3. He walked in all the sins of his father, which he had done before him; and his heart was not perfect with Yahweh his God, as the heart of David his father.
 
-4. Nevertheless for David`s sake did Yahweh his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem;
+4. Nevertheless for David's sake did Yahweh his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem;
 
-5. because David did that which was right in the eyes of Yahweh, and didn`t turn aside from anything that he commanded him all the days of his life, except only in the matter of Uriah the Hittite.
+5. because David did that which was right in the eyes of Yahweh, and didn't turn aside from anything that he commanded him all the days of his life, except only in the matter of Uriah the Hittite.
 
 6. Now there was war between Rehoboam and Jeroboam all the days of his life.
 
-7. The rest of the acts of Abijam, and all that he did, aren`t they written in the book of the chronicles of the kings of Judah? There was war between Abijam and Jeroboam.
+7. The rest of the acts of Abijam, and all that he did, aren't they written in the book of the chronicles of the kings of Judah? There was war between Abijam and Jeroboam.
 
 8. Abijam slept with his fathers; and they buried him in the city of David: and Asa his son reigned in his place.
 
 9. In the twentieth year of Jeroboam king of Israel began Asa to reign over Judah.
 
-10. Forty-one years reigned he in Jerusalem: and his mother`s name was Maacah the daughter of Abishalom.
+10. Forty-one years reigned he in Jerusalem: and his mother's name was Maacah the daughter of Abishalom.
 
 11. Asa did that which was right in the eyes of Yahweh, as did David his father.
 
@@ -1142,7 +1142,7 @@
 
 17. Baasha king of Israel went up against Judah, and built Ramah, that he might not allow anyone to go out or come in to Asa king of Judah.
 
-18. Then Asa took all the silver and the gold that were left in the treasures of the house of Yahweh, and the treasures of the king`s house, and delivered them into the hand of his servants; and king Asa sent them to Ben Hadad, the son of Tabrimmon, the son of Hezion, king of Syria, who lived at Damascus, saying,
+18. Then Asa took all the silver and the gold that were left in the treasures of the house of Yahweh, and the treasures of the king's house, and delivered them into the hand of his servants; and king Asa sent them to Ben Hadad, the son of Tabrimmon, the son of Hezion, king of Syria, who lived at Damascus, saying,
 
 19. "There is a treaty between me and you, between my father and your father. Behold, I have sent to you a present of silver and gold. Go, break your treaty with Baasha king of Israel, that he may depart from me."
 
@@ -1152,7 +1152,7 @@
 
 22. Then king Asa made a proclamation to all Judah; none was exempted: and they carried away the stones of Ramah, and its timber, with which Baasha had built; and king Asa built therewith Geba of Benjamin, and Mizpah.
 
-23. Now the rest of all the acts of Asa, and all his might, and all that he did, and the cities which he built, aren`t they written in the book of the chronicles of the kings of Judah? But in the time of his old age he was diseased in his feet.
+23. Now the rest of all the acts of Asa, and all his might, and all that he did, and the cities which he built, aren't they written in the book of the chronicles of the kings of Judah? But in the time of his old age he was diseased in his feet.
 
 24. Asa slept with his fathers, and was buried with his fathers in the city of David his father; and Jehoshaphat his son reigned in his place.
 
@@ -1164,11 +1164,11 @@
 
 28. Even in the third year of Asa king of Judah did Baasha kill him, and reigned in his place.
 
-29. It happened that, as soon as he was king, he struck all the house of Jeroboam: he didn`t leave to Jeroboam any who breathed, until he had destroyed him; according to the saying of Yahweh, which he spoke by his servant Ahijah the Shilonite;
+29. It happened that, as soon as he was king, he struck all the house of Jeroboam: he didn't leave to Jeroboam any who breathed, until he had destroyed him; according to the saying of Yahweh, which he spoke by his servant Ahijah the Shilonite;
 
 30. for the sins of Jeroboam which he sinned, and with which he made Israel to sin, because of his provocation with which he provoked Yahweh, the God of Israel, to anger.
 
-31. Now the rest of the acts of Nadab, and all that he did, aren`t they written in the book of the chronicles of the kings of Israel?
+31. Now the rest of the acts of Nadab, and all that he did, aren't they written in the book of the chronicles of the kings of Israel?
 
 32. There was war between Asa and Baasha king of Israel all their days.
 
@@ -1185,9 +1185,9 @@
 
 3. behold, I will utterly sweep away Baasha and his house; and I will make your house like the house of Jeroboam the son of Nebat.
 
-4. The dogs will eat Baasha`s descendants who die in the city; and he who dies of his in the field the birds of the sky will eat."
+4. The dogs will eat Baasha's descendants who die in the city; and he who dies of his in the field the birds of the sky will eat."
 
-5. Now the rest of the acts of Baasha, and what he did, and his might, aren`t they written in the book of the chronicles of the kings of Israel?
+5. Now the rest of the acts of Baasha, and what he did, and his might, aren't they written in the book of the chronicles of the kings of Israel?
 
 6. Baasha slept with his fathers, and was buried in Tirzah; and Elah his son reigned in his place.
 
@@ -1199,13 +1199,13 @@
 
 10. and Zimri went in and struck him, and killed him, in the twenty-seventh year of Asa king of Judah, and reigned in his place.
 
-11. It happened, when he began to reign, as soon as he sat on his throne, that he struck all the house of Baasha: he didn`t leave him a single one who urinates on a wall, neither of his relatives, nor of his friends.
+11. It happened, when he began to reign, as soon as he sat on his throne, that he struck all the house of Baasha: he didn't leave him a single one who urinates on a wall, neither of his relatives, nor of his friends.
 
 12. Thus Zimri destroyed all the house of Baasha, according to the word of Yahweh, which he spoke against Baasha by Jehu the prophet,
 
 13. for all the sins of Baasha, and the sins of Elah his son, which they sinned, and with which they made Israel to sin, to provoke Yahweh, the God of Israel, to anger with their vanities.
 
-14. Now the rest of the acts of Elah, and all that he did, aren`t they written in the book of the chronicles of the kings of Israel?
+14. Now the rest of the acts of Elah, and all that he did, aren't they written in the book of the chronicles of the kings of Israel?
 
 15. In the twenty-seventh year of Asa king of Judah did Zimri reign seven days in Tirzah. Now the people were encamped against Gibbethon, which belonged to the Philistines.
 
@@ -1213,11 +1213,11 @@
 
 17. Omri went up from Gibbethon, and all Israel with him, and they besieged Tirzah.
 
-18. It happened, when Zimri saw that the city was taken, that he went into the castle of the king`s house, and burnt the king`s house over him with fire, and died,
+18. It happened, when Zimri saw that the city was taken, that he went into the castle of the king's house, and burnt the king's house over him with fire, and died,
 
 19. for his sins which he sinned in doing that which was evil in the sight of Yahweh, in walking in the way of Jeroboam, and in his sin which he did, to make Israel to sin.
 
-20. Now the rest of the acts of Zimri, and his treason that he did, aren`t they written in the book of the chronicles of the kings of Israel?
+20. Now the rest of the acts of Zimri, and his treason that he did, aren't they written in the book of the chronicles of the kings of Israel?
 
 21. Then were the people of Israel divided into two parts: half of the people followed Tibni the son of Ginath, to make him king; and half followed Omri.
 
@@ -1231,7 +1231,7 @@
 
 26. For he walked in all the way of Jeroboam the son of Nebat, and in his sins with which he made Israel to sin, to provoke Yahweh, the God of Israel, to anger with their vanities.
 
-27. Now the rest of the acts of Omri which he did, and his might that he showed, aren`t they written in the book of the chronicles of the kings of Israel?
+27. Now the rest of the acts of Omri which he did, and his might that he showed, aren't they written in the book of the chronicles of the kings of Israel?
 
 28. So Omri slept with his fathers, and was buried in Samaria; and Ahab his son reigned in his place.
 
@@ -1272,15 +1272,15 @@
 
 11. As she was going to get it, he called to her, and said, "Please bring me a morsel of bread in your hand."
 
-12. She said, "As Yahweh your God lives, I don`t have a cake, but a handful of meal in the jar, and a little oil in the jar. Behold, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die."
+12. She said, "As Yahweh your God lives, I don't have a cake, but a handful of meal in the jar, and a little oil in the jar. Behold, I am gathering two sticks, that I may go in and bake it for me and my son, that we may eat it, and die."
 
-13. Elijah said to her, "Don`t be afraid. Go and do as you have said; but make me of it a little cake first, and bring it out to me, and afterward make some for you and for your son.
+13. Elijah said to her, "Don't be afraid. Go and do as you have said; but make me of it a little cake first, and bring it out to me, and afterward make some for you and for your son.
 
-14. For thus says Yahweh, the God of Israel, `The jar of meal shall not empty, neither shall the jar of oil fail, until the day that Yahweh sends rain on the earth.`"
+14. For thus says Yahweh, the God of Israel, 'The jar of meal shall not empty, neither shall the jar of oil fail, until the day that Yahweh sends rain on the earth.'"
 
 15. She went and did according to the saying of Elijah: and she, and he, and her house, ate [many] days.
 
-16. The jar of meal didn`t empty, neither did the jar of oil fail, according to the word of Yahweh, which he spoke by Elijah.
+16. The jar of meal didn't empty, neither did the jar of oil fail, according to the word of Yahweh, which he spoke by Elijah.
 
 17. It happened after these things, that the son of the woman, the mistress of the house, fell sick; and his sickness was so sore, that there was no breath left in him.
 
@@ -1290,7 +1290,7 @@
 
 20. He cried to Yahweh, and said, "Yahweh my God, have you also brought evil on the widow with whom I sojourn, by killing her son?"
 
-21. He stretched himself on the child three times, and cried to Yahweh, and said, "Yahweh my God, please let this child`s soul come into him again."
+21. He stretched himself on the child three times, and cried to Yahweh, and said, "Yahweh my God, please let this child's soul come into him again."
 
 22. Yahweh listened to the voice of Elijah; and the soul of the child came into him again, and he revived.
 
@@ -1315,19 +1315,19 @@
 
 7. As Obadiah was in the way, behold, Elijah met him: and he recognized him, and fell on his face, and said, "Is it you, my lord Elijah?"
 
-8. He answered him, "It is I. Go, tell your lord, `Behold, Elijah is here!`"
+8. He answered him, "It is I. Go, tell your lord, 'Behold, Elijah is here!'"
 
 9. He said, "Wherein have I sinned, that you would deliver your servant into the hand of Ahab, to kill me?
 
-10. As Yahweh your God lives, there is no nation or kingdom, where my lord has not sent to seek you. When they said, `He is not here,` he took an oath of the kingdom and nation, that they didn`t find you.
+10. As Yahweh your God lives, there is no nation or kingdom, where my lord has not sent to seek you. When they said, 'He is not here,' he took an oath of the kingdom and nation, that they didn't find you.
 
-11. Now you say, `Go, tell your lord, "Behold, Elijah is here."`
+11. Now you say, 'Go, tell your lord, "Behold, Elijah is here."'
 
-12. It will happen, as soon as I am gone from you, that the Spirit of Yahweh will carry you I don`t know where; and so when I come and tell Ahab, and he can`t find you, he will kill me. But I, your servant, have feared Yahweh from my youth.
+12. It will happen, as soon as I am gone from you, that the Spirit of Yahweh will carry you I don't know where; and so when I come and tell Ahab, and he can't find you, he will kill me. But I, your servant, have feared Yahweh from my youth.
 
-13. Wasn`t it told my lord what I did when Jezebel killed the prophets of Yahweh, how I hid one hundred men of Yahweh`s prophets with fifty to a cave, and fed them with bread and water?
+13. Wasn't it told my lord what I did when Jezebel killed the prophets of Yahweh, how I hid one hundred men of Yahweh's prophets with fifty to a cave, and fed them with bread and water?
 
-14. Now you say, `Go, tell your lord, "Behold, Elijah is here;"` and he will kill me."
+14. Now you say, 'Go, tell your lord, "Behold, Elijah is here;"' and he will kill me."
 
 15. Elijah said, "As Yahweh of Armies lives, before whom I stand, I will surely show myself to him today."
 
@@ -1335,15 +1335,15 @@
 
 17. It happened, when Ahab saw Elijah, that Ahab said to him, "Is that you, you troubler of Israel?"
 
-18. He answered, "I have not troubled Israel; but you, and your father`s house, in that you have forsaken the commandments of Yahweh, and you have followed the Baals.
+18. He answered, "I have not troubled Israel; but you, and your father's house, in that you have forsaken the commandments of Yahweh, and you have followed the Baals.
 
-19. Now therefore send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the prophets of Baal, and four hundred of the prophets of the Asherah, who eat at Jezebel`s table."
+19. Now therefore send, and gather to me all Israel to Mount Carmel, and four hundred fifty of the prophets of Baal, and four hundred of the prophets of the Asherah, who eat at Jezebel's table."
 
 20. So Ahab sent to all the children of Israel, and gathered the prophets together to Mount Carmel.
 
 21. Elijah came near to all the people, and said, "How long will you waver between the two sides? If Yahweh is God, follow him; but if Baal, then follow him."     The people answered him not a word.
 
-22. Then Elijah said to the people, "I, even I only, am left a prophet of Yahweh; but Baal`s prophets are four hundred fifty men.
+22. Then Elijah said to the people, "I, even I only, am left a prophet of Yahweh; but Baal's prophets are four hundred fifty men.
 
 23. Let them therefore give us two bulls; and let them choose one bull for themselves, and cut it in pieces, and lay it on the wood, and put no fire under; and I will dress the other bull, and lay it on the wood, and put no fire under it.
 
@@ -1379,7 +1379,7 @@
 
 39. When all the people saw it, they fell on their faces. They said, "Yahweh, he is God! Yahweh, he is God!"
 
-40. Elijah said to them, "Seize the prophets of Baal! Don`t let one of them escape!"     They seized them. Elijah brought them down to the brook Kishon, and killed them there.
+40. Elijah said to them, "Seize the prophets of Baal! Don't let one of them escape!"     They seized them. Elijah brought them down to the brook Kishon, and killed them there.
 
 41. Elijah said to Ahab, "Get up, eat and drink; for there is the sound of abundance of rain."
 
@@ -1387,7 +1387,7 @@
 
 43. He said to his servant, "Go up now, look toward the sea."     He went up, and looked, and said, "There is nothing."     He said, "Go again" seven times.
 
-44. It happened at the seventh time, that he said, "Behold, a small cloud, like a man`s hand, is rising out of the sea."     He said, "Go up, tell Ahab, `Get ready and go down, so that the rain doesn`t stop you.`"
+44. It happened at the seventh time, that he said, "Behold, a small cloud, like a man's hand, is rising out of the sea."     He said, "Go up, tell Ahab, 'Get ready and go down, so that the rain doesn't stop you.'"
 
 45. It happened in a little while, that the sky grew black with clouds and wind, and there was a great rain. Ahab rode, and went to Jezreel.
 
@@ -1398,11 +1398,11 @@
 
 1. Ahab told Jezebel all that Elijah had done, and how he had killed all the prophets with the sword.
 
-2. Then Jezebel send a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don`t make your life as the life of one of them by tomorrow about this time!"
+2. Then Jezebel send a messenger to Elijah, saying, "So let the gods do to me, and more also, if I don't make your life as the life of one of them by tomorrow about this time!"
 
 3. When he saw that, he arose, and went for his life, and came to Beersheba, which belongs to Judah, and left his servant there.
 
-4. But he himself went a day`s journey into the wilderness, and came and sat down under a juniper tree: and he requested for himself that he might die, and said, "It is enough. Now, O Yahweh, take away my life; for I am not better than my fathers."
+4. But he himself went a day's journey into the wilderness, and came and sat down under a juniper tree: and he requested for himself that he might die, and said, "It is enough. Now, O Yahweh, take away my life; for I am not better than my fathers."
 
 5. He lay down and slept under a juniper tree; and behold, an angel touched him, and said to him, "Arise and eat!"
 
@@ -1445,29 +1445,29 @@
 
 2. He sent messengers to Ahab king of Israel, into the city, and said to him, "Thus says Ben Hadad,
 
-3. `Your silver and your gold is mine. Your wives also and your children, even the best, are mine.`"
+3. 'Your silver and your gold is mine. Your wives also and your children, even the best, are mine.'"
 
 4. The king of Israel answered, "It is according to your saying, my lord, O king. I am yours, and all that I have."
 
-5. The messengers came again, and said, "Ben Hadad says, `I sent indeed to you, saying, "You shall deliver me your silver, and your gold, and your wives, and your children;
+5. The messengers came again, and said, "Ben Hadad says, 'I sent indeed to you, saying, "You shall deliver me your silver, and your gold, and your wives, and your children;
 
-6. but I will send my servants to you tomorrow about this time, and they shall search your house, and the houses of your servants; and it shall be, that whatever is pleasant in your eyes, they shall put it in their hand, and take it away."`"
+6. but I will send my servants to you tomorrow about this time, and they shall search your house, and the houses of your servants; and it shall be, that whatever is pleasant in your eyes, they shall put it in their hand, and take it away."'"
 
-7. Then the king of Israel called all the elders of the land, and said, "Please notice how this man seeks mischief; for he sent to me for my wives, and for my children, and for my silver, and for my gold; and I didn`t deny him."
+7. Then the king of Israel called all the elders of the land, and said, "Please notice how this man seeks mischief; for he sent to me for my wives, and for my children, and for my silver, and for my gold; and I didn't deny him."
 
-8. All the elders and all the people said to him, "Don`t listen, neither consent."
+8. All the elders and all the people said to him, "Don't listen, neither consent."
 
-9. Therefore he said to the messengers of Ben Hadad, "Tell my lord the king, `All that you sent for to your servant at the first I will do; but this thing I cannot do."     The messengers departed, and brought him back the message.
+9. Therefore he said to the messengers of Ben Hadad, "Tell my lord the king, 'All that you sent for to your servant at the first I will do; but this thing I cannot do."     The messengers departed, and brought him back the message.
 
 10. Ben Hadad sent to him, and said, "The gods do so to me, and more also, if the dust of Samaria shall suffice for handfuls for all the people who follow me."
 
-11. The king of Israel answered, "Tell him, `Don`t let him who puts on his armor brag like he who takes it off."
+11. The king of Israel answered, "Tell him, 'Don't let him who puts on his armor brag like he who takes it off."
 
 12. It happened, when Ben Hadad heard this message, as he was drinking, he and the kings, in the pavilions, that he said to his servants, "Prepare to attack!" They prepared to attack the city.
 
-13. Behold, a prophet came near to Ahab king of Israel, and said, "Thus says Yahweh, `Have you seen all this great multitude? Behold, I will deliver it into your hand this day; and you shall know that I am Yahweh.`"
+13. Behold, a prophet came near to Ahab king of Israel, and said, "Thus says Yahweh, 'Have you seen all this great multitude? Behold, I will deliver it into your hand this day; and you shall know that I am Yahweh.'"
 
-14. Ahab said, "By whom?"     He said, "Thus says Yahweh, `By the young men of the princes of the provinces.`"     Then he said, "Who shall begin the battle?"     He answered, "You."
+14. Ahab said, "By whom?"     He said, "Thus says Yahweh, 'By the young men of the princes of the provinces.'"     Then he said, "Who shall begin the battle?"     He answered, "You."
 
 15. Then he mustered the young men of the princes of the provinces, and they were two hundred and thirty-two. After them, he mustered all the people, even all the children of Israel, being seven thousand.
 
@@ -1495,7 +1495,7 @@
 
 27. The children of Israel were mustered, and were provisioned, and went against them. The children of Israel encamped before them like two little flocks of young goats; but the Syrians filled the country.
 
-28. A man of God came near and spoke to the king of Israel, and said, "Thus says Yahweh, `Because the Syrians have said, "Yahweh is a god of the hills, but he is not a god of the valleys;" therefore I will deliver all this great multitude into your hand, and you shall know that I am Yahweh.`"
+28. A man of God came near and spoke to the king of Israel, and said, "Thus says Yahweh, 'Because the Syrians have said, "Yahweh is a god of the hills, but he is not a god of the valleys;" therefore I will deliver all this great multitude into your hand, and you shall know that I am Yahweh.'"
 
 29. They encamped one over against the other seven days. So it was, that in the seventh day the battle was joined; and the children of Israel killed one hundred thousand footmen of the Syrians in one day.
 
@@ -1503,7 +1503,7 @@
 
 31. His servants said to him, "See now, we have heard that the kings of the house of Israel are merciful kings. Please let us put sackcloth on our bodies, and ropes on our heads, and go out to the king of Israel. Maybe he will save your life."
 
-32. So they put sackcloth on their bodies and ropes on their heads, and came to the king of Israel, and said, "Your servant Ben Hadad says, `Please let me live.`"     He said, "Is he still alive? He is my brother."
+32. So they put sackcloth on their bodies and ropes on their heads, and came to the king of Israel, and said, "Your servant Ben Hadad says, 'Please let me live.'"     He said, "Is he still alive? He is my brother."
 
 33. Now the men observed diligently, and hurried to take this phrase; and they said, "Your brother Ben Hadad."     Then he said, "Go, bring him."     Then Ben Hadad came out to him; and he caused him to come up into the chariot.
 
@@ -1517,13 +1517,13 @@
 
 38. So the prophet departed, and waited for the king by the way, and disguised himself with his headband over his eyes.
 
-39. As the king passed by, he cried to the king; and he said, "Your servant went out into the midst of the battle; and behold, a man turned aside, and brought a man to me, and said, `Guard this man! If by any means he be missing, then your life shall be for his life, or else you shall pay a talent of silver.`
+39. As the king passed by, he cried to the king; and he said, "Your servant went out into the midst of the battle; and behold, a man turned aside, and brought a man to me, and said, 'Guard this man! If by any means he be missing, then your life shall be for his life, or else you shall pay a talent of silver.'
 
 40. As your servant was busy here and there, he was gone."     The king of Israel said to him, "So your judgment shall be; yourself have decided it."
 
 41. He hurried, and took the headband away from his eyes; and the king of Israel recognized that he was of the prophets.
 
-42. He said to him, "Thus says Yahweh, `Because you have let go out of your hand the man whom I had devoted to destruction, therefore your life shall go for his life, and your people for his people.`"
+42. He said to him, "Thus says Yahweh, 'Because you have let go out of your hand the man whom I had devoted to destruction, therefore your life shall go for his life, and your people for his people.'"
 
 43. The king of Israel went to his house sullen and angry, and came to Samaria.
 
@@ -1540,15 +1540,15 @@
 
 5. But Jezebel his wife came to him, and said to him, "Why is your spirit so sad, that you eat no bread?"
 
-6. He said to her, "Because I spoke to Naboth the Jezreelite, and said to him, `Give me your vineyard for money; or else, if it pleases you, I will give you another vineyard for it.` He answered, `I will not give you my vineyard.`"
+6. He said to her, "Because I spoke to Naboth the Jezreelite, and said to him, 'Give me your vineyard for money; or else, if it pleases you, I will give you another vineyard for it.' He answered, 'I will not give you my vineyard.'"
 
 7. Jezebel his wife said to him, "Do you now govern the kingdom of Israel? Arise, and eat bread, and let your heart be merry. I will give you the vineyard of Naboth the Jezreelite."
 
-8. So she wrote letters in Ahab`s name, and sealed them with his seal, and sent the letters to the elders and to the nobles who were in his city, who lived with Naboth.
+8. So she wrote letters in Ahab's name, and sealed them with his seal, and sent the letters to the elders and to the nobles who were in his city, who lived with Naboth.
 
 9. She wrote in the letters, saying, "Proclaim a fast, and set Naboth on high among the people.
 
-10. Set two men, base fellows, before him, and let them testify against him, saying, `You cursed God and the king!` Then carry him out, and stone him to death."
+10. Set two men, base fellows, before him, and let them testify against him, saying, 'You cursed God and the king!' Then carry him out, and stone him to death."
 
 11. The men of his city, even the elders and the nobles who lived in his city, did as Jezebel had sent to them, according as it was written in the letters which she had sent to them.
 
@@ -1566,7 +1566,7 @@
 
 18. "Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Behold, he is in the vineyard of Naboth, where he has gone down to take possession of it.
 
-19. You shall speak to him, saying, `Thus says Yahweh, "Have you killed and also taken possession?"` You shall speak to him, saying, `Thus says Yahweh, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."`"
+19. You shall speak to him, saying, 'Thus says Yahweh, "Have you killed and also taken possession?"' You shall speak to him, saying, 'Thus says Yahweh, "In the place where dogs licked the blood of Naboth, dogs will lick your blood, even yours."'"
 
 20. Ahab said to Elijah, "Have you found me, my enemy?"     He answered, "I have found you, because you have sold yourself to do that which is evil in the sight of Yahweh.
 
@@ -1586,7 +1586,7 @@
 
 28. The word of Yahweh came to Elijah the Tishbite, saying,
 
-29. "See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the evil in his days; but in his son`s days will I bring the evil on his house."
+29. "See how Ahab humbles himself before me? Because he humbles himself before me, I will not bring the evil in his days; but in his son's days will I bring the evil on his house."
 
 
 ## Chapter 22
@@ -1595,7 +1595,7 @@
 
 2. It happened in the third year, that Jehoshaphat the king of Judah came down to the king of Israel.
 
-3. The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we are still, and don`t take it out of the hand of the king of Syria?"
+3. The king of Israel said to his servants, "You know that Ramoth Gilead is ours, and we are still, and don't take it out of the hand of the king of Syria?"
 
 4. He said to Jehoshaphat, "Will you go with me to battle to Ramoth Gilead?"     Jehoshaphat said to the king of Israel, "I am as you are, my people as your people, my horses as your horses."
 
@@ -1603,15 +1603,15 @@
 
 6. Then the king of Israel gathered the prophets together, about four hundred men, and said to them, "Shall I go against Ramoth Gilead to battle, or shall I forbear?"     They said, "Go up; for the Lord will deliver it into the hand of the king."
 
-7. But Jehoshaphat said, "Isn`t there here a prophet of Yahweh, that we may inquire of him?"
+7. But Jehoshaphat said, "Isn't there here a prophet of Yahweh, that we may inquire of him?"
 
-8. The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of Yahweh, Micaiah the son of Imlah; but I hate him; for he does not prophesy good concerning me, but evil."     Jehoshaphat said, "Don`t let the king say so."
+8. The king of Israel said to Jehoshaphat, "There is yet one man by whom we may inquire of Yahweh, Micaiah the son of Imlah; but I hate him; for he does not prophesy good concerning me, but evil."     Jehoshaphat said, "Don't let the king say so."
 
 9. Then the king of Israel called an officer, and said, "Quickly get Micaiah the son of Imlah."
 
 10. Now the king of Israel and Jehoshaphat the king of Judah were sitting each on his throne, arrayed in their robes, in an open place at the entrance of the gate of Samaria; and all the prophets were prophesying before them.
 
-11. Zedekiah the son of Chenaanah made him horns of iron, and said, "Thus says Yahweh, `With these you shall push the Syrians, until they are consumed.`"
+11. Zedekiah the son of Chenaanah made him horns of iron, and said, "Thus says Yahweh, 'With these you shall push the Syrians, until they are consumed.'"
 
 12. All the prophets prophesied so, saying, "Go up to Ramoth Gilead, and prosper; for Yahweh will deliver it into the hand of the king."
 
@@ -1623,17 +1623,17 @@
 
 16. The king said to him, "How many times do I have to adjure you that you speak to me nothing but the truth in the name of Yahweh?"
 
-17. He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. Yahweh said, `These have no master. Let them each return to his house in peace.`"
+17. He said, "I saw all Israel scattered on the mountains, as sheep that have no shepherd. Yahweh said, 'These have no master. Let them each return to his house in peace.'"
 
-18. The king of Israel said to Jehoshaphat, "Didn`t I tell you that he would not prophesy good concerning me, but evil?"
+18. The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but evil?"
 
 19. Micaiah said, "Therefore hear the word of Yahweh. I saw Yahweh sitting on his throne, and all the army of heaven standing by him on his right hand and on his left.
 
-20. Yahweh said, `Who shall entice Ahab, that he may go up and fall at Ramoth Gilead?` One said one thing; and another said another.
+20. Yahweh said, 'Who shall entice Ahab, that he may go up and fall at Ramoth Gilead?' One said one thing; and another said another.
 
-21. A spirit came out and stood before Yahweh, and said, `I will entice him.`
+21. A spirit came out and stood before Yahweh, and said, 'I will entice him.'
 
-22. Yahweh said to him, `How?` He said, `I will go out and will be a lying spirit in the mouth of all his prophets.` He said, `You will entice him, and will also prevail. Go out and do so.`
+22. Yahweh said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his prophets.' He said, 'You will entice him, and will also prevail. Go out and do so.'
 
 23. Now therefore, behold, Yahweh has put a lying spirit in the mouth of all these your prophets; and Yahweh has spoken evil concerning you."
 
@@ -1641,9 +1641,9 @@
 
 25. Micaiah said, "Behold, you will see on that day, when you go into an inner chamber to hide yourself."
 
-26. The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king`s son.
+26. The king of Israel said, "Take Micaiah, and carry him back to Amon the governor of the city, and to Joash the king's son.
 
-27. Say, `Thus says the king, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace."`"
+27. Say, 'Thus says the king, "Put this fellow in the prison, and feed him with bread of affliction and with water of affliction, until I come in peace."'"
 
 28. Micaiah said, "If you return at all in peace, Yahweh has not spoken by me." He said, "Listen, all you people!"
 
@@ -1667,25 +1667,25 @@
 
 38. They washed the chariot by the pool of Samaria; and the dogs licked up his blood where the prostitutes washed themselves; according to the word of Yahweh which he spoke.
 
-39. Now the rest of the acts of Ahab, and all that he did, and the ivory house which he built, and all the cities that he built, aren`t they written in the book of the chronicles of the kings of Israel?
+39. Now the rest of the acts of Ahab, and all that he did, and the ivory house which he built, and all the cities that he built, aren't they written in the book of the chronicles of the kings of Israel?
 
 40. So Ahab slept with his fathers; and Ahaziah his son reigned in his place.
 
 41. Jehoshaphat the son of Asa began to reign over Judah in the fourth year of Ahab king of Israel.
 
-42. Jehoshaphat was thirty-five years old when he began to reign; and he reigned twenty-five years in Jerusalem. His mother`s name was Azubah the daughter of Shilhi.
+42. Jehoshaphat was thirty-five years old when he began to reign; and he reigned twenty-five years in Jerusalem. His mother's name was Azubah the daughter of Shilhi.
 
-43. He walked in all the way of Asa his father; He didn`t turn aside from it, doing that which was right in the eyes of Yahweh: however the high places were not taken away; the people still sacrificed and burnt incense in the high places.
+43. He walked in all the way of Asa his father; He didn't turn aside from it, doing that which was right in the eyes of Yahweh: however the high places were not taken away; the people still sacrificed and burnt incense in the high places.
 
 44. Jehoshaphat made peace with the king of Israel.
 
-45. Now the rest of the acts of Jehoshaphat, and his might that he showed, and how he warred, aren`t they written in the book of the chronicles of the kings of Judah?
+45. Now the rest of the acts of Jehoshaphat, and his might that he showed, and how he warred, aren't they written in the book of the chronicles of the kings of Judah?
 
 46. The remnant of the sodomites, that remained in the days of his father Asa, he put away out of the land.
 
 47. There was no king in Edom: a deputy was king.
 
-48. Jehoshaphat made ships of Tarshish to go to Ophir for gold: but they didn`t go; for the ships were broken at Ezion Geber.
+48. Jehoshaphat made ships of Tarshish to go to Ophir for gold: but they didn't go; for the ships were broken at Ezion Geber.
 
 49. Then Ahaziah the son of Ahab said to Jehoshaphat, "Let my servants go with your servants in the ships." But Jehoshaphat would not.
 

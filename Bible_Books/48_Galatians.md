@@ -14,33 +14,33 @@
 
 6. I marvel that you are so quickly deserting him who called you in the grace of Christ to a different "good news";
 
-7. and there isn`t another "good news." Only there are some who trouble you, and want to pervert the Good News of Christ.
+7. and there isn't another "good news." Only there are some who trouble you, and want to pervert the Good News of Christ.
 
 8. But even though we, or an angel from heaven, should preach to you any "good news" other than that which we preached to you, let him be cursed.
 
 9. As we have said before, so I now say again: if any man preaches to you any "good news" other than that which you received, let him be cursed.
 
-10. For am I now seeking the favor of men, or of God? Or am I striving to please men? For if I were still pleasing men, I wouldn`t be a servant of Christ.
+10. For am I now seeking the favor of men, or of God? Or am I striving to please men? For if I were still pleasing men, I wouldn't be a servant of Christ.
 
 11. But I make known to you, brothers, concerning the Good News which was preached by me, that it is not according to man.
 
 12. For neither did I receive it from man, nor was I taught it, but it came to me through revelation of Jesus Christ.
 
-13. For you have heard of my way of living in time past in the Jews` religion, how that beyond measure I persecuted the assembly of God, and ravaged it.
+13. For you have heard of my way of living in time past in the Jews' religion, how that beyond measure I persecuted the assembly of God, and ravaged it.
 
-14. I advanced in the Jews` religion beyond many of my own age among my countrymen, being more exceedingly zealous for the traditions of my fathers.
+14. I advanced in the Jews' religion beyond many of my own age among my countrymen, being more exceedingly zealous for the traditions of my fathers.
 
-15. But when it was the good pleasure of God, who separated me from my mother`s womb, and called me through his grace,
+15. But when it was the good pleasure of God, who separated me from my mother's womb, and called me through his grace,
 
-16. to reveal his Son in me, that I might preach him among the Gentiles, I didn`t immediately confer with flesh and blood,
+16. to reveal his Son in me, that I might preach him among the Gentiles, I didn't immediately confer with flesh and blood,
 
 17. nor did I go up to Jerusalem to those who were apostles before me, but I went away into Arabia. Then I returned to Damascus.
 
 18. Then after three years I went up to Jerusalem to visit Peter, and stayed with him fifteen days.
 
-19. But of the other apostles I saw no one, except James, the Lord`s brother.
+19. But of the other apostles I saw no one, except James, the Lord's brother.
 
-20. Now about the things which I write to you, behold, before God, I`m not lying.
+20. Now about the things which I write to you, behold, before God, I'm not lying.
 
 21. Then I came to the regions of Syria and Cilicia.
 
@@ -63,7 +63,7 @@
 
 5. to whom we gave no place in the way of subjection, not for an hour, that the truth of the Good News might continue with you.
 
-6. But from those who were reputed to be important (whatever they were, it makes no difference to me; God doesn`t show partiality to man)--they, I say, who were respected imparted nothing to me,
+6. But from those who were reputed to be important (whatever they were, it makes no difference to me; God doesn't show partiality to man)--they, I say, who were respected imparted nothing to me,
 
 7. but to the contrary, when they saw that I had been entrusted with the Good News for the uncircumcision, even as Peter with the Good News for the circumcision
 
@@ -79,7 +79,7 @@
 
 13. And the rest of the Jews joined him in his hypocrisy; so that even Barnabas was carried away with their hypocrisy.
 
-14. But when I saw that they didn`t walk uprightly according to the truth of the Good News, I said to Peter before them all, "If you, being a Jew, live as the Gentiles do, and not as the Jews do, why do you compel the Gentiles to live as the Jews do?
+14. But when I saw that they didn't walk uprightly according to the truth of the Good News, I said to Peter before them all, "If you, being a Jew, live as the Gentiles do, and not as the Jews do, why do you compel the Gentiles to live as the Jews do?
 
 15. "We, being Jews by nature, and not Gentile sinners,
 
@@ -93,7 +93,7 @@
 
 20. I have been crucified with Christ, and it is no longer I that live, but Christ living in me. That life which I now live in the flesh, I live by faith in the Son of God, who loved me, and gave himself up for me.
 
-21. I don`t make void the grace of God. For if righteousness is through the law, then Christ died for nothing!"
+21. I don't make void the grace of God. For if righteousness is through the law, then Christ died for nothing!"
 
 
 ## Chapter 3
@@ -116,7 +116,7 @@
 
 9. So then, those who are of faith are blessed with the faithful Abraham.
 
-10. For as many as are of the works of the law are under a curse. For it is written, "Cursed is everyone who doesn`t continue in all things that are written in the book of the law, to do them."
+10. For as many as are of the works of the law are under a curse. For it is written, "Cursed is everyone who doesn't continue in all things that are written in the book of the law, to do them."
 
 11. Now that no man is justified by the law before God is evident, for, "The righteous will live by faith."
 
@@ -126,9 +126,9 @@
 
 14. that the blessing of Abraham might come on the Gentiles through Christ Jesus; that we might receive the promise of the Spirit through faith.
 
-15. Brothers, speaking of human terms, though it is only a man`s covenant, yet when it has been confirmed, no one makes it void, or adds to it.
+15. Brothers, speaking of human terms, though it is only a man's covenant, yet when it has been confirmed, no one makes it void, or adds to it.
 
-16. Now the promises were spoken to Abraham and to his seed. He doesn`t say, "To seeds," as of many, but as of one, "To your seed," which is Christ.
+16. Now the promises were spoken to Abraham and to his seed. He doesn't say, "To seeds," as of many, but as of one, "To your seed," which is Christ.
 
 17. Now I say this. A covenant confirmed beforehand by God in Christ, the law, which came four hundred thirty years after, does not annul, so as to make the promise of no effect.
 
@@ -154,7 +154,7 @@
 
 28. There is neither Jew nor Greek, there is neither slave nor free man, there is neither male nor female; for you are all one in Christ Jesus.
 
-29. If you are Christ`s, then you are Abraham`s seed and heirs according to promise.
+29. If you are Christ's, then you are Abraham's seed and heirs according to promise.
 
 
 ## Chapter 4
@@ -185,7 +185,7 @@
 
 13. but you know that because of weakness of the flesh I preached the Good News to you the first time.
 
-14. That which was a temptation to you in my flesh, you didn`t despise nor reject; but you received me as an angel of God, even as Christ Jesus.
+14. That which was a temptation to you in my flesh, you didn't despise nor reject; but you received me as an angel of God, even as Christ Jesus.
 
 15. What was the blessing you enjoyed? For I testify to you that, if possible, you would have plucked out your eyes and given them to me.
 
@@ -199,7 +199,7 @@
 
 20. but I could wish to be present with you now, and to change my tone, for I am perplexed about you.
 
-21. Tell me, you that desire to be under the law, don`t you listen to the law?
+21. Tell me, you that desire to be under the law, don't you listen to the law?
 
 22. For it is written that Abraham had two sons, one by the handmaid, and one by the free woman.
 
@@ -211,7 +211,7 @@
 
 26. But the Jerusalem that is above is free, which is the mother of us all.
 
-27. For it is written, "Rejoice, you barren who don`t bear.    Break forth and shout, you that don`t travail.    For more are the children of the desolate than of her who has a       husband."
+27. For it is written, "Rejoice, you barren who don't bear.    Break forth and shout, you that don't travail.    For more are the children of the desolate than of her who has a       husband."
 
 28. Now we, brothers, as Isaac was, are children of promise.
 
@@ -224,7 +224,7 @@
 
 ## Chapter 5
 
-1. Stand firm therefore in the liberty by which Christ has made us free, and don`t be entangled again with a yoke of bondage.
+1. Stand firm therefore in the liberty by which Christ has made us free, and don't be entangled again with a yoke of bondage.
 
 2. Behold, I, Paul, tell you that if you receive circumcision, Christ will profit you nothing.
 
@@ -248,13 +248,13 @@
 
 12. I wish that those who disturb you would cut themselves off.
 
-13. For you, brothers, were called for freedom. Only don`t use your freedom for gain to the flesh, but through love be servants to one another.
+13. For you, brothers, were called for freedom. Only don't use your freedom for gain to the flesh, but through love be servants to one another.
 
 14. For the whole law is fulfilled in one word, in this: "You shall love your neighbor as yourself."
 
-15. But if you bite and devour one another, be careful that you don`t consume one another.
+15. But if you bite and devour one another, be careful that you don't consume one another.
 
-16. But I say, walk by the Spirit, and you won`t fulfill the lust of the flesh.
+16. But I say, walk by the Spirit, and you won't fulfill the lust of the flesh.
 
 17. For the flesh lusts against the Spirit, and the Spirit against the flesh; and these are contrary to one another, that you may not do the things that you desire.
 
@@ -272,16 +272,16 @@
 
 24. Those who belong to Christ have crucified the flesh with its passions and lusts.
 
-25. If we live by the Spirit, let`s also walk by the Spirit.
+25. If we live by the Spirit, let's also walk by the Spirit.
 
-26. Let`s not become conceited, provoking one another, and envying one another.
+26. Let's not become conceited, provoking one another, and envying one another.
 
 
 ## Chapter 6
 
-1. Brothers, even if a man is caught in some fault, you who are spiritual must restore such a one in a spirit of gentleness; looking to yourself so that you also aren`t tempted.
+1. Brothers, even if a man is caught in some fault, you who are spiritual must restore such a one in a spirit of gentleness; looking to yourself so that you also aren't tempted.
 
-2. Bear one another`s burdens, and so fulfill the law of Christ.
+2. Bear one another's burdens, and so fulfill the law of Christ.
 
 3. For if a man thinks himself to be something when he is nothing, he deceives himself.
 
@@ -291,25 +291,25 @@
 
 6. But let him who is taught in the word share all good things with him who teaches.
 
-7. Don`t be deceived. God is not mocked, for whatever a man sows, that he will also reap.
+7. Don't be deceived. God is not mocked, for whatever a man sows, that he will also reap.
 
 8. For he who sows to his own flesh will from the flesh reap corruption. But he who sows to the Spirit will from the Spirit reap eternal life.
 
-9. Let us not be weary in doing good, for we will reap in due season, if we don`t give up.
+9. Let us not be weary in doing good, for we will reap in due season, if we don't give up.
 
-10. So then, as we have opportunity, let`s do what is good toward all men, and especially toward those who are of the household of the faith.
+10. So then, as we have opportunity, let's do what is good toward all men, and especially toward those who are of the household of the faith.
 
 11. See with what large letters I write to you with my own hand.
 
 12. As many as desire to look good in the flesh, they compel you to be circumcised; only that they may not be persecuted for the cross of Christ.
 
-13. For even they who receive circumcision don`t keep the law themselves, but they desire to have you circumcised, that they may boast in your flesh.
+13. For even they who receive circumcision don't keep the law themselves, but they desire to have you circumcised, that they may boast in your flesh.
 
 14. But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.
 
 15. For in Christ Jesus neither is circumcision anything, nor uncircumcision, but a new creation.
 
-16. As many as walk by this rule, peace and mercy be on them, and on God`s Israel.
+16. As many as walk by this rule, peace and mercy be on them, and on God's Israel.
 
 17. From now on, let no one cause me any trouble, for I bear the marks of the Lord Jesus branded on my body.
 

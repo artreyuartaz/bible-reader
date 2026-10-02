@@ -25,7 +25,7 @@
 
 ## Chapter 2
 
-1. For you yourselves know, brothers, our visit to you wasn`t in vain,
+1. For you yourselves know, brothers, our visit to you wasn't in vain,
 
 2. but having suffered before and been shamefully treated, as you know, at Philippi, we grew bold in our God to tell you the Good News of God in much conflict.
 
@@ -53,7 +53,7 @@
 
 14. For you, brothers, became imitators of the assemblies of God which are in Judea in Christ Jesus; for you also suffered the same things from your own countrymen, even as they did from the Jews;
 
-15. who killed both the Lord Jesus and their own prophets, and drove us out, and didn`t please God, and are contrary to all men;
+15. who killed both the Lord Jesus and their own prophets, and drove us out, and didn't please God, and are contrary to all men;
 
 16. forbidding us to speak to the Gentiles that they may be saved; to fill up their sins always. But wrath has come on them to the uttermost.
 
@@ -61,22 +61,22 @@
 
 18. because we wanted to come to you--indeed, I, Paul, once and again--but Satan hindered us.
 
-19. For what is our hope, or joy, or crown of rejoicing? Isn`t it even you, before our Lord Jesus at his coming?
+19. For what is our hope, or joy, or crown of rejoicing? Isn't it even you, before our Lord Jesus at his coming?
 
 20. For you are our glory and our joy.
 
 
 ## Chapter 3
 
-1. Therefore, when we couldn`t stand it any longer, we thought it good to be left behind at Athens alone,
+1. Therefore, when we couldn't stand it any longer, we thought it good to be left behind at Athens alone,
 
-2. and sent Timothy, our brother and God`s servant in the Good News of Christ, to establish you, and to comfort you concerning your faith;
+2. and sent Timothy, our brother and God's servant in the Good News of Christ, to establish you, and to comfort you concerning your faith;
 
 3. that no one be moved by these afflictions. For you know that we are appointed to this task.
 
 4. For most certainly, when we were with you, we told you beforehand that we are to suffer affliction, even as it happened, and you know.
 
-5. For this cause I also, when I couldn`t stand it any longer, sent that I might know your faith, for fear that by any means the tempter had tempted you, and our labor would have been in vain.
+5. For this cause I also, when I couldn't stand it any longer, sent that I might know your faith, for fear that by any means the tempter had tempted you, and our labor would have been in vain.
 
 6. But when Timothy came just now to us from you, and brought us glad news of your faith and love, and that you have good memories of us always, longing to see us, even as we also long to see you;
 
@@ -105,13 +105,13 @@
 
 4. that each one of you know how to possess himself of his own vessel in sanctification and honor,
 
-5. not in the passion of lust, even as the Gentiles who don`t know God;
+5. not in the passion of lust, even as the Gentiles who don't know God;
 
 6. that no one should take advantage of and wrong a brother or sister in this matter; because the Lord is an avenger in all these things, as also we forewarned you and testified.
 
 7. For God called us not for uncleanness, but in sanctification.
 
-8. Therefore he who rejects this doesn`t reject man, but God, who has also given his Holy Spirit to you.
+8. Therefore he who rejects this doesn't reject man, but God, who has also given his Holy Spirit to you.
 
 9. But concerning brotherly love, you have no need that one write to you. For you yourselves are taught by God to love one another,
 
@@ -121,13 +121,13 @@
 
 12. that you may walk properly toward those who are outside, and may have need of nothing.
 
-13. But we don`t want you to be ignorant, brothers, concerning those who have fallen asleep, so that you don`t grieve like the rest, who have no hope.
+13. But we don't want you to be ignorant, brothers, concerning those who have fallen asleep, so that you don't grieve like the rest, who have no hope.
 
 14. For if we believe that Jesus died and rose again, even so God will bring with him those who have fallen asleep in Jesus.
 
 15. For this we tell you by the word of the Lord, that we who are alive, who are left to the coming of the Lord, will in no way precede those who have fallen asleep.
 
-16. For the Lord himself will descend from heaven with a shout, with the voice of the archangel, and with God`s trumpet. The dead in Christ will rise first,
+16. For the Lord himself will descend from heaven with a shout, with the voice of the archangel, and with God's trumpet. The dead in Christ will rise first,
 
 17. then we who are alive, who are left, will be caught up together with them in the clouds, to meet the Lord in the air. So we will be with the Lord forever.
 
@@ -142,17 +142,17 @@
 
 3. For when they are saying, "Peace and safety," then sudden destruction will come on them, like birth pains on a pregnant woman; and they will in no way escape.
 
-4. But you, brothers, aren`t in darkness, that the day should overtake you like a thief.
+4. But you, brothers, aren't in darkness, that the day should overtake you like a thief.
 
-5. You are all children of light, and children of the day. We don`t belong to the night, nor to darkness,
+5. You are all children of light, and children of the day. We don't belong to the night, nor to darkness,
 
-6. so then let`s not sleep, as the rest do, but let`s watch and be sober.
+6. so then let's not sleep, as the rest do, but let's watch and be sober.
 
 7. For those who sleep, sleep in the night, and those who are drunk are drunk in the night.
 
 8. But let us, since we belong to the day, be sober, putting on the breastplate of faith and love, and, for a helmet, the hope of salvation.
 
-9. For God didn`t appoint us to wrath, but to the obtaining of salvation through our Lord Jesus Christ,
+9. For God didn't appoint us to wrath, but to the obtaining of salvation through our Lord Jesus Christ,
 
 10. who died for us, that, whether we wake or sleep, we should live together with him.
 
@@ -160,7 +160,7 @@
 
 12. But we beg you, brothers, to know those who labor among you, and are over you in the Lord, and admonish you,
 
-13. and to respect and honor them in love for their work`s sake.     Be at peace among yourselves.
+13. and to respect and honor them in love for their work's sake.     Be at peace among yourselves.
 
 14. We exhort you, brothers, admonish the disorderly, encourage the fainthearted, support the weak, be patient toward all.
 
@@ -172,9 +172,9 @@
 
 18. In everything give thanks, for this is the will of God in Christ Jesus toward you.
 
-19. Don`t quench the Spirit.
+19. Don't quench the Spirit.
 
-20. Don`t despise prophesies.
+20. Don't despise prophesies.
 
 21. Test all things, and hold firmly that which is good.
 

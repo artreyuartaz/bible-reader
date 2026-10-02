@@ -2,9 +2,9 @@
 
 ## Chapter 1
 
-1. Blessed is the man who doesn`t walk in the counsel of the wicked,    nor stand in the way of sinners,    nor sit in the seat of scoffers;
+1. Blessed is the man who doesn't walk in the counsel of the wicked,    nor stand in the way of sinners,    nor sit in the seat of scoffers;
 
-2. but his delight is in Yahweh`s law.    On his law he meditates day and night.
+2. but his delight is in Yahweh's law.    On his law he meditates day and night.
 
 3. He will be like a tree planted by the streams of water,    that brings forth its fruit in its season,    whose leaf also does not wither.    Whatever he does shall prosper.
 
@@ -21,7 +21,7 @@
 
 2. The kings of the earth take a stand,    and the rulers take counsel together,    against Yahweh, and against his Anointed, saying,
 
-3. "Let`s break their bonds apart,    and cast their cords from us."
+3. "Let's break their bonds apart,    and cast their cords from us."
 
 4. He who sits in the heavens will laugh.    The Lord will have them in derision.
 
@@ -33,7 +33,7 @@
 
 8. Ask of me, and I will give the nations for your inheritance,    the uttermost parts of the earth for your possession.
 
-9. You shall break them with a rod of iron.    You shall dash them in pieces like a potter`s vessel."
+9. You shall break them with a rod of iron.    You shall dash them in pieces like a potter's vessel."
 
 10. Now therefore be wise, you kings.    Be instructed, you judges of the earth.
 
@@ -69,7 +69,7 @@
 
 3. But know that Yahweh has set apart for himself him who is godly:    Yahweh will hear when I call to him.
 
-4. Stand in awe, and don`t sin.    Search your own heart on your bed, and be still. Selah.
+4. Stand in awe, and don't sin.    Search your own heart on your bed, and be still. Selah.
 
 5. Offer the sacrifices of righteousness.    Put your trust in Yahweh.
 
@@ -88,7 +88,7 @@
 
 3. Yahweh, in the morning you shall hear my voice.    In the morning I will lay my requests before you, and will watch       expectantly.
 
-4. For you are not a God who has pleasure in wickedness.    Evil can`t live with you.
+4. For you are not a God who has pleasure in wickedness.    Evil can't live with you.
 
 5. The arrogant shall not stand in your sight.    You hate all workers of iniquity.
 
@@ -109,13 +109,13 @@
 
 ## Chapter 6
 
-1. Yahweh, don`t rebuke me in your anger,    neither discipline me in your wrath.
+1. Yahweh, don't rebuke me in your anger,    neither discipline me in your wrath.
 
 2. Have mercy on me, Yahweh, for I am faint.    Yahweh, heal me, for my bones are troubled.
 
 3. My soul is also in great anguish.    But you, Yahweh--how long?
 
-4. Return, Yahweh. Deliver my soul,    and save me for your loving kindness` sake.
+4. Return, Yahweh. Deliver my soul,    and save me for your loving kindness' sake.
 
 5. For in death there is no memory of you.    In Sheol, who shall give you thanks?
 
@@ -154,7 +154,7 @@
 
 11. God is a righteous judge,    yes, a God who has indignation every day.
 
-12. If a man doesn`t relent, he will sharpen his sword;    he has bent and strung his bow.
+12. If a man doesn't relent, he will sharpen his sword;    he has bent and strung his bow.
 
 13. He has also prepared for himself the instruments of death.    He makes ready his flaming arrows.
 
@@ -212,7 +212,7 @@
 
 11. Sing praises to Yahweh, who dwells in Zion,    and declare among the people what he has done.
 
-12. For he who avenges blood remembers them.    He doesn`t forget the cry of the afflicted.
+12. For he who avenges blood remembers them.    He doesn't forget the cry of the afflicted.
 
 13. Have mercy on me, Yahweh.    See my affliction by those who hate me, and lift me up from the gates of death;
 
@@ -226,7 +226,7 @@
 
 18. For the needy shall not always be forgotten,    nor the hope of the poor perish forever.
 
-19. Arise, Yahweh! Don`t let man prevail.    Let the nations be judged in your sight.
+19. Arise, Yahweh! Don't let man prevail.    Let the nations be judged in your sight.
 
 20. Put them in fear, Yahweh.    Let the nations know that they are only men. Selah.    Psalm 10
 
@@ -237,7 +237,7 @@
 
 2. In arrogance, the wicked hunt down the weak.    They are caught in the schemes that they devise.
 
-3. For the wicked boasts of his heart`s cravings.    He blesses the greedy, and condemns Yahweh.
+3. For the wicked boasts of his heart's cravings.    He blesses the greedy, and condemns Yahweh.
 
 4. The wicked, in the pride of his face,    has no room in his thoughts for God.
 
@@ -255,9 +255,9 @@
 
 11. He says in his heart, "God has forgotten.    He hides his face.    He will never see it."
 
-12. Arise, Yahweh!    God, lift up your hand!    Don`t forget the helpless.
+12. Arise, Yahweh!    God, lift up your hand!    Don't forget the helpless.
 
-13. Why does the wicked person condemn God,    and say in his heart, "God won`t call me into account?"
+13. Why does the wicked person condemn God,    and say in his heart, "God won't call me into account?"
 
 14. But you do see trouble and grief.    You consider it to take it into your hand.    You help the victim and the fatherless.
 
@@ -329,7 +329,7 @@
 
 3. They have all gone aside.    They have together become corrupt.    There is none who does good, no, not one.
 
-4. Have all the workers of iniquity no knowledge,    who eat up my people as they eat bread,    and don`t call on Yahweh?
+4. Have all the workers of iniquity no knowledge,    who eat up my people as they eat bread,    and don't call on Yahweh?
 
 5. There they were in great fear,    for God is in the generation of the righteous.
 
@@ -344,11 +344,11 @@
 
 2. He who walks blamelessly does what is right,    and speaks truth in his heart;
 
-3. He who doesn`t slander with his tongue,    nor does evil to his friend,    nor casts slurs against his fellow man;
+3. He who doesn't slander with his tongue,    nor does evil to his friend,    nor casts slurs against his fellow man;
 
-4. In whose eyes a vile man is despised,    but who honors those who fear Yahweh;    he who keeps an oath even when it hurts, and doesn`t change;
+4. In whose eyes a vile man is despised,    but who honors those who fear Yahweh;    he who keeps an oath even when it hurts, and doesn't change;
 
-5. he who doesn`t lend out his money for usury,    nor take a bribe against the innocent.  He who does these things shall never be shaken.   Psalm 16  A Poem by David.
+5. he who doesn't lend out his money for usury,    nor take a bribe against the innocent.  He who does these things shall never be shaken.   Psalm 16  A Poem by David.
 
 
 ## Chapter 16
@@ -378,7 +378,7 @@
 
 ## Chapter 17
 
-1. Hear, Yahweh, my righteous plea;    Give ear to my prayer, that doesn`t go out of deceitful lips.
+1. Hear, Yahweh, my righteous plea;    Give ear to my prayer, that doesn't go out of deceitful lips.
 
 2. Let my sentence come forth from your presence.    Let your eyes look on equity.
 
@@ -453,7 +453,7 @@
 
 21. For I have kept the ways of Yahweh,    and have not wickedly departed from my God.
 
-22. For all his ordinances were before me.    I didn`t put away his statutes from me.
+22. For all his ordinances were before me.    I didn't put away his statutes from me.
 
 23. I was also blameless with him.    I kept myself from my iniquity.
 
@@ -475,7 +475,7 @@
 
 32. the God who arms me with strength, and makes my way perfect?
 
-33. He makes my feet like deer`s feet,    and sets me on my high places.
+33. He makes my feet like deer's feet,    and sets me on my high places.
 
 34. He teaches my hands to war,    so that my arms bend a bow of bronze.
 
@@ -491,7 +491,7 @@
 
 40. You have also made my enemies turn their backs to me,    that I might cut off those who hate me.
 
-41. They cried, but there was none to save;    even to Yahweh, but he didn`t answer them.
+41. They cried, but there was none to save;    even to Yahweh, but he didn't answer them.
 
 42. Then I beat them small as the dust before the wind.    I cast them out as the mire of the streets.
 
@@ -526,11 +526,11 @@
 
 6. His going forth is from the end of the heavens,    his circuit to its ends;    There is nothing hidden from its heat.
 
-7. Yahweh`s law is perfect, restoring the soul.    Yahweh`s testimony is sure, making wise the simple.
+7. Yahweh's law is perfect, restoring the soul.    Yahweh's testimony is sure, making wise the simple.
 
-8. Yahweh`s precepts are right, rejoicing the heart.    Yahweh`s commandment is pure, enlightening the eyes.
+8. Yahweh's precepts are right, rejoicing the heart.    Yahweh's commandment is pure, enlightening the eyes.
 
-9. The fear of Yahweh is clean, enduring forever.    Yahweh`s ordinances are true, and righteous altogether.
+9. The fear of Yahweh is clean, enduring forever.    Yahweh's ordinances are true, and righteous altogether.
 
 10. More to be desired are they than gold, yes, than much fine gold;    sweeter also than honey and the extract of the honeycomb.
 
@@ -551,7 +551,7 @@
 
 3. remember all your offerings,    and accept your burnt sacrifice. Selah.
 
-4. May He grant you your heart`s desire,    and fulfill all your counsel.
+4. May He grant you your heart's desire,    and fulfill all your counsel.
 
 5. We will triumph in your salvation.    In the name of our God, we will set up our banners.    May Yahweh grant all your requests.
 
@@ -568,7 +568,7 @@
 
 1. The king rejoices in your strength, Yahweh!    How greatly he rejoices in your salvation!
 
-2. You have given him his heart`s desire,    and have not withheld the request of his lips. Selah.
+2. You have given him his heart's desire,    and have not withheld the request of his lips. Selah.
 
 3. For you meet him with the blessings of goodness.    You set a crown of fine gold on his head.
 
@@ -597,7 +597,7 @@
 
 1. My God, my God, why have you forsaken me?    Why are you so far from helping me, and from the words of my       groaning?
 
-2. My God, I cry in the daytime, but you don`t answer;    in the night season, and am not silent.
+2. My God, I cry in the daytime, but you don't answer;    in the night season, and am not silent.
 
 3. But you are holy,    you who inhabit the praises of Israel.
 
@@ -611,11 +611,11 @@
 
 8. "He trusts in Yahweh;    let him deliver him.    Let him rescue him, since he delights in him."
 
-9. But you brought me out of the womb.    You made me trust at my mother`s breasts.
+9. But you brought me out of the womb.    You made me trust at my mother's breasts.
 
-10. I was thrown on you from my mother`s womb.    You are my God since my mother bore me.
+10. I was thrown on you from my mother's womb.    You are my God since my mother bore me.
 
-11. Don`t be far from me, for trouble is near.    For there is none to help.
+11. Don't be far from me, for trouble is near.    For there is none to help.
 
 12. Many bulls have surrounded me.    Strong bulls of Bashan have encircled me.
 
@@ -631,11 +631,11 @@
 
 18. They divide my garments among them.    They cast lots for my clothing.
 
-19. But don`t be far off, Yahweh.    You are my help: hurry to help me.
+19. But don't be far off, Yahweh.    You are my help: hurry to help me.
 
 20. Deliver my soul from the sword,    my precious life from the power of the dog.
 
-21. Save me from the lion`s mouth!    Yes, from the horns of the wild oxen, you have answered me.
+21. Save me from the lion's mouth!    Yes, from the horns of the wild oxen, you have answered me.
 
 22. I will declare your name to my brothers.    In the midst of the assembly, I will praise you.
 
@@ -649,9 +649,9 @@
 
 27. All the ends of the earth shall remember and turn to Yahweh.    All the relatives of the nations shall worship before you.
 
-28. For the kingdom is Yahweh`s.    He is the ruler over the nations.
+28. For the kingdom is Yahweh's.    He is the ruler over the nations.
 
-29. All the rich ones of the earth shall eat and worship.    All those who go down to the dust shall bow before him,    even he who can`t keep his soul alive.
+29. All the rich ones of the earth shall eat and worship.    All those who go down to the dust shall bow before him,    even he who can't keep his soul alive.
 
 30. Posterity shall serve him.    Future generations shall be told about the Lord.
 
@@ -664,22 +664,22 @@
 
 2. He makes me lie down in green pastures.    He leads me beside still waters.
 
-3. He restores my soul.    He guides me in the paths of righteousness for his name`s sake.
+3. He restores my soul.    He guides me in the paths of righteousness for his name's sake.
 
 4. Even though I walk through the valley of the shadow of death,    I will fear no evil, for you are with me.    Your rod and your staff, they comfort me.
 
 5. You prepare a table before me in the presence of my enemies. You anoint my head with oil.    My cup runs over.
 
-6. Surely goodness and loving kindness shall follow me all the days       of my life,    and I will dwell in Yahweh`s house forever.   Psalm 24  A Psalm by David.
+6. Surely goodness and loving kindness shall follow me all the days       of my life,    and I will dwell in Yahweh's house forever.   Psalm 24  A Psalm by David.
 
 
 ## Chapter 24
 
-1. The earth is Yahweh`s, with its fullness;    the world, and those who dwell therein.
+1. The earth is Yahweh's, with its fullness;    the world, and those who dwell therein.
 
 2. For he has founded it on the seas,    and established it on the floods.
 
-3. Who may ascend to Yahweh`s hill?    Who may stand in his holy place?
+3. Who may ascend to Yahweh's hill?    Who may stand in his holy place?
 
 4. He who has clean hands and a pure heart;    who has not lifted up his soul to falsehood,    and has not sworn deceitfully.
 
@@ -700,7 +700,7 @@
 
 1. To you, Yahweh, do I lift up my soul.
 
-2. My God, I have trusted in you.    Don`t let me be shamed.    Don`t let my enemies triumph over me.
+2. My God, I have trusted in you.    Don't let me be shamed.    Don't let my enemies triumph over me.
 
 3. Yes, no one who waits for you shall be shamed.    They shall be shamed who deal treacherously without cause.
 
@@ -710,7 +710,7 @@
 
 6. Yahweh, remember your tender mercies and your loving kindness,    for they are from old times.
 
-7. Don`t remember the sins of my youth, nor my transgressions.    Remember me according to your loving kindness,    for your goodness` sake, Yahweh.
+7. Don't remember the sins of my youth, nor my transgressions.    Remember me according to your loving kindness,    for your goodness' sake, Yahweh.
 
 8. Good and upright is Yahweh,    therefore he will instruct sinners in the way.
 
@@ -718,7 +718,7 @@
 
 10. All the paths of Yahweh are loving kindness and truth    to such as keep his covenant and his testimonies.
 
-11. For your name`s sake, Yahweh,    pardon my iniquity, for it is great.
+11. For your name's sake, Yahweh,    pardon my iniquity, for it is great.
 
 12. What man is he who fears Yahweh?    He shall instruct him in the way that he shall choose.
 
@@ -761,7 +761,7 @@
 
 8. Yahweh, I love the habitation of your house,    the place where your glory dwells.
 
-9. Don`t gather my soul with sinners,    nor my life with bloodthirsty men;
+9. Don't gather my soul with sinners,    nor my life with bloodthirsty men;
 
 10. in whose hands is wickedness,    their right hand is full of bribes.
 
@@ -778,7 +778,7 @@
 
 3. Though an army should encamp against me,    my heart shall not fear. Though war should rise against me,    even then I will be confident.
 
-4. One thing I have asked of Yahweh, that I will seek after,    that I may dwell in the house of Yahweh all the days of my life,    to see Yahweh`s beauty,    and to inquire in his temple.
+4. One thing I have asked of Yahweh, that I will seek after,    that I may dwell in the house of Yahweh all the days of my life,    to see Yahweh's beauty,    and to inquire in his temple.
 
 5. For in the day of trouble he will keep me secretly in his       pavilion.    In the covert of his tabernacle he will hide me.    He will lift me up on a rock.
 
@@ -788,13 +788,13 @@
 
 8. When you said, "Seek my face,"    my heart said to you, "I will seek your face, Yahweh."
 
-9. Don`t hide your face from me.    Don`t put your servant away in anger. You have been my help.    Don`t abandon me,    neither forsake me, God of my salvation.
+9. Don't hide your face from me.    Don't put your servant away in anger. You have been my help.    Don't abandon me,    neither forsake me, God of my salvation.
 
 10. When my father and my mother forsake me,    then Yahweh will take me up.
 
 11. Teach me your way, Yahweh.    Lead me in a straight path, because of my enemies.
 
-12. Don`t deliver me over to the desire of my adversaries,    for false witnesses have risen up against me,    such as breathe out cruelty.
+12. Don't deliver me over to the desire of my adversaries,    for false witnesses have risen up against me,    such as breathe out cruelty.
 
 13. I am still confident of this:    I will see the goodness of Yahweh in the land of the living.
 
@@ -803,15 +803,15 @@
 
 ## Chapter 28
 
-1. To you, Yahweh, I call.    My rock, don`t be deaf to me;    lest, if you are silent to me,    I would become like those who go down into the pit.
+1. To you, Yahweh, I call.    My rock, don't be deaf to me;    lest, if you are silent to me,    I would become like those who go down into the pit.
 
 2. Hear the voice of my petitions, when I cry to you,    when I lift up my hands toward your Most Holy Place.
 
-3. Don`t draw me away with the wicked,    with the workers of iniquity who speak peace with their neighbors,    but mischief is in their hearts.
+3. Don't draw me away with the wicked,    with the workers of iniquity who speak peace with their neighbors,    but mischief is in their hearts.
 
 4. Give them according to their work, and according to the       wickedness of their doings.    Give them according to the operation of their hands.    Bring back on them what they deserve.
 
-5. Because they don`t respect the works of Yahweh,    nor the operation of his hands,    he will break them down and not build them up.
+5. Because they don't respect the works of Yahweh,    nor the operation of his hands,    he will break them down and not build them up.
 
 6. Blessed be Yahweh,    because he has heard the voice of my petitions.
 
@@ -828,19 +828,19 @@
 
 2. Ascribe to Yahweh the glory due to his name.    Worship Yahweh in holy array.
 
-3. Yahweh`s voice is on the waters.    The God of glory thunders, even Yahweh on many waters.
+3. Yahweh's voice is on the waters.    The God of glory thunders, even Yahweh on many waters.
 
-4. Yahweh`s voice is powerful.    Yahweh`s voice is full of majesty.
+4. Yahweh's voice is powerful.    Yahweh's voice is full of majesty.
 
 5. The voice of Yahweh breaks the cedars.    Yes, Yahweh breaks in pieces the cedars of Lebanon.
 
 6. He makes them also to skip like a calf;    Lebanon and Sirion like a young, wild ox.
 
-7. Yahweh`s voice strikes with flashes of lightning.
+7. Yahweh's voice strikes with flashes of lightning.
 
-8. Yahweh`s voice shakes the wilderness.    Yahweh shakes the wilderness of Kadesh.
+8. Yahweh's voice shakes the wilderness.    Yahweh shakes the wilderness of Kadesh.
 
-9. Yahweh`s voice makes the deer calve,    and strips the forests bare.    In his temple everything says, "Glory!"
+9. Yahweh's voice makes the deer calve,    and strips the forests bare.    In his temple everything says, "Glory!"
 
 10. Yahweh sat enthroned at the Flood.    Yes, Yahweh sits as King forever.
 
@@ -880,7 +880,7 @@
 
 2. Bow down your ear to me.    Deliver me speedily. Be to me a strong rock,    a house of defense to save me.
 
-3. For you are my rock and my fortress,    therefore for your name`s sake lead me and guide me.
+3. For you are my rock and my fortress,    therefore for your name's sake lead me and guide me.
 
 4. Pluck me out of the net that they have laid secretly for me,    for you are my stronghold.
 
@@ -929,13 +929,13 @@
 
 1. Blessed is he whose disobedience is forgiven,    whose sin is covered.
 
-2. Blessed is the man to whom Yahweh doesn`t impute iniquity,    in whose spirit there is no deceit.
+2. Blessed is the man to whom Yahweh doesn't impute iniquity,    in whose spirit there is no deceit.
 
 3. When I kept silence, my bones wasted away through my groaning       all day long.
 
 4. For day and night your hand was heavy on me.    My strength was sapped in the heat of summer. Selah.
 
-5. I acknowledged my sin to you.    I didn`t hide my iniquity. I said, I will confess my transgressions to Yahweh,    and you forgave the iniquity of my sin. Selah.
+5. I acknowledged my sin to you.    I didn't hide my iniquity. I said, I will confess my transgressions to Yahweh,    and you forgave the iniquity of my sin. Selah.
 
 6. For this, let everyone who is godly pray to you in a time when       you may be found.    Surely when the great waters overflow, they shall not reach to him.
 
@@ -943,7 +943,7 @@
 
 8. I will instruct you and teach you in the way which you shall go.    I will counsel you with my eye on you.
 
-9. Don`t be like the horse, or like the mule, which have no       understanding,    who are controlled by bit and bridle, or else they will not come       near to you.
+9. Don't be like the horse, or like the mule, which have no       understanding,    who are controlled by bit and bridle, or else they will not come       near to you.
 
 10. Many sorrows come to the wicked,    but loving kindness shall surround him who trusts in Yahweh.
 
@@ -962,7 +962,7 @@
 
 5. He loves righteousness and justice.    The earth is full of the loving kindness of Yahweh.
 
-6. By Yahweh`s word, the heavens were made;    all their army by the breath of his mouth.
+6. By Yahweh's word, the heavens were made;    all their army by the breath of his mouth.
 
 7. He gathers the waters of the sea together as a heap.    He lays up the deeps in storehouses.
 
@@ -986,7 +986,7 @@
 
 17. A horse is a vain thing for safety,    neither does he deliver any by his great power.
 
-18. Behold, Yahweh`s eye is on those who fear him,    on those who hope in his loving kindness;
+18. Behold, Yahweh's eye is on those who fear him,    on those who hope in his loving kindness;
 
 19. to deliver their soul from death,    to keep them alive in famine.
 
@@ -1027,9 +1027,9 @@
 
 14. Depart from evil, and do good.    seek peace, and pursue it.
 
-15. Yahweh`s eyes are toward the righteous.    His ears listen to their cry.
+15. Yahweh's eyes are toward the righteous.    His ears listen to their cry.
 
-16. Yahweh`s face is against those who do evil,    to cut off the memory of them from the earth.
+16. Yahweh's face is against those who do evil,    to cut off the memory of them from the earth.
 
 17. The righteous cry, and Yahweh hears,    and delivers them out of all their troubles.
 
@@ -1054,9 +1054,9 @@
 
 4. Let those who seek after my soul be disappointed and brought to       dishonor.    Let those who plot my ruin be turned back and confounded.
 
-5. Let them be as chaff before the wind,    Yahweh`s angel driving them on.
+5. Let them be as chaff before the wind,    Yahweh's angel driving them on.
 
-6. Let their way be dark and slippery,    Yahweh`s angel pursuing them.
+6. Let their way be dark and slippery,    Yahweh's angel pursuing them.
 
 7. For without cause they have hidden their net in a pit for me.    Without cause they have dug a pit for my soul.
 
@@ -1066,7 +1066,7 @@
 
 10. All my bones shall say, "Yahweh, who is like you,    who delivers the poor from him who is too strong for him;    yes, the poor and the needy from him who robs him?"
 
-11. Unrighteous witnesses rise up.    They ask me about things that I don`t know about.
+11. Unrighteous witnesses rise up.    They ask me about things that I don't know about.
 
 12. They reward me evil for good,    to the bereaving of my soul.
 
@@ -1074,7 +1074,7 @@
 
 14. I behaved myself as though it had been my friend or my brother.    I bowed down mourning, as one who mourns his mother.
 
-15. But in my adversity, they rejoiced, and gathered themselves       together.    The attackers gathered themselves together against me, and I didn`t       know it.    They tore at me, and didn`t cease.
+15. But in my adversity, they rejoiced, and gathered themselves       together.    The attackers gathered themselves together against me, and I didn't       know it.    They tore at me, and didn't cease.
 
 16. Like the profane mockers in feasts,    they gnashed their teeth at me.
 
@@ -1082,19 +1082,19 @@
 
 18. I will give you thanks in the great assembly.    I will praise you among many people.
 
-19. Don`t let those who are my enemies wrongfully rejoice over me;    neither let those who hate me without a cause wink their eyes.
+19. Don't let those who are my enemies wrongfully rejoice over me;    neither let those who hate me without a cause wink their eyes.
 
-20. For they don`t speak peace,    but they devise deceitful words against those who are quiet in the       land.
+20. For they don't speak peace,    but they devise deceitful words against those who are quiet in the       land.
 
 21. Yes, they opened their mouth wide against me.    They said, "Aha! Aha! Our eye has seen it!"
 
-22. You have seen it, Yahweh. Don`t keep silent.    Lord, don`t be far from me.
+22. You have seen it, Yahweh. Don't keep silent.    Lord, don't be far from me.
 
 23. Wake up! Rise up to defend me, my God!    My Lord, contend for me!
 
-24. Vindicate me, Yahweh my God, according to your righteousness.    Don`t let them gloat over me.
+24. Vindicate me, Yahweh my God, according to your righteousness.    Don't let them gloat over me.
 
-25. Don`t let them say in their heart, "Aha! That`s the way we want       it!"    Don`t let them say, "We have swallowed him up!"
+25. Don't let them say in their heart, "Aha! That's the way we want       it!"    Don't let them say, "We have swallowed him up!"
 
 26. Let them be disappointed and confounded together who rejoice at       my calamity.    Let them be clothed with shame and dishonor who magnify themselves       against me.
 
@@ -1111,7 +1111,7 @@
 
 3. The words of his mouth are iniquity and deceit.    He has ceased to be wise and to do good.
 
-4. He plots iniquity on his bed.    He sets himself in a way that is not good.    He doesn`t abhor evil.
+4. He plots iniquity on his bed.    He sets himself in a way that is not good.    He doesn't abhor evil.
 
 5. Your loving kindness, Yahweh, is in the heavens.    Your faithfulness reaches to the skies.
 
@@ -1125,14 +1125,14 @@
 
 10. Oh continue your loving kindness to those who know you,    your righteousness to the upright in heart.
 
-11. Don`t let the foot of pride come against me.    Don`t let the hand of the wicked drive me away.
+11. Don't let the foot of pride come against me.    Don't let the hand of the wicked drive me away.
 
 12. There the workers of iniquity are fallen.    They are thrust down, and shall not be able to rise.   Psalm 37  By David.
 
 
 ## Chapter 37
 
-1. Don`t fret because of evildoers,    neither be envious against those who work unrighteousness.
+1. Don't fret because of evildoers,    neither be envious against those who work unrighteousness.
 
 2. For they shall soon be cut down like the grass,    and wither like the green herb.
 
@@ -1144,13 +1144,13 @@
 
 6. he will make your righteousness go forth as the light,    and your justice as the noon day sun.
 
-7. Rest in Yahweh, and wait patiently for him.    Don`t fret because of him who prospers in his way,    because of the man who makes wicked plots happen.
+7. Rest in Yahweh, and wait patiently for him.    Don't fret because of him who prospers in his way,    because of the man who makes wicked plots happen.
 
-8. Cease from anger, and forsake wrath.    Don`t fret, it leads only to evildoing.
+8. Cease from anger, and forsake wrath.    Don't fret, it leads only to evildoing.
 
 9. For evildoers shall be cut off,    but those who wait for Yahweh shall inherit the land.
 
-10. For yet a little while, and the wicked will be no more.    Yes, though you look for his place, he isn`t there.
+10. For yet a little while, and the wicked will be no more.    Yes, though you look for his place, he isn't there.
 
 11. But the humble shall inherit the land,    and shall delight themselves in the abundance of peace.
 
@@ -1172,11 +1172,11 @@
 
 20. But the wicked shall perish.    The enemies of Yahweh shall be like the beauty of the fields.    They will vanish--    vanish like smoke.
 
-21. The wicked borrow, and don`t pay back,    but the righteous give generously.
+21. The wicked borrow, and don't pay back,    but the righteous give generously.
 
 22. For such as are blessed by him shall inherit the land.    Those who are cursed by him shall be cut off.
 
-23. A man`s goings are established by Yahweh.    He delights in his way.
+23. A man's goings are established by Yahweh.    He delights in his way.
 
 24. Though he stumble, he shall not fall,    for Yahweh holds him up with his hand.
 
@@ -1186,7 +1186,7 @@
 
 27. Depart from evil, and do good.    Live securely forever.
 
-28. For Yahweh loves justice,    and doesn`t forsake his saints.    They are preserved forever,    but the children of the wicked shall be cut off.
+28. For Yahweh loves justice,    and doesn't forsake his saints.    They are preserved forever,    but the children of the wicked shall be cut off.
 
 29. The righteous shall inherit the land,    and live in it forever.
 
@@ -1215,7 +1215,7 @@
 
 ## Chapter 38
 
-1. Yahweh, don`t rebuke me in your wrath,    neither chasten me in your hot displeasure.
+1. Yahweh, don't rebuke me in your wrath,    neither chasten me in your hot displeasure.
 
 2. For your arrows have pierced me,    your hand presses hard on me.
 
@@ -1239,13 +1239,13 @@
 
 12. They also who seek after my life lay snares.    Those who seek my hurt speak mischievous things,    and meditate deceits all day long.
 
-13. But I, as a deaf man, don`t hear.    I am as a mute man who doesn`t open his mouth.
+13. But I, as a deaf man, don't hear.    I am as a mute man who doesn't open his mouth.
 
-14. Yes, I am as a man who doesn`t hear,    in whose mouth are no reproofs.
+14. Yes, I am as a man who doesn't hear,    in whose mouth are no reproofs.
 
 15. For in you, Yahweh, do I hope.    You will answer, Lord my God.
 
-16. For I said, "Don`t let them gloat over me,    or exalt themselves over me when my foot slips."
+16. For I said, "Don't let them gloat over me,    or exalt themselves over me when my foot slips."
 
 17. For I am ready to fall.    My pain is continually before me.
 
@@ -1255,14 +1255,14 @@
 
 20. They who also render evil for good are adversaries to me,    because I follow what is good.
 
-21. Don`t forsake me, Yahweh.    My God, don`t be far from me.
+21. Don't forsake me, Yahweh.    My God, don't be far from me.
 
 22. Hurry to help me,    Lord, my salvation.   Psalm 39  For the Chief Musician. For Jeduthun. A Psalm by David.
 
 
 ## Chapter 39
 
-1. I said, "I will watch my ways, so that I don`t sin with my       tongue.    I will keep my mouth with a bridle while the wicked is before me."
+1. I said, "I will watch my ways, so that I don't sin with my       tongue.    I will keep my mouth with a bridle while the wicked is before me."
 
 2. I was mute with silence.    I held my peace, even from good.    My sorrow was stirred.
 
@@ -1272,19 +1272,19 @@
 
 5. Behold, you have made my days handbreadths.    My lifetime is as nothing before you. Surely every man stands as a breath." Selah.
 
-6. "Surely every man walks like a shadow.    Surely they busy themselves in vain.    He heaps up, and doesn`t know who shall gather.
+6. "Surely every man walks like a shadow.    Surely they busy themselves in vain.    He heaps up, and doesn't know who shall gather.
 
 7. Now, Lord, what do I wait for?    My hope is in you.
 
-8. Deliver me from all my transgressions.    Don`t make me the reproach of the foolish.
+8. Deliver me from all my transgressions.    Don't make me the reproach of the foolish.
 
-9. I was mute.    I didn`t open my mouth,    because you did it.
+9. I was mute.    I didn't open my mouth,    because you did it.
 
 10. Remove your scourge away from me.    I am overcome by the blow of your hand.
 
 11. When you rebuke and correct man for iniquity,    You consume his wealth like a moth. Surely every man is but a breath." Selah.
 
-12. "Hear my prayer, Yahweh, and give ear to my cry.    Don`t be silent at my tears. For I am a stranger with you,    a foreigner, as all my fathers were.
+12. "Hear my prayer, Yahweh, and give ear to my cry.    Don't be silent at my tears. For I am a stranger with you,    a foreigner, as all my fathers were.
 
 13. Oh spare me, that I may recover strength,    before I go away, and exist no more."   Psalm 40  For the Chief Musician. A Psalm by David.
 
@@ -1297,11 +1297,11 @@
 
 3. He has put a new song in my mouth, even praise to our God.    Many shall see it, and fear, and shall trust in Yahweh.
 
-4. Blessed is the man who makes Yahweh his trust,    and doesn`t respect the proud, nor such as turn aside to lies.
+4. Blessed is the man who makes Yahweh his trust,    and doesn't respect the proud, nor such as turn aside to lies.
 
-5. Many, Yahweh, my God, are the wonderful works which you have       done,    and your thoughts which are toward us. They can`t be declared back to you.    If I would declare and speak of them, they are more than can be       numbered.
+5. Many, Yahweh, my God, are the wonderful works which you have       done,    and your thoughts which are toward us. They can't be declared back to you.    If I would declare and speak of them, they are more than can be       numbered.
 
-6. Sacrifice and offering you didn`t desire.    You have opened my ears.    You have not required burnt offering and sin offering.
+6. Sacrifice and offering you didn't desire.    You have opened my ears.    You have not required burnt offering and sin offering.
 
 7. Then I said, "Behold, I have come.    It is written about me in the book in the scroll.
 
@@ -1311,7 +1311,7 @@
 
 10. I have not hidden your righteousness within my heart.    I have declared your faithfulness and your salvation.    I have not concealed your loving kindness and your truth from the       great assembly.
 
-11. Don`t withhold your tender mercies from me, Yahweh.    Let your loving kindness and your truth continually preserve me.
+11. Don't withhold your tender mercies from me, Yahweh.    Let your loving kindness and your truth continually preserve me.
 
 12. For innumerable evils have surrounded me.    My iniquities have overtaken me, so that I am not able to look up. They are more than the hairs of my head.    My heart has failed me.
 
@@ -1323,7 +1323,7 @@
 
 16. Let all those who seek you rejoice and be glad in you.    Let such as love your salvation say continually, "Let Yahweh be       exalted!"
 
-17. But I am poor and needy.    May the Lord think about me. You are my help and my deliverer.    Don`t delay, my God.   Psalm 41  For the Chief Musician. A Psalm by David.
+17. But I am poor and needy.    May the Lord think about me. You are my help and my deliverer.    Don't delay, my God.   Psalm 41  For the Chief Musician. A Psalm by David.
 
 
 ## Chapter 41
@@ -1348,7 +1348,7 @@
 
 10. But you, Yahweh, have mercy on me, and raise me up,    that I may repay them.
 
-11. By this I know that you delight in me,    because my enemy doesn`t triumph over me.
+11. By this I know that you delight in me,    because my enemy doesn't triumph over me.
 
 12. As for me, you uphold me in my integrity,    and set me in your presence forever.
 
@@ -1399,7 +1399,7 @@
 
 2. You drove out the nations with your hand,    but you planted them. You afflicted the peoples,    but you spread them abroad.
 
-3. For they didn`t get the land in possession by their own sword,    neither did their own arm save them; but your right hand, and your arm, and the light of your face,    because you were favorable to them.
+3. For they didn't get the land in possession by their own sword,    neither did their own arm save them; but your right hand, and your arm, and the light of your face,    because you were favorable to them.
 
 4. You are my King, God.    Command victories for Jacob!
 
@@ -1411,7 +1411,7 @@
 
 8. In God we have made our boast all day long,    we will give thanks to your name forever. Selah.
 
-9. But now you rejected us, and brought us to dishonor,    and don`t go out with our armies.
+9. But now you rejected us, and brought us to dishonor,    and don't go out with our armies.
 
 10. You make us turn back from the adversary.    Those who hate us take spoil for themselves.
 
@@ -1435,17 +1435,17 @@
 
 20. If we have forgotten the name of our God,    or spread forth our hands to a strange god;
 
-21. won`t God search this out?    For he knows the secrets of the heart.
+21. won't God search this out?    For he knows the secrets of the heart.
 
 22. Yes, for your sake we are killed all day long.    We are regarded as sheep for the slaughter.
 
-23. Wake up!    Why do you sleep, Lord? Arise!    Don`t reject us forever.
+23. Wake up!    Why do you sleep, Lord? Arise!    Don't reject us forever.
 
 24. Why do you hide your face,    and forget our affliction and our oppression?
 
 25. For our soul is bowed down to the dust.    Our body cleaves to the earth.
 
-26. Rise up to help us.    Redeem us for your loving kindness` sake.   Psalm 45  For the Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song.
+26. Rise up to help us.    Redeem us for your loving kindness' sake.   Psalm 45  For the Chief Musician. Set to "The Lilies." A contemplation by the sons of Korah. A wedding song.
 
 
 ## Chapter 45
@@ -1458,7 +1458,7 @@
 
 4. In your majesty ride on victoriously on behalf of truth,       humility, and righteousness.    Let your right hand display awesome deeds.
 
-5. Your arrows are sharp.    The nations fall under you, with arrows in the heart of the king`s       enemies.
+5. Your arrows are sharp.    The nations fall under you, with arrows in the heart of the king's       enemies.
 
 6. Your throne, God, is forever and ever.    A scepter of equity is the scepter of your kingdom.
 
@@ -1466,9 +1466,9 @@
 
 8. All your garments smell like myrrh, aloes, and cassia.    Out of ivory palaces stringed instruments have made you glad.
 
-9. Kings` daughters are among your honorable women.    At your right hand the queen stands in gold of Ophir.
+9. Kings' daughters are among your honorable women.    At your right hand the queen stands in gold of Ophir.
 
-10. Listen, daughter, consider, and turn your ear.    Forget your own people, and also your father`s house.
+10. Listen, daughter, consider, and turn your ear.    Forget your own people, and also your father's house.
 
 11. So the king will desire your beauty,    honor him, for he is your lord.
 
@@ -1478,7 +1478,7 @@
 
 14. She shall be led to the king in embroidered work.    The virgins, her companions who follow her, shall be brought to you.
 
-15. With gladness and rejoicing they shall be led.    They shall enter into the king`s palace.
+15. With gladness and rejoicing they shall be led.    They shall enter into the king's palace.
 
 16. Your sons will take the place of your fathers.    You shall make them princes in all the earth.
 
@@ -1489,7 +1489,7 @@
 
 1. God is our refuge and strength,    a very present help in trouble.
 
-2. Therefore we won`t be afraid, though the earth changes,    though the mountains are shaken into the heart of the seas;
+2. Therefore we won't be afraid, though the earth changes,    though the mountains are shaken into the heart of the seas;
 
 3. though its waters roar and are troubled,    though the mountains tremble with their swelling. Selah.
 
@@ -1501,7 +1501,7 @@
 
 7. Yahweh of Armies is with us.    The God of Jacob is our refuge. Selah.
 
-8. Come, see Yahweh`s works,    what desolations he has made in the earth.
+8. Come, see Yahweh's works,    what desolations he has made in the earth.
 
 9. He makes wars cease to the end of the earth.    He breaks the bow, and shatters the spear.    He burns the chariots in the fire.
 
@@ -1586,7 +1586,7 @@
 
 11. Their inward thought is that their houses will endure forever,    and their dwelling places to all generations.    They name their lands after themselves.
 
-12. But man, despite his riches, doesn`t endure.    He is like the animals that perish.
+12. But man, despite his riches, doesn't endure.    He is like the animals that perish.
 
 13. This is the destiny of those who are foolish,    and of those who approve their sayings. Selah.
 
@@ -1594,7 +1594,7 @@
 
 15. But God will redeem my soul from the power of Sheol,    for he will receive me. Selah.
 
-16. Don`t be afraid when a man is made rich,    when the glory of his house is increased.
+16. Don't be afraid when a man is made rich,    when the glory of his house is increased.
 
 17. For when he dies he shall carry nothing away.    His glory shall not descend after him.
 
@@ -1621,7 +1621,7 @@
 
 7. "Hear, my people, and I will speak;    Israel, and I will testify against you. I am God, your God.
 
-8. I don`t rebuke you for your sacrifices.    Your burnt offerings are continually before me.
+8. I don't rebuke you for your sacrifices.    Your burnt offerings are continually before me.
 
 9. I have no need for a bull from your stall,    nor male goats from your pens.
 
@@ -1645,13 +1645,13 @@
 
 19. "You give your mouth to evil.    Your tongue frames deceit.
 
-20. You sit and speak against your brother.    You slander your own mother`s son.
+20. You sit and speak against your brother.    You slander your own mother's son.
 
 21. You have done these things, and I kept silent.    You thought that the I was just like you.    I will rebuke you, and accuse you in front of your eyes.
 
 22. "Now consider this, you who forget God,    lest I tear you into pieces, and there be none to deliver.
 
-23. Whoever offers the sacrifice of thanksgiving glorifies me,    and prepares his way so that I will show God`s salvation to him."   Psalm 51  For the Chief Musician. A Psalm by David, when Nathan the prophet came to him, after he had gone in to Bathsheba.
+23. Whoever offers the sacrifice of thanksgiving glorifies me,    and prepares his way so that I will show God's salvation to him."   Psalm 51  For the Chief Musician. A Psalm by David, when Nathan the prophet came to him, after he had gone in to Bathsheba.
 
 
 ## Chapter 51
@@ -1676,7 +1676,7 @@
 
 10. Create in me a clean heart, O God.    Renew a right spirit within me.
 
-11. Don`t throw me from your presence,    and don`t take your holy Spirit from me.
+11. Don't throw me from your presence,    and don't take your holy Spirit from me.
 
 12. Restore to me the joy of your salvation.    Uphold me with a willing spirit.
 
@@ -1686,18 +1686,18 @@
 
 15. Lord, open my lips.    My mouth shall declare your praise.
 
-16. For you don`t delight in sacrifice, or else I would give it.    You have no pleasure in burnt offering.
+16. For you don't delight in sacrifice, or else I would give it.    You have no pleasure in burnt offering.
 
 17. The sacrifices of God are a broken spirit.    A broken and contrite heart, O God, you will not despise.
 
 18. Do well in your good pleasure to Zion.    Build the walls of Jerusalem.
 
-19. Then you will delight in the sacrifices of righteousness,    in burnt offerings and in whole burnt offerings. Then they will offer bulls on your altar.   Psalm 52  For the Chief Musician. A contemplation by David, when Doeg the Edomite came and told Saul, "David has come to Abimelech`s house."
+19. Then you will delight in the sacrifices of righteousness,    in burnt offerings and in whole burnt offerings. Then they will offer bulls on your altar.   Psalm 52  For the Chief Musician. A contemplation by David, when Doeg the Edomite came and told Saul, "David has come to Abimelech's house."
 
 
 ## Chapter 52
 
-1. Why do you boast of mischief, mighty man?    God`s loving kindness endures continually.
+1. Why do you boast of mischief, mighty man?    God's loving kindness endures continually.
 
 2. Your tongue plots destruction,    like a sharp razor, working deceitfully.
 
@@ -1709,9 +1709,9 @@
 
 6. The righteous also will see it, and fear,    and laugh at him, saying,
 
-7. "Behold, this is the man who didn`t make God his strength,    but trusted in the abundance of his riches,    and strengthened himself in his wickedness."
+7. "Behold, this is the man who didn't make God his strength,    but trusted in the abundance of his riches,    and strengthened himself in his wickedness."
 
-8. But as for me, I am like a green olive tree in God`s house.    I trust in God`s loving kindness forever and ever.
+8. But as for me, I am like a green olive tree in God's house.    I trust in God's loving kindness forever and ever.
 
 9. I will give you thanks forever, because you have done it.    I will hope in your name, for it is good,    in the presence of your saints.   Psalm 53  For the Chief Musician. To the tune of "Mahalath." A contemplation by David.
 
@@ -1724,11 +1724,11 @@
 
 3. Every one of them has gone back.    They have become filthy together.    There is no one who does good, no, not one.
 
-4. Have the workers of iniquity no knowledge,    who eat up my people as they eat bread,    and don`t call on God?
+4. Have the workers of iniquity no knowledge,    who eat up my people as they eat bread,    and don't call on God?
 
 5. There they were in great fear, where no fear was,    for God has scattered the bones of him who encamps against you. You have put them to shame,    because God has rejected them.
 
-6. Oh that the salvation of Israel would come out of Zion!    When God brings back his people from captivity,    then Jacob shall rejoice,    and Israel shall be glad.   Psalm 54  For the Chief Musician. On stringed instruments. A contemplation by David, when the Ziphites came and said to Saul, "Isn`t David hiding himself among us?"
+6. Oh that the salvation of Israel would come out of Zion!    When God brings back his people from captivity,    then Jacob shall rejoice,    and Israel shall be glad.   Psalm 54  For the Chief Musician. On stringed instruments. A contemplation by David, when the Ziphites came and said to Saul, "Isn't David hiding himself among us?"
 
 
 ## Chapter 54
@@ -1737,7 +1737,7 @@
 
 2. Hear my prayer, God.    Listen to the words of my mouth.
 
-3. For strangers have risen up against me.    Violent men have sought after my soul.    They haven`t set God before them. Selah.
+3. For strangers have risen up against me.    Violent men have sought after my soul.    They haven't set God before them. Selah.
 
 4. Behold, God is my helper.    The Lord is the one who sustains my soul.
 
@@ -1750,7 +1750,7 @@
 
 ## Chapter 55
 
-1. Listen to my prayer, God.    Don`t hide yourself from my supplication.
+1. Listen to my prayer, God.    Don't hide yourself from my supplication.
 
 2. Attend to me, and answer me.    I am restless in my complaint, and moan,
 
@@ -1770,13 +1770,13 @@
 
 10. Day and night they prowl around on its walls.    Malice and abuse are also within her.
 
-11. Destructive forces are within her.    Threats and lies don`t depart from her streets.
+11. Destructive forces are within her.    Threats and lies don't depart from her streets.
 
 12. For it was not an enemy who insulted me,    then I could have endured it. Neither was it he who hated me who raised himself up against me,    then I would have hid myself from him.
 
 13. But it was you, a man like me,    my companion, and my familiar friend.
 
-14. We took sweet fellowship together.    We walked in God`s house with company.
+14. We took sweet fellowship together.    We walked in God's house with company.
 
 15. Let death come suddenly on them.    Let them go down alive into Sheol.    For wickedness is in their dwelling, in the midst of them.
 
@@ -1786,7 +1786,7 @@
 
 18. He has redeemed my soul in peace from the battle that was       against me,    although there are many who oppose me.
 
-19. God, who is enthroned forever,    will hear, and answer them. Selah.  They never change,    who don`t fear God.
+19. God, who is enthroned forever,    will hear, and answer them. Selah.  They never change,    who don't fear God.
 
 20. He raises his hands against his friends.    He has violated his covenant.
 
@@ -1813,7 +1813,7 @@
 
 7. Shall they escape by iniquity?    In anger cast down the peoples, God.
 
-8. You number my wanderings.    You put my tears into your bottle.    Aren`t they in your book?
+8. You number my wanderings.    You put my tears into your bottle.    Aren't they in your book?
 
 9. Then my enemies shall turn back in the day that I call.    I know this, that God is for me.
 
@@ -1861,7 +1861,7 @@
 
 4. Their poison is like the poison of a snake;    like a deaf cobra that stops its ear,
 
-5. which doesn`t listen to the voice of charmers,    no matter how skillful the charmer may be.
+5. which doesn't listen to the voice of charmers,    no matter how skillful the charmer may be.
 
 6. Break their teeth, God, in their mouth.    Break out the great teeth of the young lions, Yahweh.
 
@@ -1898,7 +1898,7 @@
 
 10. My God will go before me with his loving kindness.    God will let me look at my enemies in triumph.
 
-11. Don`t kill them, or my people may forget.    Scatter them by your power, and bring them down, Lord our shield.
+11. Don't kill them, or my people may forget.    Scatter them by your power, and bring them down, Lord our shield.
 
 12. For the sin of their mouth, and the words of their lips,    let them be caught in their pride,    for the curses and lies which they utter.
 
@@ -1906,7 +1906,7 @@
 
 14. At evening let them return.    Let them howl like a dog, and go around the city.
 
-15. They shall wander up and down for food,    and wait all night if they aren`t satisfied.
+15. They shall wander up and down for food,    and wait all night if they aren't satisfied.
 
 16. But I will sing of your strength.    Yes, I will sing aloud of your loving kindness in the morning. For you have been my high tower,    a refuge in the day of my distress.
 
@@ -1933,7 +1933,7 @@
 
 9. Who will bring me into the strong city?    Who has led me to Edom?
 
-10. Haven`t you, God, rejected us?    You don`t go out with our armies, God.
+10. Haven't you, God, rejected us?    You don't go out with our armies, God.
 
 11. Give us help against the adversary,    for the help of man is vain.
 
@@ -1952,9 +1952,9 @@
 
 5. For you, God, have heard my vows.    You have given me the heritage of those who fear your name.
 
-6. You will prolong the king`s life;    his years shall be for generations.
+6. You will prolong the king's life;    his years shall be for generations.
 
-7. He shall be enthroned in God`s presence forever.    Appoint your loving kindness and truth, that they may preserve him.
+7. He shall be enthroned in God's presence forever.    Appoint your loving kindness and truth, that they may preserve him.
 
 8. So I will sing praise to your name forever,    that I may fulfill my vows daily.   Psalm 62  For the Chief Musician. To Jeduthan. A Psalm by David.
 
@@ -1979,7 +1979,7 @@
 
 9. Surely men of low degree are just a breath,    and men of high degree are a lie. In the balances they will go up.    They are together lighter than a breath.
 
-10. Don`t trust in oppression.    Don`t become vain in robbery. If riches increase,    don`t set your heart on them.
+10. Don't trust in oppression.    Don't become vain in robbery. If riches increase,    don't set your heart on them.
 
 11. God has spoken once;    twice I have heard this,    that power belongs to God.
 
@@ -2023,7 +2023,7 @@
 
 5. They encourage themselves in evil plans.    They talk about laying snares secretly.    They say, "Who will see them?"
 
-6. They plot injustice, saying, "We have made a perfect plan!"    Surely man`s mind and heart are cunning.
+6. They plot injustice, saying, "We have made a perfect plan!"    Surely man's mind and heart are cunning.
 
 7. But God will shoot at them.    They will be suddenly struck down with an arrow.
 
@@ -2050,7 +2050,7 @@
 
 7. who stills the roaring of the seas,    the roaring of their waves,    and the turmoil of the nations.
 
-8. They also who dwell in faraway places are afraid at your wonders.    You call the morning`s dawn and the evening with songs of joy.
+8. They also who dwell in faraway places are afraid at your wonders.    You call the morning's dawn and the evening with songs of joy.
 
 9. You visit the earth, and water it.    You greatly enrich it. The river of God is full of water.    You provide them grain, for so you have ordained it.
 
@@ -2073,15 +2073,15 @@
 
 4. All the earth will worship you,    and will sing to you;    they will sing to your name." Selah.
 
-5. Come, and see God`s deeds--    awesome work on behalf of the children of men.
+5. Come, and see God's deeds--    awesome work on behalf of the children of men.
 
 6. He turned the sea into dry land.    They went through the river on foot.    There, we rejoiced in him.
 
-7. He rules by his might forever.    His eyes watch the nations.    Don`t let the rebellious rise up against him. Selah.
+7. He rules by his might forever.    His eyes watch the nations.    Don't let the rebellious rise up against him. Selah.
 
 8. Praise our God, you peoples!    Make the sound of his praise heard,
 
-9. who preserves our life among the living,    and doesn`t allow our feet to be moved.
+9. who preserves our life among the living,    and doesn't allow our feet to be moved.
 
 10. For you, God, have tested us.    You have refined us, as silver is refined.
 
@@ -2099,7 +2099,7 @@
 
 17. I cried to him with my mouth.    He was extolled with my tongue.
 
-18. If I cherished sin in my heart,    the Lord wouldn`t have listened.
+18. If I cherished sin in my heart,    the Lord wouldn't have listened.
 
 19. But most certainly, God has listened.    He has heard the voice of my prayer.
 
@@ -2204,15 +2204,15 @@
 
 3. I am weary with my crying.    My throat is dry.    My eyes fail, looking for my God.
 
-4. Those who hate me without a cause are more than the hairs of my       head.    Those who want to cut me off, being my enemies wrongfully, are       mighty.    I have to restore what I didn`t take away.
+4. Those who hate me without a cause are more than the hairs of my       head.    Those who want to cut me off, being my enemies wrongfully, are       mighty.    I have to restore what I didn't take away.
 
-5. God, you know my foolishness.    My sins aren`t hidden from you.
+5. God, you know my foolishness.    My sins aren't hidden from you.
 
-6. Don`t let those who wait for you be shamed through me, Lord       Yahweh of Armies.    Don`t let those who seek you be brought to dishonor through me, God       of Israel.
+6. Don't let those who wait for you be shamed through me, Lord       Yahweh of Armies.    Don't let those who seek you be brought to dishonor through me, God       of Israel.
 
 7. Because for your sake, I have borne reproach.    Shame has covered my face.
 
-8. I have become a stranger to my brothers,    an alien to my mother`s children.
+8. I have become a stranger to my brothers,    an alien to my mother's children.
 
 9. For the zeal of your house consumes me.    The reproaches of those who reproach you have fallen on me.
 
@@ -2224,13 +2224,13 @@
 
 13. But as for me, my prayer is to you, Yahweh, in an acceptable       time.    God, in the abundance of your loving kindness, answer me in the       truth of your salvation.
 
-14. Deliver me out of the mire, and don`t let me sink.    Let me be delivered from those who hate me, and out of the deep       waters.
+14. Deliver me out of the mire, and don't let me sink.    Let me be delivered from those who hate me, and out of the deep       waters.
 
-15. Don`t let the flood waters overwhelm me,    neither let the deep swallow me up.    Don`t let the pit shut its mouth on me.
+15. Don't let the flood waters overwhelm me,    neither let the deep swallow me up.    Don't let the pit shut its mouth on me.
 
 16. Answer me, Yahweh, for your loving kindness is good.    According to the multitude of your tender mercies, turn to me.
 
-17. Don`t hide your face from your servant,    for I am in distress.    Answer me speedily!
+17. Don't hide your face from your servant,    for I am in distress.    Answer me speedily!
 
 18. Draw near to my soul, and redeem it.    Ransom me because of my enemies.
 
@@ -2242,7 +2242,7 @@
 
 22. Let their table before them become a snare.    May it become a retribution and a trap.
 
-23. Let their eyes be darkened, so that they can`t see.    Let their backs be continually bent.
+23. Let their eyes be darkened, so that they can't see.    Let their backs be continually bent.
 
 24. Pour out your indignation on them.    Let the fierceness of your anger overtake them.
 
@@ -2250,7 +2250,7 @@
 
 26. For they persecute him whom you have wounded.    They tell of the sorrow of those whom you have hurt.
 
-27. Charge them with crime upon crime.    Don`t let them come into your righteousness.
+27. Charge them with crime upon crime.    Don't let them come into your righteousness.
 
 28. Let them be blotted out of the book of life,    and not be written with the righteous.
 
@@ -2262,7 +2262,7 @@
 
 32. The humble have seen it, and are glad.    You who seek after God, let your heart live.
 
-33. For Yahweh hears the needy,    and doesn`t despise his captive people.
+33. For Yahweh hears the needy,    and doesn't despise his captive people.
 
 34. Let heaven and earth praise him;    the seas, and everything that moves therein!
 
@@ -2281,7 +2281,7 @@
 
 4. Let all those who seek you rejoice and be glad in you.    Let those who love your salvation continually say,    "Let God be exalted!"
 
-5. But I am poor and needy.    Come to me quickly, God. You are my help and my deliverer.    Yahweh, don`t delay.   Psalm 71
+5. But I am poor and needy.    Come to me quickly, God. You are my help and my deliverer.    Yahweh, don't delay.   Psalm 71
 
 
 ## Chapter 71
@@ -2296,31 +2296,31 @@
 
 5. For you are my hope, Lord Yahweh;    my confidence from my youth.
 
-6. I have relied on you from the womb.    You are he who took me out of my mother`s womb.    I will always praise you.
+6. I have relied on you from the womb.    You are he who took me out of my mother's womb.    I will always praise you.
 
 7. I am a marvel to many,    but you are my strong refuge.
 
 8. My mouth shall be filled with your praise,    with your honor all the day.
 
-9. Don`t reject me in my old age.    Don`t forsake me when my strength fails.
+9. Don't reject me in my old age.    Don't forsake me when my strength fails.
 
 10. For my enemies talk about me.    Those who watch for my soul conspire together,
 
 11. saying, "God has forsaken him.    Pursue and take him, for no one will rescue him."
 
-12. God, don`t be far from me.    My God, hurry to help me.
+12. God, don't be far from me.    My God, hurry to help me.
 
 13. Let my accusers be disappointed and consumed.    Let them be covered with disgrace and scorn who want to harm me.
 
 14. But I will always hope,    and will add to all of your praise.
 
-15. My mouth will tell about your righteousness,    and of your salvation all day,    though I don`t know its full measure.
+15. My mouth will tell about your righteousness,    and of your salvation all day,    though I don't know its full measure.
 
 16. I will come with the mighty acts of the Lord Yahweh.    I will make mention of your righteousness, even of yours alone.
 
 17. God, you have taught me from my youth.    Until now, I have declared your wondrous works.
 
-18. Yes, even when I am old and gray-haired, God, don`t forsake me,    until I have declared your strength to the next generation,    your might to everyone who is to come.
+18. Yes, even when I am old and gray-haired, God, don't forsake me,    until I have declared your strength to the next generation,    your might to everyone who is to come.
 
 19. Your righteousness also, God, reaches to the heavens;    you have done great things.    God, who is like you?
 
@@ -2412,7 +2412,7 @@
 
 16. When I tried to understand this,    it was too painful for me;
 
-17. Until I entered God`s sanctuary,    and considered their latter end.
+17. Until I entered God's sanctuary,    and considered their latter end.
 
 18. Surely you set them in slippery places.    You throw them down to destruction.
 
@@ -2475,15 +2475,15 @@
 
 18. Remember this, that the enemy has mocked you, Yahweh.    Foolish people have blasphemed your name.
 
-19. Don`t deliver the soul of your dove to wild beasts.    Don`t forget the life of your poor forever.
+19. Don't deliver the soul of your dove to wild beasts.    Don't forget the life of your poor forever.
 
 20. Honor your covenant,    for haunts of violence fill the dark places of the earth.
 
-21. Don`t let the oppressed return ashamed.    Let the poor and needy praise your name.
+21. Don't let the oppressed return ashamed.    Let the poor and needy praise your name.
 
 22. Arise, God! Plead your own cause.    Remember how the foolish man mocks you all day.
 
-23. Don`t forget the voice of your adversaries.    The tumult of those who rise up against you ascends continually.     Psalm 75  For the Chief Musician. To the tune of "Do Not Destroy." A Psalm by Asaph. A song.
+23. Don't forget the voice of your adversaries.    The tumult of those who rise up against you ascends continually.     Psalm 75  For the Chief Musician. To the tune of "Do Not Destroy." A Psalm by Asaph. A song.
 
 
 ## Chapter 75
@@ -2494,9 +2494,9 @@
 
 3. The earth and all its inhabitants quake.    I firmly hold its pillars. Selah.
 
-4. I said to the arrogant, "Don`t boast!"    I said to the wicked, "Don`t lift up the horn.
+4. I said to the arrogant, "Don't boast!"    I said to the wicked, "Don't lift up the horn.
 
-5. Don`t lift up your horn on high.    Don`t speak with a stiff neck."
+5. Don't lift up your horn on high.    Don't speak with a stiff neck."
 
 6. For neither from the east, nor from the west,    nor yet from the south, comes exaltation.
 
@@ -2540,11 +2540,11 @@
 
 1. My cry goes to God!    Indeed, I cry to God for help,    and for him to listen to me.
 
-2. In the day of my trouble I sought the Lord.    My hand was stretched out in the night, and didn`t get tired.    My soul refused to be comforted.
+2. In the day of my trouble I sought the Lord.    My hand was stretched out in the night, and didn't get tired.    My soul refused to be comforted.
 
 3. I remember God, and I groan.    I complain, and my spirit is overwhelmed. Selah.
 
-4. You hold my eyelids open.    I am so troubled that I can`t speak.
+4. You hold my eyelids open.    I am so troubled that I can't speak.
 
 5. I have considered the days of old,    the years of ancient times.
 
@@ -2558,7 +2558,7 @@
 
 10. Then I thought, "I will appeal to this:    the years of the right hand of the Most High."
 
-11. I will remember Yah`s deeds;    for I will remember your wonders of old.
+11. I will remember Yah's deeds;    for I will remember your wonders of old.
 
 12. I will also meditate on all your work,    and consider your doings.
 
@@ -2595,11 +2595,11 @@
 
 7. that they might set their hope in God,    and not forget the works of God,    but keep his commandments,
 
-8. and might not be as their fathers,    a stubborn and rebellious generation,    a generation that didn`t make their hearts loyal,    whose spirit was not steadfast with God.
+8. and might not be as their fathers,    a stubborn and rebellious generation,    a generation that didn't make their hearts loyal,    whose spirit was not steadfast with God.
 
 9. The children of Ephraim, being armed and carrying bows,    turned back in the day of battle.
 
-10. They didn`t keep God`s covenant,    and refused to walk in his law.
+10. They didn't keep God's covenant,    and refused to walk in his law.
 
 11. They forgot his doings,    his wondrous works that he had shown them.
 
@@ -2623,7 +2623,7 @@
 
 21. Therefore Yahweh heard, and was angry.    A fire was kindled against Jacob,    anger also went up against Israel,
 
-22. because they didn`t believe in God,    and didn`t trust in his salvation.
+22. because they didn't believe in God,    and didn't trust in his salvation.
 
 23. Yet he commanded the skies above,    and opened the doors of heaven.
 
@@ -2639,11 +2639,11 @@
 
 29. So they ate, and were well filled.    He gave them their own desire.
 
-30. They didn`t turn from their cravings.    Their food was yet in their mouths,
+30. They didn't turn from their cravings.    Their food was yet in their mouths,
 
 31. when the anger of God went up against them,    killed some of the fattest of them,    and struck down the young men of Israel.
 
-32. For all this they still sinned,    and didn`t believe in his wondrous works.
+32. For all this they still sinned,    and didn't believe in his wondrous works.
 
 33. Therefore he consumed their days in vanity,    and their years in terror.
 
@@ -2655,15 +2655,15 @@
 
 37. For their heart was not right with him,    neither were they faithful in his covenant.
 
-38. But he, being merciful, forgave iniquity, and didn`t destroy       them.    Yes, many times he turned his anger away,    and didn`t stir up all his wrath.
+38. But he, being merciful, forgave iniquity, and didn't destroy       them.    Yes, many times he turned his anger away,    and didn't stir up all his wrath.
 
-39. He remembered that they were but flesh,    a wind that passes away, and doesn`t come again.
+39. He remembered that they were but flesh,    a wind that passes away, and doesn't come again.
 
 40. How often they rebelled against him in the wilderness,    and grieved him in the desert!
 
 41. They turned again and tempted God,    and provoked the Holy One of Israel.
 
-42. They didn`t remember his hand,    nor the day when he redeemed them from the adversary;
+42. They didn't remember his hand,    nor the day when he redeemed them from the adversary;
 
 43. how he set his signs in Egypt,    his wonders in the field of Zoan,
 
@@ -2679,19 +2679,19 @@
 
 49. He threw on them the fierceness of his anger,    wrath, indignation, and trouble,    and a band of angels of evil.
 
-50. He made a path for his anger.    He didn`t spare their soul from death,    but gave their life over to the pestilence,
+50. He made a path for his anger.    He didn't spare their soul from death,    but gave their life over to the pestilence,
 
 51. and struck all the firstborn in Egypt,    the chief of their strength in the tents of Ham.
 
 52. But he led forth his own people like sheep,    and guided them in the wilderness like a flock.
 
-53. He led them safely, so that they weren`t afraid,    but the sea overwhelmed their enemies.
+53. He led them safely, so that they weren't afraid,    but the sea overwhelmed their enemies.
 
 54. He brought them to the border of his sanctuary,    to this mountain, which his right hand had taken.
 
 55. He also drove out the nations before them,    allotted them for an inheritance by line,    and made the tribes of Israel to dwell in their tents.
 
-56. Yet they tempted and rebelled against the Most High God,    and didn`t keep his testimonies;
+56. Yet they tempted and rebelled against the Most High God,    and didn't keep his testimonies;
 
 57. but turned back, and dealt treacherously like their fathers.    They were turned aside like a deceitful bow.
 
@@ -2701,19 +2701,19 @@
 
 60. So that he forsook the tent of Shiloh,    the tent which he placed among men;
 
-61. and delivered his strength into captivity,    his glory into the adversary`s hand.
+61. and delivered his strength into captivity,    his glory into the adversary's hand.
 
 62. He also gave his people over to the sword,    and was angry with his inheritance.
 
 63. Fire devoured their young men.    Their virgins had no wedding song.
 
-64. Their priests fell by the sword,    and their widows couldn`t weep.
+64. Their priests fell by the sword,    and their widows couldn't weep.
 
 65. Then the Lord awakened as one out of sleep,    like a mighty man who shouts by reason of wine.
 
 66. He struck his adversaries backward.    He put them to a perpetual reproach.
 
-67. Moreover he rejected the tent of Joseph,    and didn`t choose the tribe of Ephraim,
+67. Moreover he rejected the tent of Joseph,    and didn't choose the tribe of Ephraim,
 
 68. But chose the tribe of Judah,    Mount Zion which he loved.
 
@@ -2738,15 +2738,15 @@
 
 5. How long, Yahweh?    Will you be angry forever?    Will your jealousy burn like fire?
 
-6. Pour out your wrath on the nations that don`t know you;    on the kingdoms that don`t call on your name;
+6. Pour out your wrath on the nations that don't know you;    on the kingdoms that don't call on your name;
 
 7. For they have devoured Jacob,    and destroyed his homeland.
 
-8. Don`t hold the iniquities of our forefathers against us.    Let your tender mercies speedily meet us,    for we are in desperate need.
+8. Don't hold the iniquities of our forefathers against us.    Let your tender mercies speedily meet us,    for we are in desperate need.
 
-9. Help us, God of our salvation, for the glory of your name.    Deliver us, and forgive our sins, for your name`s sake.
+9. Help us, God of our salvation, for the glory of your name.    Deliver us, and forgive our sins, for your name's sake.
 
-10. Why should the nations say, "Where is their God?"    Let it be known among the nations, before our eyes,    that vengeance for your servants` blood is being poured out.
+10. Why should the nations say, "Where is their God?"    Let it be known among the nations, before our eyes,    that vengeance for your servants' blood is being poured out.
 
 11. Let the sighing of the prisoner come before you.    According to the greatness of your power, preserve those who are       sentenced to death.
 
@@ -2775,7 +2775,7 @@
 
 9. You cleared the ground for it.    It took deep root, and filled the land.
 
-10. The mountains were covered with its shadow.    Its boughs were like God`s cedars.
+10. The mountains were covered with its shadow.    Its boughs were like God's cedars.
 
 11. It sent out its branches to the sea,    Its shoots to the River.
 
@@ -2787,7 +2787,7 @@
 
 15. the stock which your right hand planted,    the branch that you made strong for yourself.
 
-16. It`s burned with fire.    It`s cut down.    They perish at your rebuke.
+16. It's burned with fire.    It's cut down.    They perish at your rebuke.
 
 17. Let your hand be on the man of your right hand,    on the son of man whom you made strong for yourself.
 
@@ -2806,7 +2806,7 @@
 
 4. For it is a statute for Israel,    an ordinance of the God of Jacob.
 
-5. He appointed it in Joseph for a testimony,    when he went out over the land of Egypt,    I heard a language that I didn`t know.
+5. He appointed it in Joseph for a testimony,    when he went out over the land of Egypt,    I heard a language that I didn't know.
 
 6. "I removed his shoulder from the burden.    His hands were freed from the basket.
 
@@ -2818,7 +2818,7 @@
 
 10. I am Yahweh, your God,    who brought you up out of the land of Egypt.    Open your mouth wide, and I will fill it.
 
-11. But my people didn`t listen to my voice.    Israel desired none of me.
+11. But my people didn't listen to my voice.    Israel desired none of me.
 
 12. So I let them go after the stubbornness of their hearts,    that they might walk in their own counsels.
 
@@ -2841,7 +2841,7 @@
 
 4. Rescue the weak and needy.    Deliver them out of the hand of the wicked."
 
-5. They don`t know, neither do they understand.    They walk back and forth in darkness.    All the foundations of the earth are shaken.
+5. They don't know, neither do they understand.    They walk back and forth in darkness.    All the foundations of the earth are shaken.
 
 6. I said, "You are gods,    all of you are sons of the Most High.
 
@@ -2852,13 +2852,13 @@
 
 ## Chapter 83
 
-1. God, don`t keep silent.    Don`t keep silent,    and don`t be still, God.
+1. God, don't keep silent.    Don't keep silent,    and don't be still, God.
 
 2. For, behold, your enemies are stirred up.    Those who hate you have lifted up their heads.
 
 3. They conspire with cunning against your people.    They plot against your cherished ones.
 
-4. "Come," they say, "and let`s destroy them as a nation,    that the name of Israel may be remembered no more."
+4. "Come," they say, "and let's destroy them as a nation,    that the name of Israel may be remembered no more."
 
 5. For they have conspired together with one mind.    They form an alliance against you.
 
@@ -2874,7 +2874,7 @@
 
 11. Make their nobles like Oreb and Zeeb;    yes, all their princes like Zebah and Zalmunna;
 
-12. who said, "Let us take possession of God`s pasturelands."
+12. who said, "Let us take possession of God's pasturelands."
 
 13. My God, make them like tumbleweed;    like chaff before the wind.
 
@@ -2928,7 +2928,7 @@
 
 5. Will you be angry with us forever?    Will you draw out your anger to all generations?
 
-6. Won`t you revive us again,    that your people may rejoice in you?
+6. Won't you revive us again,    that your people may rejoice in you?
 
 7. Show us your loving kindness, Yahweh.    Grant us your salvation.
 
@@ -2973,7 +2973,7 @@
 
 13. For your loving kindness is great toward me.    You have delivered my soul from the lowest Sheol.
 
-14. God, the proud have risen up against me.    A company of violent men have sought after my soul,    and they don`t hold regard for you before them.
+14. God, the proud have risen up against me.    A company of violent men have sought after my soul,    and they don't hold regard for you before them.
 
 15. But you, Lord, are a merciful and gracious God,    slow to anger, and abundant in loving kindness and truth.
 
@@ -3015,7 +3015,7 @@
 
 7. Your wrath lies heavily on me.    You have afflicted me with all your waves. Selah.
 
-8. You have taken my friends from me.    You have made me an abomination to them.    I am confined, and I can`t escape.
+8. You have taken my friends from me.    You have made me an abomination to them.    I am confined, and I can't escape.
 
 9. My eyes are dim from grief.    I have called on you daily, Yahweh.    I have spread out my hands to you.
 
@@ -3046,7 +3046,7 @@
 
 3. "I have made a covenant with my chosen one,    I have sworn to David, my servant,
 
-4. `I will establish your seed forever,    and build up your throne to all generations.`" Selah.
+4. 'I will establish your seed forever,    and build up your throne to all generations.'" Selah.
 
 5. The heavens will praise your wonders, Yahweh;    your faithfulness also in the assembly of the holy ones.
 
@@ -3090,7 +3090,7 @@
 
 25. I will set his hand also on the sea,    and his right hand on the rivers.
 
-26. He will call to me, `You are my Father,    my God, and the rock of my salvation!`
+26. He will call to me, 'You are my Father,    my God, and the rock of my salvation!'
 
 27. I will also appoint him my firstborn,    the highest of the kings of the earth.
 
@@ -3098,9 +3098,9 @@
 
 29. I will also make his seed endure forever,    and his throne as the days of heaven.
 
-30. If his children forsake my law,    and don`t walk in my ordinances;
+30. If his children forsake my law,    and don't walk in my ordinances;
 
-31. if they break my statutes,    and don`t keep my commandments;
+31. if they break my statutes,    and don't keep my commandments;
 
 32. then I will punish their sin with the rod,    and their iniquity with stripes.
 
@@ -3124,7 +3124,7 @@
 
 42. You have exalted the right hand of his adversaries.    You have made all of his enemies rejoice.
 
-43. Yes, you turn back the edge of his sword,    and haven`t supported him in battle.
+43. Yes, you turn back the edge of his sword,    and haven't supported him in battle.
 
 44. You have ended his splendor,    and thrown his throne down to the ground.
 
@@ -3206,7 +3206,7 @@
 
 11. For he will put his angels in charge of you,    to guard you in all your ways.
 
-12. They will bear you up in their hands,    so that you won`t dash your foot against a stone.
+12. They will bear you up in their hands,    so that you won't dash your foot against a stone.
 
 13. You will tread on the lion and cobra.    You will trample the young lion and the serpent underfoot.
 
@@ -3229,7 +3229,7 @@
 
 5. How great are your works, Yahweh!    Your thoughts are very deep.
 
-6. A senseless man doesn`t know,    neither does a fool understand this:
+6. A senseless man doesn't know,    neither does a fool understand this:
 
 7. though the wicked spring up as the grass,    and all the evildoers flourish,    they will be destroyed forever.
 
@@ -3243,7 +3243,7 @@
 
 12. The righteous shall flourish like the palm tree.    He will grow like a cedar in Lebanon.
 
-13. They are planted in Yahweh`s house.    They will flourish in our God`s courts.
+13. They are planted in Yahweh's house.    They will flourish in our God's courts.
 
 14. They will still bring forth fruit in old age.    They will be full of sap and green,
 
@@ -3252,7 +3252,7 @@
 
 ## Chapter 93
 
-1. Yahweh reigns!    He is clothed with majesty!    Yahweh is armed with strength. The world also is established.    It can`t be moved.
+1. Yahweh reigns!    He is clothed with majesty!    Yahweh is armed with strength. The world also is established.    It can't be moved.
 
 2. Your throne is established from long ago.    You are from everlasting.
 
@@ -3277,13 +3277,13 @@
 
 6. They kill the widow and the alien,    and murder the fatherless.
 
-7. They say, "Yah will not see,    neither will Jacob`s God consider."
+7. They say, "Yah will not see,    neither will Jacob's God consider."
 
 8. Consider, you senseless among the people;    you fools, when will you be wise?
 
-9. He who implanted the ear, won`t he hear?    He who formed the eye, won`t he see?
+9. He who implanted the ear, won't he hear?    He who formed the eye, won't he see?
 
-10. He who disciplines the nations, won`t he punish?    He who teaches man knows.
+10. He who disciplines the nations, won't he punish?    He who teaches man knows.
 
 11. Yahweh knows the thoughts of man,    that they are futile.
 
@@ -3291,7 +3291,7 @@
 
 13. that you may give him rest from the days of adversity,    until the pit is dug for the wicked.
 
-14. For Yahweh won`t reject his people,    neither will he forsake his inheritance.
+14. For Yahweh won't reject his people,    neither will he forsake his inheritance.
 
 15. For judgment will return to righteousness.    All the upright in heart shall follow it.
 
@@ -3314,9 +3314,9 @@
 
 ## Chapter 95
 
-1. Oh come, let`s sing to Yahweh.    Let`s shout aloud to the rock of our salvation!
+1. Oh come, let's sing to Yahweh.    Let's shout aloud to the rock of our salvation!
 
-2. Let`s come before his presence with thanksgiving.    Let`s extol him with songs!
+2. Let's come before his presence with thanksgiving.    Let's extol him with songs!
 
 3. For Yahweh is a great God,    a great King above all gods.
 
@@ -3324,17 +3324,17 @@
 
 5. The sea is his, and he made it.    His hands formed the dry land.
 
-6. Oh come, let`s worship and bow down.    Let`s kneel before Yahweh, our Maker,
+6. Oh come, let's worship and bow down.    Let's kneel before Yahweh, our Maker,
 
 7. for he is our God.    We are the people of his pasture,    and the sheep in his care. Today, oh that you would hear his voice!
 
-8. Don`t harden your heart, as at Meribah,    as in the day of Massah in the wilderness,
+8. Don't harden your heart, as at Meribah,    as in the day of Massah in the wilderness,
 
 9. when your fathers tempted me,    tested me, and saw my work.
 
 10. Forty long years I was grieved with that generation,    and said, "It is a people that errs in their heart.    They have not known my ways."
 
-11. Therefore I swore in my wrath,    "They won`t enter into my rest."   Psalm 96
+11. Therefore I swore in my wrath,    "They won't enter into my rest."   Psalm 96
 
 
 ## Chapter 96
@@ -3357,7 +3357,7 @@
 
 9. Worship Yahweh in holy array.    Tremble before him, all the earth.
 
-10. Say among the nations, "Yahweh reigns."    The world is also established.    It can`t be moved.    He will judge the peoples with equity.
+10. Say among the nations, "Yahweh reigns."    The world is also established.    It can't be moved.    He will judge the peoples with equity.
 
 11. Let the heavens be glad, and let the earth rejoice.    Let the sea roar, and its fullness!
 
@@ -3405,7 +3405,7 @@
 
 5. Sing praises to Yahweh with the harp,    with the harp and the voice of melody.
 
-6. With trumpets and sound of the ram`s horn,    make a joyful noise before the King, Yahweh.
+6. With trumpets and sound of the ram's horn,    make a joyful noise before the King, Yahweh.
 
 7. Let the sea roar with its fullness;    the world, and those who dwell therein.
 
@@ -3422,7 +3422,7 @@
 
 3. Let them praise your great and awesome name.    He is Holy!
 
-4. The King`s strength also loves justice.    You do establish equity.    You execute justice and righteousness in Jacob.
+4. The King's strength also loves justice.    You do establish equity.    You execute justice and righteousness in Jacob.
 
 5. Exalt Yahweh our God.    Worship at his footstool.    He is Holy!
 
@@ -3458,20 +3458,20 @@
 
 4. A perverse heart will be far from me.    I will have nothing to do with evil.
 
-5. I will silence whoever secretly slanders his neighbor.    I won`t tolerate one who is haughty and conceited.
+5. I will silence whoever secretly slanders his neighbor.    I won't tolerate one who is haughty and conceited.
 
 6. My eyes will be on the faithful of the land,    that they may dwell with me. He who walks in a perfect way,    he will serve me.
 
-7. He who practices deceit won`t dwell within my house.    He who speaks falsehood won`t be established before my eyes.
+7. He who practices deceit won't dwell within my house.    He who speaks falsehood won't be established before my eyes.
 
-8. Morning by morning, I will destroy all the wicked of the land;    to cut off all the workers of iniquity from Yahweh`s city.   Psalm 102  A Prayer of the afflicted, when he is overwhelmed and pours out his complaint before Yahweh.
+8. Morning by morning, I will destroy all the wicked of the land;    to cut off all the workers of iniquity from Yahweh's city.   Psalm 102  A Prayer of the afflicted, when he is overwhelmed and pours out his complaint before Yahweh.
 
 
 ## Chapter 102
 
 1. Hear my prayer, Yahweh!    Let my cry come to you.
 
-2. Don`t hide your face from me in the day of my distress.    Turn your ear to me.    Answer me quickly in the day when I call.
+2. Don't hide your face from me in the day of my distress.    Turn your ear to me.    Answer me quickly in the day when I call.
 
 3. For my days consume away like smoke.    My bones are burned as a torch.
 
@@ -3515,7 +3515,7 @@
 
 23. He weakened my strength along the course.    He shortened my days.
 
-24. I said, "My God, don`t take me away in the midst of my days.    Your years are throughout all generations.
+24. I said, "My God, don't take me away in the midst of my days.    Your years are throughout all generations.
 
 25. Of old, you laid the foundation of the earth.    The heavens are the work of your hands.
 
@@ -3530,13 +3530,13 @@
 
 1. Praise Yahweh, my soul!    All that is within me, praise his holy name!
 
-2. Praise Yahweh, my soul,    and don`t forget all his benefits;
+2. Praise Yahweh, my soul,    and don't forget all his benefits;
 
 3. who forgives all your sins;    who heals all your diseases;
 
 4. who redeems your life from destruction;    who crowns you with loving kindness and tender mercies;
 
-5. who satisfies your desire with good things,    so that your youth is renewed like the eagle`s.
+5. who satisfies your desire with good things,    so that your youth is renewed like the eagle's.
 
 6. Yahweh executes righteous acts,    and justice for all who are oppressed.
 
@@ -3560,7 +3560,7 @@
 
 16. For the wind passes over it, and it is gone.    Its place remembers it no more.
 
-17. But Yahweh`s loving kindness is from everlasting to       everlasting with those who fear him,    his righteousness to children`s children;
+17. But Yahweh's loving kindness is from everlasting to       everlasting with those who fear him,    his righteousness to children's children;
 
 18. to those who keep his covenant,    to those who remember to obey his precepts.
 
@@ -3591,7 +3591,7 @@
 
 8. The mountains rose,    the valleys sank down,    to the place which you had assigned to them.
 
-9. You have set a boundary that they may not pass over;    that they don`t turn again to cover the earth.
+9. You have set a boundary that they may not pass over;    that they don't turn again to cover the earth.
 
 10. He sends forth springs into the valleys.    They run among the mountains.
 
@@ -3603,9 +3603,9 @@
 
 14. He causes the grass to grow for the livestock,    and plants for man to cultivate,    that he may bring forth food out of the earth:
 
-15. wine that makes glad the heart of man,    oil to make his face to shine,    and bread that strengthens man`s heart.
+15. wine that makes glad the heart of man,    oil to make his face to shine,    and bread that strengthens man's heart.
 
-16. Yahweh`s trees are well watered,    the cedars of Lebanon, which he has planted;
+16. Yahweh's trees are well watered,    the cedars of Lebanon, which he has planted;
 
 17. where the birds make their nests.    The stork makes its home in the fir trees.
 
@@ -3676,7 +3676,7 @@
 
 14. He allowed no one to do them wrong.    Yes, he reproved kings for their sakes,
 
-15. "Don`t touch my anointed ones!    Do my prophets no harm!"
+15. "Don't touch my anointed ones!    Do my prophets no harm!"
 
 16. He called for a famine on the land.    He destroyed the food supplies.
 
@@ -3684,7 +3684,7 @@
 
 18. They bruised his feet with shackles.    His neck was locked in irons,
 
-19. until the time that his word happened,    and Yahweh`s word proved him true.
+19. until the time that his word happened,    and Yahweh's word proved him true.
 
 20. The king sent and freed him;    even the ruler of peoples, and let him go free.
 
@@ -3702,7 +3702,7 @@
 
 27. They performed miracles among them,    and wonders in the land of Ham.
 
-28. He sent darkness, and made it dark.    They didn`t rebel against his words.
+28. He sent darkness, and made it dark.    They didn't rebel against his words.
 
 29. He turned their waters into blood,    and killed their fish.
 
@@ -3753,9 +3753,9 @@
 
 6. We have sinned with our fathers.    We have committed iniquity.    We have done wickedly.
 
-7. Our fathers didn`t understand your wonders in Egypt.    They didn`t remember the multitude of your loving kindnesses,    but were rebellious at the sea, even at the Red Sea.
+7. Our fathers didn't understand your wonders in Egypt.    They didn't remember the multitude of your loving kindnesses,    but were rebellious at the sea, even at the Red Sea.
 
-8. Nevertheless he saved them for his name`s sake,    that he might make his mighty power known.
+8. Nevertheless he saved them for his name's sake,    that he might make his mighty power known.
 
 9. He rebuked the Red Sea also, and it was dried up;    so he led them through the depths, as through a desert.
 
@@ -3765,13 +3765,13 @@
 
 12. Then they believed his words.    They sang his praise.
 
-13. They soon forgot his works.    They didn`t wait for his counsel,
+13. They soon forgot his works.    They didn't wait for his counsel,
 
 14. but gave in to craving in the desert,    and tested God in the wasteland.
 
 15. He gave them their request,    but sent leanness into their soul.
 
-16. They envied Moses also in the camp,    and Aaron, Yahweh`s saint.
+16. They envied Moses also in the camp,    and Aaron, Yahweh's saint.
 
 17. The earth opened and swallowed up Dathan,    and covered the company of Abiram.
 
@@ -3785,11 +3785,11 @@
 
 22. Wondrous works in the land of Ham,    and awesome things by the Red Sea.
 
-23. Therefore he said that he would destroy them,    had Moses, his chosen, not stood before him in the breach,    to turn away his wrath, so that he wouldn`t destroy them.
+23. Therefore he said that he would destroy them,    had Moses, his chosen, not stood before him in the breach,    to turn away his wrath, so that he wouldn't destroy them.
 
-24. Yes, they despised the pleasant land.    They didn`t believe his word,
+24. Yes, they despised the pleasant land.    They didn't believe his word,
 
-25. but murmured in their tents,    and didn`t listen to Yahweh`s voice.
+25. but murmured in their tents,    and didn't listen to Yahweh's voice.
 
 26. Therefore he swore to them    that he would overthrow them in the wilderness,
 
@@ -3807,7 +3807,7 @@
 
 33. because they were rebellious against his spirit,    he spoke rashly with his lips.
 
-34. They didn`t destroy the peoples,    as Yahweh commanded them,
+34. They didn't destroy the peoples,    as Yahweh commanded them,
 
 35. but mixed themselves with the nations,    and learned their works.
 
@@ -3886,13 +3886,13 @@
 
 23. Those who go down to the sea in ships,    who do business in great waters;
 
-24. These see Yahweh`s works,    and his wonders in the deep.
+24. These see Yahweh's works,    and his wonders in the deep.
 
 25. For he commands, and raises the stormy wind,    which lifts up its waves.
 
 26. They mount up to the sky; they go down again to the depths.    Their soul melts away because of trouble.
 
-27. They reel back and forth, and stagger like a drunken man,    and are at their wits` end.
+27. They reel back and forth, and stagger like a drunken man,    and are at their wits' end.
 
 28. Then they cry to Yahweh in their trouble,    and he brings them out of their distress.
 
@@ -3914,7 +3914,7 @@
 
 37. sow fields, plant vineyards,    and reap the fruits of increase.
 
-38. He blesses them also, so that they are multiplied greatly.    He doesn`t allow their livestock to decrease.
+38. He blesses them also, so that they are multiplied greatly.    He doesn't allow their livestock to decrease.
 
 39. Again, they are diminished and bowed down    through oppression, trouble, and sorrow.
 
@@ -3949,7 +3949,7 @@
 
 10. Who will bring me into the fortified city?    Who has led me to Edom?
 
-11. Haven`t you rejected us, God?    You don`t go forth, God, with our armies.
+11. Haven't you rejected us, God?    You don't go forth, God, with our armies.
 
 12. Give us help against the enemy,    for the help of man is vain.
 
@@ -3958,7 +3958,7 @@
 
 ## Chapter 109
 
-1. God of my praise, don`t remain silent,
+1. God of my praise, don't remain silent,
 
 2. for they have opened the mouth of the wicked and the mouth       of deceit against me.    They have spoken to me with a lying tongue.
 
@@ -3984,13 +3984,13 @@
 
 13. Let his posterity be cut off.    In the generation following let their name be blotted out.
 
-14. Let the iniquity of his fathers be remembered by Yahweh.    Don`t let the sin of his mother be blotted out.
+14. Let the iniquity of his fathers be remembered by Yahweh.    Don't let the sin of his mother be blotted out.
 
 15. Let them be before Yahweh continually,    that he may cut off the memory of them from the earth;
 
-16. because he didn`t remember to show kindness,    but persecuted the poor and needy man,    the broken in heart, to kill them.
+16. because he didn't remember to show kindness,    but persecuted the poor and needy man,    the broken in heart, to kill them.
 
-17. Yes, he loved cursing, and it came to him.    He didn`t delight in blessing, and it was far from him.
+17. Yes, he loved cursing, and it came to him.    He didn't delight in blessing, and it was far from him.
 
 18. He clothed himself also with cursing as with his garment.    It came into his inward parts like water,    like oil into his bones.
 
@@ -3998,7 +3998,7 @@
 
 20. This is the reward of my adversaries from Yahweh,    of those who speak evil against my soul.
 
-21. But deal with me, Yahweh the Lord, for your name`s sake,    because your loving kindness is good, deliver me;
+21. But deal with me, Yahweh the Lord, for your name's sake,    because your loving kindness is good, deliver me;
 
 22. for I am poor and needy.    My heart is wounded within me.
 
@@ -4042,7 +4042,7 @@
 
 1. Praise Yah!    I will give thanks to Yahweh with my whole heart,    in the council of the upright, and in the congregation.
 
-2. Yahweh`s works are great,    pondered by all those who delight in them.
+2. Yahweh's works are great,    pondered by all those who delight in them.
 
 3. His work is honor and majesty.    His righteousness endures forever.
 
@@ -4090,7 +4090,7 @@
 
 2. Blessed be the name of Yahweh,    from this time forth and forevermore.
 
-3. From the rising of the sun to the going down of the same,    Yahweh`s name is to be praised.
+3. From the rising of the sun to the going down of the same,    Yahweh's name is to be praised.
 
 4. Yahweh is high above all nations,    his glory above the heavens.
 
@@ -4126,19 +4126,19 @@
 
 ## Chapter 115
 
-1. Not to us, Yahweh, not to us,    but to your name give glory,    for your loving kindness, and for your truth`s sake.
+1. Not to us, Yahweh, not to us,    but to your name give glory,    for your loving kindness, and for your truth's sake.
 
 2. Why should the nations say,    "Where is their God, now?"
 
 3. But our God is in the heavens.    He does whatever he pleases.
 
-4. Their idols are silver and gold,    the work of men`s hands.
+4. Their idols are silver and gold,    the work of men's hands.
 
-5. They have mouths, but they don`t speak.    They have eyes, but they don`t see.
+5. They have mouths, but they don't speak.    They have eyes, but they don't see.
 
-6. They have ears, but they don`t hear.    They have noses, but they don`t smell.
+6. They have ears, but they don't hear.    They have noses, but they don't smell.
 
-7. They have hands, but they don`t feel.    They have feet, but they don`t walk,    neither do they speak through their throat.
+7. They have hands, but they don't feel.    They have feet, but they don't walk,    neither do they speak through their throat.
 
 8. Those who make them will be like them;    yes, everyone who trusts in them.
 
@@ -4158,7 +4158,7 @@
 
 16. The heavens are the heavens of Yahweh;    but the earth has he given to the children of men.
 
-17. The dead don`t praise Yah,    neither any who go down into silence;
+17. The dead don't praise Yah,    neither any who go down into silence;
 
 18. But we will bless Yah,    from this time forth and forevermore. Praise Yah!   Psalm 116
 
@@ -4201,14 +4201,14 @@
 
 18. I will pay my vows to Yahweh,    yes, in the presence of all his people,
 
-19. in the courts of Yahweh`s house,    in the midst of you, Jerusalem. Praise Yah!   Psalm 117
+19. in the courts of Yahweh's house,    in the midst of you, Jerusalem. Praise Yah!   Psalm 117
 
 
 ## Chapter 117
 
 1. Praise Yahweh, all you nations!    Extol him, all you peoples!
 
-2. For his loving kindness is great toward us.    Yahweh`s faithfulness endures forever. Praise Yah!   Psalm 118
+2. For his loving kindness is great toward us.    Yahweh's faithfulness endures forever. Praise Yah!   Psalm 118
 
 
 ## Chapter 118
@@ -4245,7 +4245,7 @@
 
 16. The right hand of Yahweh is exalted!    The right hand of Yahweh does valiantly!"
 
-17. I will not die, but live,    and declare Yah`s works.
+17. I will not die, but live,    and declare Yah's works.
 
 18. Yah has punished me severely,    but he has not given me over to death.
 
@@ -4257,7 +4257,7 @@
 
 22. The stone which the builders rejected has become the head of       the corner.
 
-23. This is Yahweh`s doing.    It is marvelous in our eyes.
+23. This is Yahweh's doing.    It is marvelous in our eyes.
 
 24. This is the day that Yahweh has made.    We will rejoice and be glad in it!
 
@@ -4274,7 +4274,7 @@
 
 ## Chapter 119
 
-1. Blessed are those whose ways are blameless,    who walk according to Yahweh`s law.
+1. Blessed are those whose ways are blameless,    who walk according to Yahweh's law.
 
 2. Blessed are those who keep his statutes,    who seek him with their whole heart.
 
@@ -4284,15 +4284,15 @@
 
 5. Oh that my ways were steadfast    to obey your statutes!
 
-6. Then I wouldn`t be disappointed,    when I consider all of your commandments.
+6. Then I wouldn't be disappointed,    when I consider all of your commandments.
 
 7. I will give thanks to you with uprightness of heart,    when I learn your righteous judgments.
 
-8. I will observe your statutes.    Don`t utterly forsake me.  BET
+8. I will observe your statutes.    Don't utterly forsake me.  BET
 
 9. How can a young man keep his way pure?    By living according to your word.
 
-10. With my whole heart, I have sought you.    Don`t let me wander from your commandments.
+10. With my whole heart, I have sought you.    Don't let me wander from your commandments.
 
 11. I have hidden your word in my heart,    that I might not sin against you.
 
@@ -4310,7 +4310,7 @@
 
 18. Open my eyes,    that I may see wondrous things out of your law.
 
-19. I am a stranger on the earth.    Don`t hide your commandments from me.
+19. I am a stranger on the earth.    Don't hide your commandments from me.
 
 20. My soul is consumed with longing for your ordinances at all       times.
 
@@ -4334,7 +4334,7 @@
 
 30. I have chosen the way of truth.    I have set your ordinances before me.
 
-31. I cling to your statutes, Yahweh.    Don`t let me be disappointed.
+31. I cling to your statutes, Yahweh.    Don't let me be disappointed.
 
 32. I run in the path of your commandments,    for you have set my heart free.  HEY
 
@@ -4358,7 +4358,7 @@
 
 42. So I will have an answer for him who reproaches me,    for I trust in your word.
 
-43. Don`t snatch the word of truth out of my mouth,    for I put my hope in your ordinances.
+43. Don't snatch the word of truth out of my mouth,    for I put my hope in your ordinances.
 
 44. So I will obey your law continually,    forever and ever.
 
@@ -4374,7 +4374,7 @@
 
 50. This is my comfort in my affliction,    for your word has revived me.
 
-51. The arrogant mock me excessively,    but I don`t swerve from your law.
+51. The arrogant mock me excessively,    but I don't swerve from your law.
 
 52. I remember your ordinances of old, Yahweh,    and have comforted myself.
 
@@ -4394,7 +4394,7 @@
 
 60. I will hurry, and not delay,    to obey your commandments.
 
-61. The ropes of the wicked bind me,    but I won`t forget your law.
+61. The ropes of the wicked bind me,    but I won't forget your law.
 
 62. At midnight I will rise to give thanks to you,    because of your righteous ordinances.
 
@@ -4438,7 +4438,7 @@
 
 82. My eyes fail for your word.    I say, "When will you comfort me?"
 
-83. For I have become like a wineskin in the smoke.    I don`t forget your statutes.
+83. For I have become like a wineskin in the smoke.    I don't forget your statutes.
 
 84. How many are the days of your servant?    When will you execute judgment on those who persecute me?
 
@@ -4446,7 +4446,7 @@
 
 86. All of your commandments are faithful.    They persecute me wrongfully.    Help me!
 
-87. They had almost wiped me from the earth,    but I didn`t forsake your precepts.
+87. They had almost wiped me from the earth,    but I didn't forsake your precepts.
 
 88. Preserve my life according to your loving kindness,    so I will obey the statutes of your mouth.  LAMED
 
@@ -4490,9 +4490,9 @@
 
 108. Accept, I beg you, the willing offerings of my mouth.    Yahweh, teach me your ordinances.
 
-109. My soul is continually in my hand,    yet I won`t forget your law.
+109. My soul is continually in my hand,    yet I won't forget your law.
 
-110. The wicked have laid a snare for me,    yet I haven`t gone astray from your precepts.
+110. The wicked have laid a snare for me,    yet I haven't gone astray from your precepts.
 
 111. I have taken your testimonies as a heritage forever,    for they are the joy of my heart.
 
@@ -4514,9 +4514,9 @@
 
 120. My flesh trembles for fear of you.    I am afraid of your judgments.  AYIN
 
-121. I have done what is just and righteous.    Don`t leave me to my oppressors.
+121. I have done what is just and righteous.    Don't leave me to my oppressors.
 
-122. Ensure your servant`s well-being.    Don`t let the proud oppress me.
+122. Ensure your servant's well-being.    Don't let the proud oppress me.
 
 123. My eyes fail looking for your salvation,    for your righteous word.
 
@@ -4538,13 +4538,13 @@
 
 132. Turn to me, and have mercy on me,    as you always do to those who love your name.
 
-133. Establish my footsteps in your word.    Don`t let any iniquity have dominion over me.
+133. Establish my footsteps in your word.    Don't let any iniquity have dominion over me.
 
 134. Redeem me from the oppression of man,    so I will observe your precepts.
 
 135. Make your face shine on your servant.    Teach me your statutes.
 
-136. Streams of tears run down my eyes,    because they don`t observe your law.  TZADI
+136. Streams of tears run down my eyes,    because they don't observe your law.  TZADI
 
 137. You are righteous, Yahweh.    Your judgments are upright.
 
@@ -4554,7 +4554,7 @@
 
 140. Your promises have been thoroughly tested,    and your servant loves them.
 
-141. I am small and despised.    I don`t forget your precepts.
+141. I am small and despised.    I don't forget your precepts.
 
 142. Your righteousness is an everlasting righteousness.    Your law is truth.
 
@@ -4578,17 +4578,17 @@
 
 152. Of old I have known from your testimonies,    that you have founded them forever.  RESH
 
-153. Consider my affliction, and deliver me,    for I don`t forget your law.
+153. Consider my affliction, and deliver me,    for I don't forget your law.
 
 154. Plead my cause, and redeem me!    Revive me according to your promise.
 
-155. Salvation is far from the wicked,    for they don`t seek your statutes.
+155. Salvation is far from the wicked,    for they don't seek your statutes.
 
 156. Great are your tender mercies, Yahweh.    Revive me according to your ordinances.
 
-157. Many are my persecutors and my adversaries.    I haven`t swerved from your testimonies.
+157. Many are my persecutors and my adversaries.    I haven't swerved from your testimonies.
 
-158. I look at the faithless with loathing,    because they don`t observe your word.
+158. I look at the faithless with loathing,    because they don't observe your word.
 
 159. Consider how I love your precepts.    Revive me, Yahweh, according to your loving kindness.
 
@@ -4624,7 +4624,7 @@
 
 175. Let my soul live, that I may praise you.    Let your ordinances help me.
 
-176. I have gone astray like a lost sheep.    Seek your servant, for I don`t forget your commandments.   Psalm 120  A Song of Ascents.
+176. I have gone astray like a lost sheep.    Seek your servant, for I don't forget your commandments.   Psalm 120  A Song of Ascents.
 
 
 ## Chapter 120
@@ -4665,21 +4665,21 @@
 
 ## Chapter 122
 
-1. I was glad when they said to me,    "Let`s go to Yahweh`s house!"
+1. I was glad when they said to me,    "Let's go to Yahweh's house!"
 
 2. Our feet are standing within your gates, Jerusalem;
 
 3. Jerusalem, that is built as a city that is compact together;
 
-4. where the tribes go up, even Yah`s tribes,    according to an ordinance for Israel,    to give thanks to the name of Yahweh.
+4. where the tribes go up, even Yah's tribes,    according to an ordinance for Israel,    to give thanks to the name of Yahweh.
 
-5. For there are set thrones for judgment,    the thrones of David`s house.
+5. For there are set thrones for judgment,    the thrones of David's house.
 
 6. Pray for the peace of Jerusalem.    Those who love you will prosper.
 
 7. Peace be within your walls,    and prosperity within your palaces.
 
-8. For my brothers` and companions` sakes,    I will now say, "Peace be within you."
+8. For my brothers' and companions' sakes,    I will now say, "Peace be within you."
 
 9. For the sake of the house of Yahweh our God,    I will seek your good.   Psalm 123  A Song of Ascents.
 
@@ -4709,18 +4709,18 @@
 
 6. Blessed be Yahweh,    who has not given us as a prey to their teeth.
 
-7. Our soul has escaped like a bird out of the fowler`s snare.    The snare is broken, and we have escaped.
+7. Our soul has escaped like a bird out of the fowler's snare.    The snare is broken, and we have escaped.
 
 8. Our help is in the name of Yahweh,    who made heaven and earth.   Psalm 125  A Song of Ascents.
 
 
 ## Chapter 125
 
-1. Those who trust in Yahweh are as Mount Zion,    which can`t be moved, but remains forever.
+1. Those who trust in Yahweh are as Mount Zion,    which can't be moved, but remains forever.
 
 2. As the mountains surround Jerusalem,    so Yahweh surrounds his people from this time forth and forevermore.
 
-3. For the scepter of wickedness won`t remain over the allotment       of the righteous;    so that the righteous won`t use their hands to do evil.
+3. For the scepter of wickedness won't remain over the allotment       of the righteous;    so that the righteous won't use their hands to do evil.
 
 4. Do good, Yahweh, to those who are good,    to those who are upright in their hearts.
 
@@ -4752,7 +4752,7 @@
 
 4. As arrows in the hand of a mighty man,    so are the children of youth.
 
-5. Happy is the man who has his quiver full of them.    They won`t be disappointed when they speak with their enemies in the       gate.   Psalm 128  A Song of Ascents.
+5. Happy is the man who has his quiver full of them.    They won't be disappointed when they speak with their enemies in the       gate.   Psalm 128  A Song of Ascents.
 
 
 ## Chapter 128
@@ -4767,7 +4767,7 @@
 
 5. May Yahweh bless you out of Zion,    and may you see the good of Jerusalem all the days of your life.
 
-6. Yes, may you see your children`s children.    Peace be upon Israel.   Psalm 129  A Song of Ascents.
+6. Yes, may you see your children's children.    Peace be upon Israel.   Psalm 129  A Song of Ascents.
 
 
 ## Chapter 129
@@ -4784,7 +4784,7 @@
 
 6. Let them be as the grass on the housetops,    which withers before it grows up;
 
-7. with which the reaper doesn`t fill his hand,    nor he who binds sheaves, his bosom.
+7. with which the reaper doesn't fill his hand,    nor he who binds sheaves, his bosom.
 
 8. Neither do those who go by say,    "The blessing of Yahweh be on you.    We bless you in the name of Yahweh."   Psalm 130  A Song of Ascents.
 
@@ -4810,7 +4810,7 @@
 
 ## Chapter 131
 
-1. Yahweh, my heart isn`t haughty, nor my eyes lofty;    nor do I concern myself with great matters,    or things too wonderful for me.
+1. Yahweh, my heart isn't haughty, nor my eyes lofty;    nor do I concern myself with great matters,    or things too wonderful for me.
 
 2. Surely I have stilled and quieted my soul,    like a weaned child with his mother,    like a weaned child is my soul within me.
 
@@ -4837,7 +4837,7 @@
 
 9. Let your priest be clothed with righteousness.    Let your saints shout for joy!"
 
-10. For your servant David`s sake,    don`t turn away the face of your anointed one.
+10. For your servant David's sake,    don't turn away the face of your anointed one.
 
 11. Yahweh has sworn to David in truth.    He will not turn from it:    "I will set the fruit of your body on your throne.
 
@@ -4860,14 +4860,14 @@
 
 1. See how good and how pleasant it is    for brothers to live together in unity!
 
-2. It is like the precious oil on the head,    that ran down on the beard,    even Aaron`s beard;    that came down on the edge of his robes;
+2. It is like the precious oil on the head,    that ran down on the beard,    even Aaron's beard;    that came down on the edge of his robes;
 
 3. like the dew of Hermon,    that comes down on the hills of Zion:    for there Yahweh gives the blessing,    even life forevermore.   Psalm 134  A Song of Ascents.
 
 
 ## Chapter 134
 
-1. Look! Praise Yahweh, all you servants of Yahweh,    who stand by night in Yahweh`s house!
+1. Look! Praise Yahweh, all you servants of Yahweh,    who stand by night in Yahweh's house!
 
 2. Lift up your hands in the sanctuary.    Praise Yahweh!
 
@@ -4878,7 +4878,7 @@
 
 1. Praise Yah!    Praise the name of Yahweh!    Praise him, you servants of Yahweh,
 
-2. you who stand in the house of Yahweh,    in the courts of our God`s house.
+2. you who stand in the house of Yahweh,    in the courts of our God's house.
 
 3. Praise Yah, for Yahweh is good.    Sing praises to his name, for that is pleasant.
 
@@ -4904,11 +4904,11 @@
 
 14. For Yahweh will judge his people,    and have compassion on his servants.
 
-15. The idols of the nations are silver and gold,    the work of men`s hands.
+15. The idols of the nations are silver and gold,    the work of men's hands.
 
-16. They have mouths, but they can`t speak.    They have eyes, but they can`t see.
+16. They have mouths, but they can't speak.    They have eyes, but they can't see.
 
-17. They have ears, but they can`t hear;    neither is there any breath in their mouths.
+17. They have ears, but they can't hear;    neither is there any breath in their mouths.
 
 18. Those who make them will be like them;    yes, everyone who trusts in them.
 
@@ -4982,11 +4982,11 @@
 
 3. For there, those who led us captive asked us for songs.    Those who tormented us demanded songs of joy:    "Sing us one of the songs of Zion!"
 
-4. How can we sing Yahweh`s song in a foreign land?
+4. How can we sing Yahweh's song in a foreign land?
 
 5. If I forget you, Jerusalem,    let my right hand forget its skill.
 
-6. Let my tongue stick to the roof of my mouth if I don`t remember       you;    if I don`t prefer Jerusalem above my chief joy.
+6. Let my tongue stick to the roof of my mouth if I don't remember       you;    if I don't prefer Jerusalem above my chief joy.
 
 7. Remember, Yahweh, against the children of Edom,    the day of Jerusalem;    who said, "Raze it!    Raze it even to its foundation!"
 
@@ -5005,13 +5005,13 @@
 
 4. All the kings of the earth will give you thanks, Yahweh,    for they have heard the words of your mouth.
 
-5. Yes, they will sing of the ways of Yahweh;    for great is Yahweh`s glory.
+5. Yes, they will sing of the ways of Yahweh;    for great is Yahweh's glory.
 
 6. For though Yahweh is high, yet he looks after the lowly;    but the proud, he knows from afar.
 
 7. Though I walk in the midst of trouble, you will revive me.    You will stretch forth your hand against the wrath of my enemies.    Your right hand will save me.
 
-8. Yahweh will fulfill that which concerns me;    your loving kindness, Yahweh, endures forever.    Don`t forsake the works of your own hands.   Psalm 139  For the Chief Musician. A Psalm by David.
+8. Yahweh will fulfill that which concerns me;    your loving kindness, Yahweh, endures forever.    Don't forsake the works of your own hands.   Psalm 139  For the Chief Musician. A Psalm by David.
 
 
 ## Chapter 139
@@ -5026,7 +5026,7 @@
 
 5. You hem me in behind and before.    You laid your hand on me.
 
-6. This knowledge is beyond me.    It`s lofty.    I can`t attain it.
+6. This knowledge is beyond me.    It's lofty.    I can't attain it.
 
 7. Where could I go from your Spirit?    Or where could I flee from your presence?
 
@@ -5038,13 +5038,13 @@
 
 11. If I say, "Surely the darkness will overwhelm me;    the light around me will be night;"
 
-12. even the darkness doesn`t hide from you,    but the night shines as the day.    The darkness is like light to you.
+12. even the darkness doesn't hide from you,    but the night shines as the day.    The darkness is like light to you.
 
-13. For you formed my inmost being.    You knit me together in my mother`s womb.
+13. For you formed my inmost being.    You knit me together in my mother's womb.
 
 14. I will give thanks to you,    for I am fearfully and wonderfully made. Your works are wonderful.    My soul knows that very well.
 
-15. My frame wasn`t hidden from you,    when I was made in secret,    woven together in the depths of the earth.
+15. My frame wasn't hidden from you,    when I was made in secret,    woven together in the depths of the earth.
 
 16. Your eyes saw my body.    In your book they were all written,    the days that were ordained for me,    when as yet there were none of them.
 
@@ -5056,7 +5056,7 @@
 
 20. For they speak against you wickedly.    Your enemies take your name in vain.
 
-21. Yahweh, don`t I hate those who hate you?    Am I not grieved with those who rise up against you?
+21. Yahweh, don't I hate those who hate you?    Am I not grieved with those who rise up against you?
 
 22. I hate them with perfect hatred.    They have become my enemies.
 
@@ -5071,7 +5071,7 @@
 
 2. those who devise mischief in their hearts.    They continually gather themselves together for war.
 
-3. They have sharpened their tongues like a serpent.    Viper`s poison is under their lips. Selah.
+3. They have sharpened their tongues like a serpent.    Viper's poison is under their lips. Selah.
 
 4. Yahweh, keep me from the hands of the wicked.    Preserve me from the violent men who have determined to trip my feet.
 
@@ -5081,13 +5081,13 @@
 
 7. Yahweh, the Lord, the strength of my salvation,    you have covered my head in the day of battle.
 
-8. Yahweh, don`t grant the desires of the wicked.    Don`t let their evil plans succeed, or they will become proud. Selah.
+8. Yahweh, don't grant the desires of the wicked.    Don't let their evil plans succeed, or they will become proud. Selah.
 
 9. As for the head of those who surround me,    let the mischief of their own lips cover them.
 
 10. Let burning coals fall on them.    Let them be thrown into the fire,    into miry pits, from where they never rise.
 
-11. An evil speaker won`t be established in the earth.    Evil will hunt the violent man to overthrow him.
+11. An evil speaker won't be established in the earth.    Evil will hunt the violent man to overthrow him.
 
 12. I know that Yahweh will maintain the cause of the afflicted,    and justice for the needy.
 
@@ -5102,15 +5102,15 @@
 
 3. Set a watch, Yahweh, before my mouth.    Keep the door of my lips.
 
-4. Don`t incline my heart to any evil thing,    to practice deeds of wickedness with men who work iniquity.    Don`t let me eat of their delicacies.
+4. Don't incline my heart to any evil thing,    to practice deeds of wickedness with men who work iniquity.    Don't let me eat of their delicacies.
 
-5. Let the righteous strike me, it is kindness;    let him reprove me, it is like oil on the head;    don`t let my head refuse it;    Yet my prayer is always against evil deeds.
+5. Let the righteous strike me, it is kindness;    let him reprove me, it is like oil on the head;    don't let my head refuse it;    Yet my prayer is always against evil deeds.
 
 6. Their judges are thrown down by the sides of the rock.    They will hear my words, for they are well spoken.
 
 7. "As when one plows and breaks up the earth,    our bones are scattered at the mouth of Sheol."
 
-8. For my eyes are on you, Yahweh, the Lord.    In you, I take refuge.    Don`t leave my soul destitute.
+8. For my eyes are on you, Yahweh, the Lord.    In you, I take refuge.    Don't leave my soul destitute.
 
 9. Keep me from the snare which they have laid for me,    from the traps of the workers of iniquity.
 
@@ -5138,7 +5138,7 @@
 
 1. Hear my prayer, Yahweh.    Listen to my petitions.    In your faithfulness and righteousness, relieve me.
 
-2. Don`t enter into judgment with your servant,    for in your sight no man living is righteous.
+2. Don't enter into judgment with your servant,    for in your sight no man living is righteous.
 
 3. For the enemy pursues my soul.    He has struck my life down to the ground.    He has made me live in dark places, as those who have been long dead.
 
@@ -5148,7 +5148,7 @@
 
 6. I spread forth my hands to you.    My soul thirsts for you, like a parched land. Selah.
 
-7. Hurry to answer me, Yahweh.    My spirit fails. Don`t hide your face from me,    so that I don`t become like those who go down into the pit.
+7. Hurry to answer me, Yahweh.    My spirit fails. Don't hide your face from me,    so that I don't become like those who go down into the pit.
 
 8. Cause me to hear your loving kindness in the morning,    for I trust in you. Cause me to know the way in which I should walk,    for I lift up my soul to you.
 
@@ -5156,7 +5156,7 @@
 
 10. Teach me to do your will,    for you are my God. Your Spirit is good.    Lead me in the land of uprightness.
 
-11. Revive me, Yahweh, for your name`s sake.    In your righteousness, bring my soul out of trouble.
+11. Revive me, Yahweh, for your name's sake.    In your righteousness, bring my soul out of trouble.
 
 12. In your loving kindness, cut off my enemies,    and destroy all those who afflict my soul,    For I am your servant.   Psalm 144  By David.
 
@@ -5245,7 +5245,7 @@
 
 2. While I live, I will praise Yahweh.    I will sing praises to my God as long as I exist.
 
-3. Don`t put your trust in princes,    each a son of man in whom there is no help.
+3. Don't put your trust in princes,    each a son of man in whom there is no help.
 
 4. His spirit departs, and he returns to the earth.    In that very day, his thoughts perish.
 
@@ -5282,7 +5282,7 @@
 
 9. He provides food for the livestock,    and for the young ravens when they call.
 
-10. He doesn`t delight in the strength of the horse.    He takes no pleasure in the legs of a man.
+10. He doesn't delight in the strength of the horse.    He takes no pleasure in the legs of a man.
 
 11. Yahweh takes pleasure in those who fear him,    in those who hope in his loving kindness.
 
@@ -5302,7 +5302,7 @@
 
 19. He shows his word to Jacob;    his statutes and his ordinances to Israel.
 
-20. He has not done this for just any nation.    They don`t know his ordinances. Praise Yah!     Psalm 148
+20. He has not done this for just any nation.    They don't know his ordinances. Praise Yah!     Psalm 148
 
 
 ## Chapter 148

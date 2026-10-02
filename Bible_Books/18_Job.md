@@ -12,7 +12,7 @@
 
 5. It was so, when the days of their feasting had run their course, that Job sent and sanctified them, and rose up early in the morning, and offered burnt offerings according to the number of them all. For Job said, "It may be that my sons have sinned, and renounced God in their hearts." Job did so continually.
 
-6. Now it happened on the day when God`s sons came to present themselves before Yahweh, that Satan also came among them.
+6. Now it happened on the day when God's sons came to present themselves before Yahweh, that Satan also came among them.
 
 7. Yahweh said to Satan, "Where have you come from?"     Then Satan answered Yahweh, and said, "From going back and forth in the earth, and from walking up and down in it."
 
@@ -20,13 +20,13 @@
 
 9. Then Satan answered Yahweh, and said, "Does Job fear God for nothing?
 
-10. Haven`t you made a hedge around him, and around his house, and around all that he has, on every side? You have blessed the work of his hands, and his substance is increased in the land.
+10. Haven't you made a hedge around him, and around his house, and around all that he has, on every side? You have blessed the work of his hands, and his substance is increased in the land.
 
 11. But put forth your hand now, and touch all that he has, and he will renounce you to your face."
 
-12. Yahweh said to Satan, "Behold, all that he has is in your power. Only on himself don`t put forth your hand."     So Satan went forth from the presence of Yahweh.
+12. Yahweh said to Satan, "Behold, all that he has is in your power. Only on himself don't put forth your hand."     So Satan went forth from the presence of Yahweh.
 
-13. It fell on a day when his sons and his daughters were eating and drinking wine in their eldest brother`s house,
+13. It fell on a day when his sons and his daughters were eating and drinking wine in their eldest brother's house,
 
 14. that there came a messenger to Job, and said, "The oxen were plowing, and the donkeys feeding beside them,
 
@@ -36,20 +36,20 @@
 
 17. While he was still speaking, there came also another, and said, "The Chaldeans made three bands, and swept down on the camels, and have taken them away, yes, and killed the servants with the edge of the sword; and I alone have escaped to tell you."
 
-18. While he was still speaking, there came also another, and said, "Your sons and your daughters were eating and drinking wine in their eldest brother`s house,
+18. While he was still speaking, there came also another, and said, "Your sons and your daughters were eating and drinking wine in their eldest brother's house,
 
 19. and behold, there came a great wind from the wilderness, and struck the four corners of the house, and it fell on the young men, and they are dead. I alone have escaped to tell you."
 
 20. Then Job arose, and tore his robe, and shaved his head, and fell down on the ground, and worshiped.
 
-21. He said, "Naked I came out of my mother`s womb, and naked shall I return there. Yahweh gave, and Yahweh has taken away. Blessed be the name of Yahweh."
+21. He said, "Naked I came out of my mother's womb, and naked shall I return there. Yahweh gave, and Yahweh has taken away. Blessed be the name of Yahweh."
 
 22. In all this, Job did not sin, nor charge God with wrongdoing.
 
 
 ## Chapter 2
 
-1. Again it happened on the day when the God`s sons came to present themselves before Yahweh, that Satan came also among them to present himself before Yahweh.
+1. Again it happened on the day when the God's sons came to present themselves before Yahweh, that Satan came also among them to present himself before Yahweh.
 
 2. Yahweh said to Satan, "Where have you come from?"     Satan answered Yahweh, and said, "From going back and forth in the earth, and from walking up and down in it."
 
@@ -67,11 +67,11 @@
 
 9. Then his wife said to him, "Do you still maintain your integrity? Renounce God, and die."
 
-10. But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive evil?"     In all this Job didn`t sin with his lips.
+10. But he said to her, "You speak as one of the foolish women would speak. What? Shall we receive good at the hand of God, and shall we not receive evil?"     In all this Job didn't sin with his lips.
 
-11. Now when Job`s three friends heard of all this evil that had come on him, they each came from his own place: Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite, and they made an appointment together to come to sympathize with him and to comfort him.
+11. Now when Job's three friends heard of all this evil that had come on him, they each came from his own place: Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite, and they made an appointment together to come to sympathize with him and to comfort him.
 
-12. When they lifted up their eyes from a distance, and didn`t recognize him, they raised their voices, and wept; and they each tore his robe, and sprinkled dust on their heads toward the sky.
+12. When they lifted up their eyes from a distance, and didn't recognize him, they raised their voices, and wept; and they each tore his robe, and sprinkled dust on their heads toward the sky.
 
 13. So they sat down with him on the ground seven days and seven nights, and none spoke a word to him, for they saw that his grief was very great.
 
@@ -82,9 +82,9 @@
 
 2. Job answered:
 
-3. "Let the day perish in which I was born,    the night which said, `There is a boy conceived.`
+3. "Let the day perish in which I was born,    the night which said, 'There is a boy conceived.'
 
-4. Let that day be darkness.    Don`t let God from above seek for it,    neither let the light shine on it.
+4. Let that day be darkness.    Don't let God from above seek for it,    neither let the light shine on it.
 
 5. Let darkness and the shadow of death claim it for their own.    Let a cloud dwell on it.    Let all that makes black the day terrify it.
 
@@ -96,9 +96,9 @@
 
 9. Let the stars of its twilight be dark.    Let it look for light, but have none,    neither let it see the eyelids of the morning,
 
-10. because it didn`t shut up the doors of my mother`s womb,    nor did it hide trouble from my eyes.
+10. because it didn't shut up the doors of my mother's womb,    nor did it hide trouble from my eyes.
 
-11. "Why didn`t I die from the womb?    Why didn`t I give up the spirit when my mother bore me?
+11. "Why didn't I die from the womb?    Why didn't I give up the spirit when my mother bore me?
 
 12. Why did the knees receive me?    Or why the breast, that I should suck?
 
@@ -112,13 +112,13 @@
 
 17. There the wicked cease from troubling.    There the weary are at rest.
 
-18. There the prisoners are at ease together.    They don`t hear the voice of the taskmaster.
+18. There the prisoners are at ease together.    They don't hear the voice of the taskmaster.
 
 19. The small and the great are there.    The servant is free from his master.
 
 20. "Why is light given to him who is in misery,    life to the bitter in soul,
 
-21. Who long for death, but it doesn`t come;    and dig for it more than for hidden treasures,
+21. Who long for death, but it doesn't come;    and dig for it more than for hidden treasures,
 
 22. who rejoice exceedingly,    and are glad, when they can find the grave?
 
@@ -143,7 +143,7 @@
 
 5. But now it is come to you, and you faint.    It touches you, and you are troubled.
 
-6. Isn`t your piety your confidence?    Isn`t the integrity of your ways your hope?
+6. Isn't your piety your confidence?    Isn't the integrity of your ways your hope?
 
 7. "Remember, now, whoever perished, being innocent?    Or where were the upright cut off?
 
@@ -163,9 +163,9 @@
 
 15. Then a spirit passed before my face.    The hair of my flesh stood up.
 
-16. It stood still, but I couldn`t discern its appearance.    A form was before my eyes.    Silence, then I heard a voice, saying,
+16. It stood still, but I couldn't discern its appearance.    A form was before my eyes.    Silence, then I heard a voice, saying,
 
-17. `Shall mortal man be more just than God?    Shall a man be more pure than his Maker?
+17. 'Shall mortal man be more just than God?    Shall a man be more pure than his Maker?
 
 18. Behold, he puts no trust in his servants.    He charges his angels with error.
 
@@ -173,7 +173,7 @@
 
 20. Between morning and evening they are destroyed.    They perish forever without any regarding it.
 
-21. Isn`t their tent cord plucked up within them?    They die, and that without wisdom.`
+21. Isn't their tent cord plucked up within them?    They die, and that without wisdom.'
 
 
 ## Chapter 5
@@ -188,19 +188,19 @@
 
 5. whose harvest the hungry eats up,    and take it even out of the thorns.    The snare gapes for their substance.
 
-6. For affliction doesn`t come forth from the dust,    neither does trouble spring out of the ground;
+6. For affliction doesn't come forth from the dust,    neither does trouble spring out of the ground;
 
 7. but man is born to trouble,    as the sparks fly upward.
 
 8. "But as for me, I would seek God.    I would commit my cause to God,
 
-9. who does great things that can`t be fathomed,    marvelous things without number;
+9. who does great things that can't be fathomed,    marvelous things without number;
 
 10. who gives rain on the earth,    and sends waters on the fields;
 
 11. so that he sets up on high those who are low,    those who mourn are exalted to safety.
 
-12. He frustrates the devices of the crafty,    So that their hands can`t perform their enterprise.
+12. He frustrates the devices of the crafty,    So that their hands can't perform their enterprise.
 
 13. He takes the wise in their own craftiness;    the counsel of the cunning is carried headlong.
 
@@ -253,13 +253,13 @@
 
 9. even that it would please God to crush me;    that he would let loose his hand, and cut me off!
 
-10. Be it still my consolation,    yes, let me exult in pain that doesn`t spare,    that I have not denied the words of the Holy One.
+10. Be it still my consolation,    yes, let me exult in pain that doesn't spare,    that I have not denied the words of the Holy One.
 
 11. What is my strength, that I should wait?    What is my end, that I should be patient?
 
 12. Is my strength the strength of stones?    Or is my flesh of brass?
 
-13. Isn`t it that I have no help in me,    That wisdom is driven quite from me?
+13. Isn't it that I have no help in me,    That wisdom is driven quite from me?
 
 14. "To him who is ready to faint, kindness should be shown from his       friend;    even to him who forsakes the fear of the Almighty.
 
@@ -277,9 +277,9 @@
 
 21. For now you are nothing.    You see a terror, and are afraid.
 
-22. Did I say, `Give to me?`    or, `Offer a present for me from your substance?`
+22. Did I say, 'Give to me?'    or, 'Offer a present for me from your substance?'
 
-23. or, `Deliver me from the adversary`s hand?`    or, `Redeem me from the hand of the oppressors?`
+23. or, 'Deliver me from the adversary's hand?'    or, 'Redeem me from the hand of the oppressors?'
 
 24. "Teach me, and I will hold my peace.    Cause me to understand wherein I have erred.
 
@@ -293,22 +293,22 @@
 
 29. Please return.    Let there be no injustice.    Yes, return again.    My cause is righteous.
 
-30. Is there injustice on my tongue?    Can`t my taste discern mischievous things?
+30. Is there injustice on my tongue?    Can't my taste discern mischievous things?
 
 
 ## Chapter 7
 
-1. "Isn`t a man forced to labor on earth?    Aren`t his days like the days of a hired hand?
+1. "Isn't a man forced to labor on earth?    Aren't his days like the days of a hired hand?
 
 2. As a servant who earnestly desires the shadow,    as a hireling who looks for his wages,
 
 3. so am I made to possess months of misery,    wearisome nights are appointed to me.
 
-4. When I lie down, I say,    `When shall I arise, and the night be gone?`    I toss and turn until the dawning of the day.
+4. When I lie down, I say,    'When shall I arise, and the night be gone?'    I toss and turn until the dawning of the day.
 
 5. My flesh is clothed with worms and clods of dust.    My skin closes up, and breaks out afresh.
 
-6. My days are swifter than a weaver`s shuttle,    and are spent without hope.
+6. My days are swifter than a weaver's shuttle,    and are spent without hope.
 
 7. Oh remember that my life is a breath.    My eye shall no more see good.
 
@@ -322,13 +322,13 @@
 
 12. Am I a sea, or a sea monster,    that you put a guard over me?
 
-13. When I say, `My bed shall comfort me.    My couch shall ease my complaint;`
+13. When I say, 'My bed shall comfort me.    My couch shall ease my complaint;'
 
 14. then you scare me with dreams,    and terrify me through visions:
 
 15. so that my soul chooses strangling,    death rather than my bones.
 
-16. I loathe my life.    I don`t want to live forever.    Leave me alone, for my days are but a breath.
+16. I loathe my life.    I don't want to live forever.    Leave me alone, for my days are but a breath.
 
 17. What is man, that you should magnify him,    that you should set your mind on him,
 
@@ -369,7 +369,7 @@
 
 13. So are the paths of all who forget God.    The hope of the godless man shall perish,
 
-14. Whose confidence shall break apart,    Whose trust is a spider`s web.
+14. Whose confidence shall break apart,    Whose trust is a spider's web.
 
 15. He shall lean on his house, but it shall not stand.    He shall cling to it, but it shall not endure.
 
@@ -377,7 +377,7 @@
 
 17. His roots are wrapped around the rock pile.    He sees the place of stones.
 
-18. If he is destroyed from his place,    then it shall deny him, saying, `I have not seen you.`
+18. If he is destroyed from his place,    then it shall deny him, saying, 'I have not seen you.'
 
 19. Behold, this is the joy of his way:    out of the earth, others shall spring.
 
@@ -394,15 +394,15 @@
 
 2. "Truly I know that it is so,    but how can man be just with God?
 
-3. If he is pleased to contend with him,    he can`t answer him one time in a thousand.
+3. If he is pleased to contend with him,    he can't answer him one time in a thousand.
 
 4. God who is wise in heart, and mighty in strength:    who has hardened himself against him, and prospered?
 
-5. He removes the mountains, and they don`t know it,    when he overturns them in his anger.
+5. He removes the mountains, and they don't know it,    when he overturns them in his anger.
 
 6. He shakes the earth out of its place.    Its pillars tremble.
 
-7. He commands the sun, and it doesn`t rise,    and seals up the stars.
+7. He commands the sun, and it doesn't rise,    and seals up the stars.
 
 8. He alone stretches out the heavens,    and treads on the waves of the sea.
 
@@ -410,27 +410,27 @@
 
 10. He does great things past finding out;    yes, marvelous things without number.
 
-11. Behold, he goes by me, and I don`t see him.    He passes on also, but I don`t perceive him.
+11. Behold, he goes by me, and I don't see him.    He passes on also, but I don't perceive him.
 
-12. Behold, he snatches away.    Who can hinder him?    Who will ask him, `What are you doing?`
+12. Behold, he snatches away.    Who can hinder him?    Who will ask him, 'What are you doing?'
 
 13. "God will not withdraw his anger.    The helpers of Rahab stoop under him.
 
 14. How much less shall I answer him,    And choose my words to argue with him?
 
-15. Though I were righteous, yet I wouldn`t answer him.    I would make supplication to my judge.
+15. Though I were righteous, yet I wouldn't answer him.    I would make supplication to my judge.
 
-16. If I had called, and he had answered me,    yet I wouldn`t believe that he listened to my voice.
+16. If I had called, and he had answered me,    yet I wouldn't believe that he listened to my voice.
 
 17. For he breaks me with a storm,    and multiplies my wounds without cause.
 
 18. He will not allow me to catch my breath,    but fills me with bitterness.
 
-19. If it is a matter of strength, behold, he is mighty!    If of justice, `Who,` says he, `will summon me?`
+19. If it is a matter of strength, behold, he is mighty!    If of justice, 'Who,' says he, 'will summon me?'
 
 20. Though I am righteous, my own mouth shall condemn me.    Though I am blameless, it shall prove me perverse.
 
-21. I am blameless.    I don`t respect myself.    I despise my life.
+21. I am blameless.    I don't respect myself.    I despise my life.
 
 22. "It is all the same.    Therefore I say he destroys the blameless and the wicked.
 
@@ -442,7 +442,7 @@
 
 26. They have passed away as the swift ships,    as the eagle that swoops on the prey.
 
-27. If I say, `I will forget my complaint,    I will put off my sad face, and cheer up;`
+27. If I say, 'I will forget my complaint,    I will put off my sad face, and cheer up;'
 
 28. I am afraid of all my sorrows,    I know that you will not hold me innocent.
 
@@ -465,23 +465,23 @@
 
 1. "My soul is weary of my life.    I will give free course to my complaint.    I will speak in the bitterness of my soul.
 
-2. I will tell God, `Do not condemn me.    Show me why you contend with me.
+2. I will tell God, 'Do not condemn me.    Show me why you contend with me.
 
 3. Is it good to you that you should oppress,    that you should despise the work of your hands,    and smile on the counsel of the wicked?
 
 4. Do you have eyes of flesh?    Or do you see as man sees?
 
-5. Are your days as the days of mortals,    or your years as man`s years,
+5. Are your days as the days of mortals,    or your years as man's years,
 
 6. that you inquire after my iniquity,    and search after my sin?
 
 7. Although you know that I am not wicked,    there is no one who can deliver out of your hand.
 
-8. "`Your hands have framed me and fashioned me altogether,    yet you destroy me.
+8. "'Your hands have framed me and fashioned me altogether,    yet you destroy me.
 
 9. Remember, I beg you, that you have fashioned me as clay.    Will you bring me into dust again?
 
-10. Haven`t you poured me out like milk,    and curdled me like cheese?
+10. Haven't you poured me out like milk,    and curdled me like cheese?
 
 11. You have clothed me with skin and flesh,    and knit me together with bones and sinews.
 
@@ -497,26 +497,26 @@
 
 17. You renew your witnesses against me,    and increase your indignation on me.    Changes and warfare are with me.
 
-18. "`Why, then, have you brought me forth out of the womb?    I wish I had given up the spirit, and no eye had seen me.
+18. "'Why, then, have you brought me forth out of the womb?    I wish I had given up the spirit, and no eye had seen me.
 
 19. I should have been as though I had not been.    I should have been carried from the womb to the grave.
 
-20. Aren`t my days few?    Cease then.    Leave me alone, that I may find a little comfort,
+20. Aren't my days few?    Cease then.    Leave me alone, that I may find a little comfort,
 
 21. before I go where I shall not return from,    to the land of darkness and of the shadow of death;
 
-22. the land dark as midnight,    of the shadow of death,    without any order,    where the light is as midnight.`"
+22. the land dark as midnight,    of the shadow of death,    without any order,    where the light is as midnight.'"
 
 
 ## Chapter 11
 
 1. Then Zophar, the Naamathite, answered,
 
-2. "Shouldn`t the multitude of words be answered?    Should a man full of talk be justified?
+2. "Shouldn't the multitude of words be answered?    Should a man full of talk be justified?
 
 3. Should your boastings make men hold their peace?    When you mock, shall no man make you ashamed?
 
-4. For you say, `My doctrine is pure.    I am clean in your eyes.`
+4. For you say, 'My doctrine is pure.    I am clean in your eyes.'
 
 5. But oh that God would speak,    and open his lips against you,
 
@@ -530,13 +530,13 @@
 
 10. If he passes by, or confines,    or convenes a court, then who can oppose him?
 
-11. For he knows false men.    He sees iniquity also, even though he doesn`t consider it.
+11. For he knows false men.    He sees iniquity also, even though he doesn't consider it.
 
-12. An empty-headed man becomes wise    when a man is born as a wild donkey`s colt.
+12. An empty-headed man becomes wise    when a man is born as a wild donkey's colt.
 
 13. "If you set your heart aright,    stretch out your hands toward him.
 
-14. If iniquity is in your hand, put it far away.    Don`t let unrighteousness dwell in your tents.
+14. If iniquity is in your hand, put it far away.    Don't let unrighteousness dwell in your tents.
 
 15. Surely then you shall lift up your face without spot;    Yes, you shall be steadfast, and shall not fear:
 
@@ -557,7 +557,7 @@
 
 2. "No doubt, but you are the people,    and wisdom shall die with you.
 
-3. But I have understanding as well as you;    I am not inferior to you.    Yes, who doesn`t know such things as these?
+3. But I have understanding as well as you;    I am not inferior to you.    Yes, who doesn't know such things as these?
 
 4. I am like one who is a joke to his neighbor,    I, who called on God, and he answered.    The just, the blameless man is a joke.
 
@@ -569,17 +569,17 @@
 
 8. Or speak to the earth, and it shall teach you.    The fish of the sea shall declare to you.
 
-9. Who doesn`t know that in all these,    the hand of Yahweh has done this,
+9. Who doesn't know that in all these,    the hand of Yahweh has done this,
 
 10. in whose hand is the life of every living thing,    and the breath of all mankind?
 
-11. Doesn`t the ear try words,    even as the palate tastes its food?
+11. Doesn't the ear try words,    even as the palate tastes its food?
 
 12. With aged men is wisdom,    in length of days understanding.
 
 13. "With God is wisdom and might.    He has counsel and understanding.
 
-14. Behold, he breaks down, and it can`t be built again.    He imprisons a man, and there can be no release.
+14. Behold, he breaks down, and it can't be built again.    He imprisons a man, and there can be no release.
 
 15. Behold, he withholds the waters, and they dry up.    Again, he sends them out, and they overturn the earth.
 
@@ -644,9 +644,9 @@
 
 19. Who is he who will contend with me?    For then would I hold my peace and give up the spirit.
 
-20. "Only don`t do two things to me;    then I will not hide myself from your face:
+20. "Only don't do two things to me;    then I will not hide myself from your face:
 
-21. withdraw your hand far from me;    and don`t let your terror make me afraid.
+21. withdraw your hand far from me;    and don't let your terror make me afraid.
 
 22. Then call, and I will answer;    or let me speak, and you answer me.
 
@@ -667,13 +667,13 @@
 
 1. "Man, who is born of a woman,    is of few days, and full of trouble.
 
-2. He comes forth like a flower, and is cut down.    He also flees like a shadow, and doesn`t continue.
+2. He comes forth like a flower, and is cut down.    He also flees like a shadow, and doesn't continue.
 
 3. Do you open your eyes on such a one,    and bring me into judgment with you?
 
 4. Who can bring a clean thing out of an unclean?    Not one.
 
-5. Seeing his days are determined,    the number of his months is with you,    and you have appointed his bounds that he can`t pass;
+5. Seeing his days are determined,    the number of his months is with you,    and you have appointed his bounds that he can't pass;
 
 6. Look away from him, that he may rest,    until he shall accomplish, as a hireling, his day.
 
@@ -687,7 +687,7 @@
 
 11. As the waters fail from the sea,    and the river wastes and dries up,
 
-12. so man lies down and doesn`t rise.    Until the heavens are no more, they shall not awake,    nor be roused out of their sleep.
+12. so man lies down and doesn't rise.    Until the heavens are no more, they shall not awake,    nor be roused out of their sleep.
 
 13. "Oh that you would hide me in Sheol,    that you would keep me secret, until your wrath is past,    that you would appoint me a set time, and remember me!
 
@@ -695,7 +695,7 @@
 
 15. You would call, and I would answer you.    You would have a desire to the work of your hands.
 
-16. But now you number my steps.    Don`t you watch over my sin?
+16. But now you number my steps.    Don't you watch over my sin?
 
 17. My disobedience is sealed up in a bag.    You fasten up my iniquity.
 
@@ -705,7 +705,7 @@
 
 20. You forever prevail against him, and he departs.    You change his face, and send him away.
 
-21. His sons come to honor, and he doesn`t know it.    They are brought low, but he doesn`t perceive it of them.
+21. His sons come to honor, and he doesn't know it.    They are brought low, but he doesn't perceive it of them.
 
 22. But his flesh on him has pain,    and his soul within him mourns."
 
@@ -728,7 +728,7 @@
 
 8. Have you heard the secret counsel of God?    Do you limit wisdom to yourself?
 
-9. What do you know, that we don`t know?    What do you understand, which is not in us?
+9. What do you know, that we don't know?    What do you understand, which is not in us?
 
 10. With us are both the gray-headed and the very aged men,    much elder than your father.
 
@@ -754,9 +754,9 @@
 
 21. A sound of terrors is in his ears.    In prosperity the destroyer shall come on him.
 
-22. He doesn`t believe that he shall return out of darkness.    He is waited for by the sword.
+22. He doesn't believe that he shall return out of darkness.    He is waited for by the sword.
 
-23. He wanders abroad for bread, saying, `Where is it?`    He knows that the day of darkness is ready at his hand.
+23. He wanders abroad for bread, saying, 'Where is it?'    He knows that the day of darkness is ready at his hand.
 
 24. Distress and anguish make him afraid.    They prevail against him, as a king ready to the battle.
 
@@ -770,7 +770,7 @@
 
 29. He shall not be rich, neither shall his substance continue,    neither shall their possessions be extended on the earth.
 
-30. He shall not depart out of darkness.    The flame shall dry up his branches.    By the breath of God`s mouth shall he go away.
+30. He shall not depart out of darkness.    The flame shall dry up his branches.    By the breath of God's mouth shall he go away.
 
 31. Let him not trust in emptiness, deceiving himself;    for emptiness shall be his reward.
 
@@ -791,7 +791,7 @@
 
 3. Shall vain words have an end?    Or what provokes you that you answer?
 
-4. I also could speak as you do.    If your soul were in my soul`s place,    I could join words together against you,    and shake my head at you,
+4. I also could speak as you do.    If your soul were in my soul's place,    I could join words together against you,    and shake my head at you,
 
 5. but I would strengthen you with my mouth.    The solace of my lips would relieve you.
 
@@ -819,7 +819,7 @@
 
 17. Although there is no violence in my hands,    and my prayer is pure.
 
-18. "Earth, don`t cover my blood.    Let my cry have no place to rest.
+18. "Earth, don't cover my blood.    Let my cry have no place to rest.
 
 19. Even now, behold, my witness is in heaven.    He who vouches for me is on high.
 
@@ -854,11 +854,11 @@
 
 11. My days are past, my plans are broken off,    as are the thoughts of my heart.
 
-12. They change the night into day,    saying `The light is near` in the presence of darkness.
+12. They change the night into day,    saying 'The light is near' in the presence of darkness.
 
 13. If I look for Sheol as my house,    if I have spread my couch in the darkness,
 
-14. If I have said to corruption, `You are my father;`    to the worm, `My mother,` and `my sister;`
+14. If I have said to corruption, 'You are my father;'    to the worm, 'My mother,' and 'my sister;'
 
 15. where then is my hope?    as for my hope, who shall see it?
 
@@ -907,7 +907,7 @@
 
 20. Those who come after shall be astonished at his day,    as those who went before were frightened.
 
-21. Surely such are the dwellings of the unrighteous.    This is the place of him who doesn`t know God."
+21. Surely such are the dwellings of the unrighteous.    This is the place of him who doesn't know God."
 
 
 ## Chapter 19
@@ -916,7 +916,7 @@
 
 2. "How long will you torment me,    and crush me with words?
 
-3. You have reproached me ten times.    You aren`t ashamed that you attack me.
+3. You have reproached me ten times.    You aren't ashamed that you attack me.
 
 4. If it is true that I have erred,    my error remains with myself.
 
@@ -926,7 +926,7 @@
 
 7. "Behold, I cry out of wrong, but I am not heard.    I cry for help, but there is no justice.
 
-8. He has walled up my way so that I can`t pass,    and has set darkness in my paths.
+8. He has walled up my way so that I can't pass,    and has set darkness in my paths.
 
 9. He has stripped me of my glory,    and taken the crown from my head.
 
@@ -966,7 +966,7 @@
 
 27. Whom I, even I, shall see on my side.    My eyes shall see, and not as a stranger.  "My heart is consumed within me.
 
-28. If you say, `How we will persecute him!`    because the root of the matter is found in me,
+28. If you say, 'How we will persecute him!'    because the root of the matter is found in me,
 
 29. be afraid of the sword,    for wrath brings the punishments of the sword,    that you may know there is a judgment."
 
@@ -979,13 +979,13 @@
 
 3. I have heard the reproof which puts me to shame.    The spirit of my understanding answers me.
 
-4. Don`t you know this from old time,    since man was placed on earth,
+4. Don't you know this from old time,    since man was placed on earth,
 
 5. that the triumphing of the wicked is short,    the joy of the godless but for a moment?
 
 6. Though his height mount up to the heavens,    and his head reach to the clouds,
 
-7. yet he shall perish forever like his own dung.    Those who have seen him shall say, `Where is he?`
+7. yet he shall perish forever like his own dung.    Those who have seen him shall say, 'Where is he?'
 
 8. He shall fly away as a dream, and shall not be found.    Yes, he shall be chased away like a vision of the night.
 
@@ -1003,7 +1003,7 @@
 
 15. He has swallowed down riches, and he shall vomit them up again.    God will cast them out of his belly.
 
-16. He shall suck cobra venom.    The viper`s tongue shall kill him.
+16. He shall suck cobra venom.    The viper's tongue shall kill him.
 
 17. He shall not look at the rivers,    the flowing streams of honey and butter.
 
@@ -1013,7 +1013,7 @@
 
 20. "Because he knew no quietness within him,    he shall not save anything of that in which he delights.
 
-21. There was nothing left that he didn`t devour,    therefore his prosperity shall not endure.
+21. There was nothing left that he didn't devour,    therefore his prosperity shall not endure.
 
 22. In the fullness of his sufficiency, distress shall overtake him.    The hand of everyone who is in misery shall come on him.
 
@@ -1040,7 +1040,7 @@
 
 3. Allow me, and I also will speak;    After I have spoken, mock on.
 
-4. As for me, is my complaint to man?    Why shouldn`t I be impatient?
+4. As for me, is my complaint to man?    Why shouldn't I be impatient?
 
 5. Look at me, and be astonished.    Lay your hand on your mouth.
 
@@ -1052,7 +1052,7 @@
 
 9. Their houses are safe from fear,    neither is the rod of God upon them.
 
-10. Their bulls breed without fail.    Their cows calve, and don`t miscarry.
+10. Their bulls breed without fail.    Their cows calve, and don't miscarry.
 
 11. They send forth their little ones like a flock.    Their children dance.
 
@@ -1060,9 +1060,9 @@
 
 13. They spend their days in prosperity.    In an instant they go down to Sheol.
 
-14. They tell God, `Depart from us,    for we don`t want to know about your ways.
+14. They tell God, 'Depart from us,    for we don't want to know about your ways.
 
-15. What is the Almighty, that we should serve him?    What profit should we have, if we pray to him?`
+15. What is the Almighty, that we should serve him?    What profit should we have, if we pray to him?'
 
 16. Behold, their prosperity is not in their hand.    The counsel of the wicked is far from me.
 
@@ -1070,7 +1070,7 @@
 
 18. How often is it that they are as stubble before the wind,    as chaff that the storm carries away?
 
-19. You say, `God lays up his iniquity for his children.`    Let him recompense it to himself, that he may know it.
+19. You say, 'God lays up his iniquity for his children.'    Let him recompense it to himself, that he may know it.
 
 20. Let his own eyes see his destruction.    Let him drink of the wrath of the Almighty.
 
@@ -1088,9 +1088,9 @@
 
 27. "Behold, I know your thoughts,    the devices with which you would wrong me.
 
-28. For you say, `Where is the house of the prince?    Where is the tent in which the wicked lived?`
+28. For you say, 'Where is the house of the prince?    Where is the tent in which the wicked lived?'
 
-29. Haven`t you asked wayfaring men?    Don`t you know their evidences,
+29. Haven't you asked wayfaring men?    Don't you know their evidences,
 
 30. that the evil man is reserved to the day of calamity,    That they are led forth to the day of wrath?
 
@@ -1113,11 +1113,11 @@
 
 4. Is it for your piety that he reproves you,    that he enters with you into judgment?
 
-5. Isn`t your wickedness great?    Neither is there any end to your iniquities.
+5. Isn't your wickedness great?    Neither is there any end to your iniquities.
 
 6. For you have taken pledges from your brother for nothing,    and stripped the naked of their clothing.
 
-7. You haven`t given water to the weary to drink,    and you have withheld bread from the hungry.
+7. You haven't given water to the weary to drink,    and you have withheld bread from the hungry.
 
 8. But as for the mighty man, he had the earth.    The honorable man, he lived in it.
 
@@ -1127,23 +1127,23 @@
 
 11. or darkness, so that you can not see,    and floods of waters cover you.
 
-12. "Isn`t God in the heights of heaven?    See the height of the stars, how high they are!
+12. "Isn't God in the heights of heaven?    See the height of the stars, how high they are!
 
-13. You say, `What does God know?    Can he judge through the thick darkness?
+13. You say, 'What does God know?    Can he judge through the thick darkness?
 
-14. Thick clouds are a covering to him, so that he doesn`t see.    He walks on the vault of the sky.`
+14. Thick clouds are a covering to him, so that he doesn't see.    He walks on the vault of the sky.'
 
 15. Will you keep the old way,    which wicked men have trodden,
 
 16. who were snatched away before their time,    whose foundation was poured out as a stream,
 
-17. who said to God, `Depart from us;`    and, `What can the Almighty do for us?`
+17. who said to God, 'Depart from us;'    and, 'What can the Almighty do for us?'
 
 18. Yet he filled their houses with good things,    but the counsel of the wicked is far from me.
 
 19. The righteous see it, and are glad.    The innocent ridicule them,
 
-20. saying, `Surely those who rose up against us are cut off.    The fire has consumed the remnant of them.`
+20. saying, 'Surely those who rose up against us are cut off.    The fire has consumed the remnant of them.'
 
 21. "Acquaint yourself with him, now, and be at peace.    Thereby good shall come to you.
 
@@ -1161,7 +1161,7 @@
 
 28. You shall also decree a thing, and it shall be established to       you.    Light shall shine on your ways.
 
-29. When they cast down, you shall say, `be lifted up.`    He will save the humble person.
+29. When they cast down, you shall say, 'be lifted up.'    He will save the humble person.
 
 30. He will even deliver him who is not innocent.    Yes, he shall be delivered through the cleanness of your hands."
 
@@ -1182,15 +1182,15 @@
 
 7. There the upright might reason with him,    so I should be delivered forever from my judge.
 
-8. "If I go east, he is not there;    if west, I can`t find him;
+8. "If I go east, he is not there;    if west, I can't find him;
 
-9. He works to the north, but I can`t see him.    He turns south, but I can`t catch a glimpse of him.
+9. He works to the north, but I can't see him.    He turns south, but I can't catch a glimpse of him.
 
 10. But he knows the way that I take.    When he has tried me, I shall come forth like gold.
 
 11. My foot has held fast to his steps.    I have kept his way, and not turned aside.
 
-12. I haven`t gone back from the commandment of his lips.    I have treasured up the words of his mouth more than my necessary       food.
+12. I haven't gone back from the commandment of his lips.    I have treasured up the words of his mouth more than my necessary       food.
 
 13. But he stands alone, and who can oppose him?    What his soul desires, even that he does.
 
@@ -1205,11 +1205,11 @@
 
 ## Chapter 24
 
-1. "Why aren`t times laid up by the Almighty?    Why don`t those who know him see his days?
+1. "Why aren't times laid up by the Almighty?    Why don't those who know him see his days?
 
 2. There are people who remove the landmarks.    They violently take away flocks, and feed them.
 
-3. They drive away the donkey of the fatherless,    and they take the widow`s ox for a pledge.
+3. They drive away the donkey of the fatherless,    and they take the widow's ox for a pledge.
 
 4. They turn the needy out of the way.    The poor of the earth all hide themselves.
 
@@ -1227,25 +1227,25 @@
 
 11. They make oil within the walls of these men.    They tread wine presses, and suffer thirst.
 
-12. From out of the populous city, men groan.    The soul of the wounded cries out,    yet God doesn`t regard the folly.
+12. From out of the populous city, men groan.    The soul of the wounded cries out,    yet God doesn't regard the folly.
 
-13. "These are of those who rebel against the light.    They don`t know its ways,    nor abide in its paths.
+13. "These are of those who rebel against the light.    They don't know its ways,    nor abide in its paths.
 
 14. The murderer rises with the light.    He kills the poor and needy.    In the night he is like a thief.
 
-15. The eye also of the adulterer waits for the twilight,    saying, `No eye shall see me.`    He disguises his face.
+15. The eye also of the adulterer waits for the twilight,    saying, 'No eye shall see me.'    He disguises his face.
 
-16. In the dark they dig through houses.    They shut themselves up in the daytime.    They don`t know the light.
+16. In the dark they dig through houses.    They shut themselves up in the daytime.    They don't know the light.
 
 17. For the morning is to all of them like thick darkness,    for they know the terrors of the thick darkness.
 
-18. "They are foam on the surface of the waters.    Their portion is cursed in the earth.    They don`t turn into the way of the vineyards.
+18. "They are foam on the surface of the waters.    Their portion is cursed in the earth.    They don't turn into the way of the vineyards.
 
 19. Drought and heat consume the snow waters,    so does Sheol those who have sinned.
 
 20. The womb shall forget him.    The worm shall feed sweetly on him.    He shall be no more remembered.    Unrighteousness shall be broken as a tree.
 
-21. He devours the barren who don`t bear.    He shows no kindness to the widow.
+21. He devours the barren who don't bear.    He shows no kindness to the widow.
 
 22. Yet God preserves the mighty by his power.    He rises up who has no assurance of life.
 
@@ -1253,7 +1253,7 @@
 
 24. They are exalted; yet a little while, and they are gone.    Yes, they are brought low, they are taken out of the way as all       others,    and are cut off as the tops of the ears of grain.
 
-25. If it isn`t so now, who will prove me a liar,    and make my speech worth nothing?"
+25. If it isn't so now, who will prove me a liar,    and make my speech worth nothing?"
 
 
 ## Chapter 25
@@ -1365,7 +1365,7 @@
 
 6. Sapphires come from its rocks.    It has dust of gold.
 
-7. That path no bird of prey knows,    neither has the falcon`s eye seen it.
+7. That path no bird of prey knows,    neither has the falcon's eye seen it.
 
 8. The proud animals have not trodden it,    nor has the fierce lion passed by there.
 
@@ -1373,19 +1373,19 @@
 
 10. He cuts out channels among the rocks.    His eye sees every precious thing.
 
-11. He binds the streams that they don`t trickle.    The thing that is hidden he brings forth to light.
+11. He binds the streams that they don't trickle.    The thing that is hidden he brings forth to light.
 
 12. "But where shall wisdom be found?    Where is the place of understanding?
 
-13. Man doesn`t know its price;    Neither is it found in the land of the living.
+13. Man doesn't know its price;    Neither is it found in the land of the living.
 
-14. The deep says, `It isn`t in me.`    The sea says, `It isn`t with me.`
+14. The deep says, 'It isn't in me.'    The sea says, 'It isn't with me.'
 
-15. It can`t be gotten for gold,    neither shall silver be weighed for its price.
+15. It can't be gotten for gold,    neither shall silver be weighed for its price.
 
-16. It can`t be valued with the gold of Ophir,    with the precious onyx, or the sapphire.
+16. It can't be valued with the gold of Ophir,    with the precious onyx, or the sapphire.
 
-17. Gold and glass can`t equal it,    neither shall it be exchanged for jewels of fine gold.
+17. Gold and glass can't equal it,    neither shall it be exchanged for jewels of fine gold.
 
 18. No mention shall be made of coral or of crystal.    Yes, the price of wisdom is above rubies.
 
@@ -1395,7 +1395,7 @@
 
 21. Seeing it is hidden from the eyes of all living,    and kept close from the birds of the sky.
 
-22. Destruction and Death say,    `We have heard a rumor of it with our ears.`
+22. Destruction and Death say,    'We have heard a rumor of it with our ears.'
 
 23. "God understands its way,    and he knows its place.
 
@@ -1407,7 +1407,7 @@
 
 27. then he saw it, and declared it.    He established it, yes, and searched it out.
 
-28. To man he said,    `Behold, the fear of the Lord, that is wisdom.    To depart from evil is understanding.`"
+28. To man he said,    'Behold, the fear of the Lord, that is wisdom.    To depart from evil is understanding.'"
 
 
 ## Chapter 29
@@ -1436,29 +1436,29 @@
 
 12. Because I delivered the poor who cried,    and the fatherless also, who had none to help him,
 
-13. the blessing of him who was ready to perish came on me,    and I caused the widow`s heart to sing for joy.
+13. the blessing of him who was ready to perish came on me,    and I caused the widow's heart to sing for joy.
 
 14. I put on righteousness, and it clothed me.    My justice was as a robe and a diadem.
 
 15. I was eyes to the blind,    and feet to the lame.
 
-16. I was a father to the needy.    The cause of him who I didn`t know, I searched out.
+16. I was a father to the needy.    The cause of him who I didn't know, I searched out.
 
 17. I broke the jaws of the unrighteous,    and plucked the prey out of his teeth.
 
-18. Then I said, `I shall die in my own house,    I shall number my days as the sand.
+18. Then I said, 'I shall die in my own house,    I shall number my days as the sand.
 
 19. My root is spread out to the waters.    The dew lies all night on my branch.
 
-20. My glory is fresh in me.    My bow is renewed in my hand.`
+20. My glory is fresh in me.    My bow is renewed in my hand.'
 
 21. "Men listened to me, waited,    and kept silence for my counsel.
 
-22. After my words they didn`t speak again.    My speech fell on them.
+22. After my words they didn't speak again.    My speech fell on them.
 
 23. They waited for me as for the rain.    Their mouths drank as with the spring rain.
 
-24. I smiled on them when they had no confidence.    They didn`t reject the light of my face.
+24. I smiled on them when they had no confidence.    They didn't reject the light of my face.
 
 25. I chose out their way, and sat as chief.    I lived as a king in the army,    as one who comforts the mourners.
 
@@ -1483,13 +1483,13 @@
 
 9. "Now I have become their song.    Yes, I am a byword to them.
 
-10. They abhor me, they stand aloof from me,    and don`t hesitate to spit in my face.
+10. They abhor me, they stand aloof from me,    and don't hesitate to spit in my face.
 
 11. For he has untied his cord, and afflicted me;    and they have thrown off restraint before me.
 
 12. On my right hand rise the rabble.    They thrust aside my feet,    They cast up against me their ways of destruction.
 
-13. They mar my path,    They set forward my calamity,    without anyone`s help.
+13. They mar my path,    They set forward my calamity,    without anyone's help.
 
 14. As through a wide breach they come,    in the midst of the ruin they roll themselves in.
 
@@ -1511,13 +1511,13 @@
 
 23. For I know that you will bring me to death,    To the house appointed for all living.
 
-24. "However doesn`t one stretch out a hand in his fall?    Or in his calamity therefore cry for help?
+24. "However doesn't one stretch out a hand in his fall?    Or in his calamity therefore cry for help?
 
-25. Didn`t I weep for him who was in trouble?    Wasn`t my soul grieved for the needy?
+25. Didn't I weep for him who was in trouble?    Wasn't my soul grieved for the needy?
 
 26. When I looked for good, then evil came;    When I waited for light, there came darkness.
 
-27. My heart is troubled, and doesn`t rest.    Days of affliction have come on me.
+27. My heart is troubled, and doesn't rest.    Days of affliction have come on me.
 
 28. I go mourning without the sun.    I stand up in the assembly, and cry for help.
 
@@ -1536,7 +1536,7 @@
 
 3. Is it not calamity to the unrighteous,    and disaster to the workers of iniquity?
 
-4. Doesn`t he see my ways,    and number all my steps?
+4. Doesn't he see my ways,    and number all my steps?
 
 5. "If I have walked with falsehood,    and my foot has hurried to deceit
 
@@ -1546,7 +1546,7 @@
 
 8. then let me sow, and let another eat.    Yes, let the produce of my field be rooted out.
 
-9. "If my heart has been enticed to a woman,    and I have laid wait at my neighbor`s door,
+9. "If my heart has been enticed to a woman,    and I have laid wait at my neighbor's door,
 
 10. then let my wife grind for another,    and let others sleep with her.
 
@@ -1558,17 +1558,17 @@
 
 14. What then shall I do when God rises up?    When he visits, what shall I answer him?
 
-15. Didn`t he who made me in the womb make him?    Didn`t one fashion us in the womb?
+15. Didn't he who made me in the womb make him?    Didn't one fashion us in the womb?
 
 16. "If I have withheld the poor from their desire,    or have caused the eyes of the widow to fail,
 
 17. or have eaten my morsel alone,    and the fatherless has not eaten of it
 
-18. (no, from my youth he grew up with me as with a father,    her have I guided from my mother`s womb);
+18. (no, from my youth he grew up with me as with a father,    her have I guided from my mother's womb);
 
 19. if I have seen any perish for want of clothing,    or that the needy had no covering;
 
-20. if his heart hasn`t blessed me,    if he hasn`t been warmed with my sheep`s fleece;
+20. if his heart hasn't blessed me,    if he hasn't been warmed with my sheep's fleece;
 
 21. if I have lifted up my hand against the fatherless,    because I saw my help in the gate,
 
@@ -1576,7 +1576,7 @@
 
 23. For calamity from God is a terror to me.    Because his majesty, I can do nothing.
 
-24. "If I have made gold my hope,    and have said to the fine gold, `You are my confidence;`
+24. "If I have made gold my hope,    and have said to the fine gold, 'You are my confidence;'
 
 25. If I have rejoiced because my wealth was great,    and because my hand had gotten much;
 
@@ -1590,13 +1590,13 @@
 
 30. (yes, I have not allowed my mouth to sin    by asking his life with a curse);
 
-31. if the men of my tent have not said,    `Who can find one who has not been filled with his meat?`
+31. if the men of my tent have not said,    'Who can find one who has not been filled with his meat?'
 
 32. (the foreigner has not lodged in the street,    but I have opened my doors to the traveler);
 
 33. if like Adam I have covered my transgressions,    by hiding my iniquity in my heart,
 
-34. because I feared the great multitude,    and the contempt of families terrified me,    so that I kept silence, and didn`t go out of the door--
+34. because I feared the great multitude,    and the contempt of families terrified me,    so that I kept silence, and didn't go out of the door--
 
 35. oh that I had one to hear me!    (behold, here is my signature, let the Almighty answer me);    let the accuser write my indictment!
 
@@ -1623,27 +1623,27 @@
 
 5. When Elihu saw that there was no answer in the mouth of these three men, his wrath was kindled.
 
-6. Elihu the son of Barachel the Buzite answered, "I am young, and you are very old;    Therefore I held back, and didn`t dare show you my opinion.
+6. Elihu the son of Barachel the Buzite answered, "I am young, and you are very old;    Therefore I held back, and didn't dare show you my opinion.
 
-7. I said, `Days should speak,    and multitude of years should teach wisdom.`
+7. I said, 'Days should speak,    and multitude of years should teach wisdom.'
 
 8. But there is a spirit in man,    and the breath of the Almighty gives them understanding.
 
 9. It is not the great who are wise,    nor the aged who understand justice.
 
-10. Therefore I said, `Listen to me;    I also will show my opinion.`
+10. Therefore I said, 'Listen to me;    I also will show my opinion.'
 
 11. "Behold, I waited for your words,    and I listened for your reasoning,    while you searched out what to say.
 
 12. Yes, I gave you my full attention,    but there was no one who convinced Job,    or who answered his words, among you.
 
-13. Beware lest you say, `We have found wisdom,    God may refute him, not man;`
+13. Beware lest you say, 'We have found wisdom,    God may refute him, not man;'
 
 14. for he has not directed his words against me;    neither will I answer him with your speeches.
 
-15. "They are amazed. They answer no more.    They don`t have a word to say.
+15. "They are amazed. They answer no more.    They don't have a word to say.
 
-16. Shall I wait, because they don`t speak,    because they stand still, and answer no more?
+16. Shall I wait, because they don't speak,    because they stand still, and answer no more?
 
 17. I also will answer my part,    and I also will show my opinion.
 
@@ -1653,9 +1653,9 @@
 
 20. I will speak, that I may be refreshed.    I will open my lips and answer.
 
-21. Please don`t let me respect any man`s person,    neither will I give flattering titles to any man.
+21. Please don't let me respect any man's person,    neither will I give flattering titles to any man.
 
-22. For I don`t know how to give flattering titles;    or else my Maker would soon take me away.
+22. For I don't know how to give flattering titles;    or else my Maker would soon take me away.
 
 
 ## Chapter 33
@@ -1676,15 +1676,15 @@
 
 8. "Surely you have spoken in my hearing,    I have heard the voice of your words, saying,
 
-9. `I am clean, without disobedience.    I am innocent, neither is there iniquity in me.
+9. 'I am clean, without disobedience.    I am innocent, neither is there iniquity in me.
 
 10. Behold, he finds occasions against me.    He counts me for his enemy.
 
-11. He puts my feet in the stocks.    He marks all my paths.`
+11. He puts my feet in the stocks.    He marks all my paths.'
 
 12. "Behold, I will answer you. In this you are not just,    for God is greater than man.
 
-13. Why do you strive against him,    because he doesn`t give account of any of his matters?
+13. Why do you strive against him,    because he doesn't give account of any of his matters?
 
 14. For God speaks once,    yes twice, though man pays no attention.
 
@@ -1700,21 +1700,21 @@
 
 20. So that his life abhors bread,    and his soul dainty food.
 
-21. His flesh is so consumed away, that it can`t be seen.    His bones that were not seen stick out.
+21. His flesh is so consumed away, that it can't be seen.    His bones that were not seen stick out.
 
 22. Yes, his soul draws near to the pit,    and his life to the destroyers.
 
 23. "If there is beside him an angel,    an interpreter, one among a thousand,    to show to man what is right for him;
 
-24. then God is gracious to him, and says,    `Deliver him from going down to the pit,    I have found a ransom.`
+24. then God is gracious to him, and says,    'Deliver him from going down to the pit,    I have found a ransom.'
 
-25. His flesh shall be fresher than a child`s.    He returns to the days of his youth.
+25. His flesh shall be fresher than a child's.    He returns to the days of his youth.
 
 26. He prays to God, and he is favorable to him,    so that he sees his face with joy.    He restores to man his righteousness.
 
-27. He sings before men, and says,    `I have sinned, and perverted that which was right,    and it didn`t profit me.
+27. He sings before men, and says,    'I have sinned, and perverted that which was right,    and it didn't profit me.
 
-28. He has redeemed my soul from going into the pit.    My life shall see the light.`
+28. He has redeemed my soul from going into the pit.    My life shall see the light.'
 
 29. "Behold, God works all these things,    twice, yes three times, with a man,
 
@@ -1737,15 +1737,15 @@
 
 4. Let us choose for us that which is right.    Let us know among ourselves what is good.
 
-5. For Job has said, `I am righteous,    God has taken away my right:
+5. For Job has said, 'I am righteous,    God has taken away my right:
 
-6. Notwithstanding my right I am considered a liar.    My wound is incurable, though I am without disobedience.`
+6. Notwithstanding my right I am considered a liar.    My wound is incurable, though I am without disobedience.'
 
 7. What man is like Job,    who drinks scorn like water,
 
 8. Who goes in company with the workers of iniquity,    and walks with wicked men?
 
-9. For he has said, `It profits a man nothing    that he should delight himself with God.`
+9. For he has said, 'It profits a man nothing    that he should delight himself with God.'
 
 10. "Therefore listen to me, you men of understanding:    far be it from God, that he should do wickedness,    from the Almighty, that he should commit iniquity.
 
@@ -1763,9 +1763,9 @@
 
 17. Shall even one who hates justice govern?    Will you condemn him who is righteous and mighty?--
 
-18. Who says to a king, `Vile!`    or to nobles, `Wicked!`?
+18. Who says to a king, 'Vile!'    or to nobles, 'Wicked!'?
 
-19. Who doesn`t respect the persons of princes,    nor respects the rich more than the poor;    for they all are the work of his hands.
+19. Who doesn't respect the persons of princes,    nor respects the rich more than the poor;    for they all are the work of his hands.
 
 20. In a moment they die, even at midnight.    The people are shaken and pass away.    The mighty are taken away without a hand.
 
@@ -1773,7 +1773,7 @@
 
 22. There is no darkness, nor thick gloom,    where the workers of iniquity may hide themselves.
 
-23. For he doesn`t need to consider a man further,    that he should go before God in judgment.
+23. For he doesn't need to consider a man further,    that he should go before God in judgment.
 
 24. He breaks in pieces mighty men in ways past finding out,    and sets others in their place.
 
@@ -1781,7 +1781,7 @@
 
 26. He strikes them as wicked men    in the open sight of others;
 
-27. because they turned aside from following him,    and wouldn`t pay attention to any of his ways,
+27. because they turned aside from following him,    and wouldn't pay attention to any of his ways,
 
 28. so that they caused the cry of the poor to come to him.    He heard the cry of the afflicted.
 
@@ -1789,15 +1789,15 @@
 
 30. that the godless man may not reign,    that there be no one to ensnare the people.
 
-31. "For has any said to God,    `I am guilty, but I will not offend any more.
+31. "For has any said to God,    'I am guilty, but I will not offend any more.
 
-32. Teach me that which I don`t see.    If I have done iniquity, I will do it no more`?
+32. Teach me that which I don't see.    If I have done iniquity, I will do it no more'?
 
 33. Shall his recompense be as you desire, that you refuse it?    For you must choose, and not I.    Therefore speak what you know.
 
 34. Men of understanding will tell me,    yes, every wise man who hears me:
 
-35. `Job speaks without knowledge.    His words are without wisdom.`
+35. 'Job speaks without knowledge.    His words are without wisdom.'
 
 36. I wish that Job were tried to the end,    because of his answering like wicked men.
 
@@ -1808,9 +1808,9 @@
 
 1. Moreover Elihu answered,
 
-2. "Do you think this to be your right,    or do you say, `My righteousness is more than God`s,`
+2. "Do you think this to be your right,    or do you say, 'My righteousness is more than God's,'
 
-3. That you ask, `What advantage will it be to you?    What profit shall I have, more than if I had sinned?`
+3. That you ask, 'What advantage will it be to you?    What profit shall I have, more than if I had sinned?'
 
 4. I will answer you,    and your companions with you.
 
@@ -1824,15 +1824,15 @@
 
 9. "By reason of the multitude of oppressions they cry out.    They cry for help by reason of the arm of the mighty.
 
-10. But none says, `Where is God my Maker,    who gives songs in the night,
+10. But none says, 'Where is God my Maker,    who gives songs in the night,
 
-11. who teaches us more than the animals of the earth,    and makes us wiser than the birds of the sky?`
+11. who teaches us more than the animals of the earth,    and makes us wiser than the birds of the sky?'
 
 12. There they cry, but none gives answer,    because of the pride of evil men.
 
 13. Surely God will not hear an empty cry,    neither will the Almighty regard it.
 
-14. How much less when you say you don`t see him.    The cause is before him, and you wait for him!
+14. How much less when you say you don't see him.    The cause is before him, and you wait for him!
 
 15. But now, because he has not visited in his anger,    neither does he greatly regard arrogance.
 
@@ -1843,17 +1843,17 @@
 
 1. Elihu also continued, and said,
 
-2. "Bear with me a little, and I will show you;    for I still have something to say on God`s behalf.
+2. "Bear with me a little, and I will show you;    for I still have something to say on God's behalf.
 
 3. I will get my knowledge from afar,    and will ascribe righteousness to my Maker.
 
 4. For truly my words are not false.    One who is perfect in knowledge is with you.
 
-5. "Behold, God is mighty, and doesn`t despise anyone.    He is mighty in strength of understanding.
+5. "Behold, God is mighty, and doesn't despise anyone.    He is mighty in strength of understanding.
 
-6. He doesn`t preserve the life of the wicked,    but gives to the afflicted their right.
+6. He doesn't preserve the life of the wicked,    but gives to the afflicted their right.
 
-7. He doesn`t withdraw his eyes from the righteous,    but with kings on the throne,    he sets them forever, and they are exalted.
+7. He doesn't withdraw his eyes from the righteous,    but with kings on the throne,    he sets them forever, and they are exalted.
 
 8. If they are bound in fetters,    and are taken in the cords of afflictions,
 
@@ -1863,9 +1863,9 @@
 
 11. If they listen and serve him,    they shall spend their days in prosperity,    and their years in pleasures.
 
-12. But if they don`t listen, they shall perish by the sword;    they shall die without knowledge.
+12. But if they don't listen, they shall perish by the sword;    they shall die without knowledge.
 
-13. "But those who are godless in heart lay up anger.    They don`t cry for help when he binds them.
+13. "But those who are godless in heart lay up anger.    They don't cry for help when he binds them.
 
 14. They die in youth.    Their life perishes among the unclean.
 
@@ -1875,23 +1875,23 @@
 
 17. "But you are full of the judgment of the wicked.    Judgment and justice take hold of you.
 
-18. Don`t let riches entice you to wrath,    neither let the great size of a bribe turn you aside.
+18. Don't let riches entice you to wrath,    neither let the great size of a bribe turn you aside.
 
 19. Would your wealth sustain you in distress,    or all the might of your strength?
 
-20. Don`t desire the night,    when people are cut off in their place.
+20. Don't desire the night,    when people are cut off in their place.
 
-21. Take heed, don`t regard iniquity;    for you have chosen this rather than affliction.
+21. Take heed, don't regard iniquity;    for you have chosen this rather than affliction.
 
 22. Behold, God is exalted in his power.    Who is a teacher like him?
 
-23. Who has prescribed his way for him?    Or who can say, `You have committed unrighteousness?`
+23. Who has prescribed his way for him?    Or who can say, 'You have committed unrighteousness?'
 
 24. "Remember that you magnify his work,    whereof men have sung.
 
 25. All men have looked thereon.    Man sees it afar off.
 
-26. Behold, God is great, and we don`t know him.    The number of his years is unsearchable.
+26. Behold, God is great, and we don't know him.    The number of his years is unsearchable.
 
 27. For he draws up the drops of water,    which distill in rain from his vapor,
 
@@ -1916,11 +1916,11 @@
 
 3. He sends it forth under the whole sky,    and his lightning to the ends of the earth.
 
-4. After it a voice roars.    He thunders with the voice of his majesty.    He doesn`t hold back anything when his voice is heard.
+4. After it a voice roars.    He thunders with the voice of his majesty.    He doesn't hold back anything when his voice is heard.
 
-5. God thunders marvelously with his voice.    He does great things, which we can`t comprehend.
+5. God thunders marvelously with his voice.    He does great things, which we can't comprehend.
 
-6. For he says to the snow, `Fall on the earth;`    likewise to the shower of rain,    and to the showers of his mighty rain.
+6. For he says to the snow, 'Fall on the earth;'    likewise to the shower of rain,    and to the showers of his mighty rain.
 
 7. He seals up the hand of every man,    that all men whom he has made may know it.
 
@@ -1946,17 +1946,17 @@
 
 18. Can you, with him, spread out the sky,    which is strong as a cast metal mirror?
 
-19. Teach us what we shall tell him,    for we can`t make our case by reason of darkness.
+19. Teach us what we shall tell him,    for we can't make our case by reason of darkness.
 
 20. Shall it be told him that I would speak?    Or should a man wish that he were swallowed up?
 
-21. Now men don`t see the light which is bright in the skies,    but the wind passes, and clears them.
+21. Now men don't see the light which is bright in the skies,    but the wind passes, and clears them.
 
 22. Out of the north comes golden splendor.    With God is awesome majesty.
 
-23. We can`t reach the Almighty.    He is exalted in power.    In justice and great righteousness, he will not oppress.
+23. We can't reach the Almighty.    He is exalted in power.    In justice and great righteousness, he will not oppress.
 
-24. Therefore men revere him.    He doesn`t regard any who are wise of heart."
+24. Therefore men revere him.    He doesn't regard any who are wise of heart."
 
 
 ## Chapter 38
@@ -1981,7 +1981,7 @@
 
 10. marked out for it my bound,    set bars and doors,
 
-11. and said, `Here you may come, but no further.    Here your proud waves shall be stayed?`
+11. and said, 'Here you may come, but no further.    Here your proud waves shall be stayed?'
 
 12. "Have you commanded the morning in your days,    and caused the dawn to know its place;
 
@@ -2029,7 +2029,7 @@
 
 34. "Can you lift up your voice to the clouds,    That abundance of waters may cover you?
 
-35. Can you send forth lightnings, that they may go?    Do they report to you, `Here we are?`
+35. Can you send forth lightnings, that they may go?    Do they report to you, 'Here we are?'
 
 36. Who has put wisdom in the inward parts?    Or who has given understanding to the mind?
 
@@ -2052,7 +2052,7 @@
 
 3. They bow themselves, they bring forth their young,    they end their labor pains.
 
-4. Their young ones become strong.    They grow up in the open field.    They go forth, and don`t return again.
+4. Their young ones become strong.    They grow up in the open field.    They go forth, and don't return again.
 
 5. "Who has set the wild donkey free?    Or who has loosened the bonds of the swift donkey,
 
@@ -2094,7 +2094,7 @@
 
 24. He eats up the ground with fierceness and rage,    neither does he stand still at the sound of the trumpet.
 
-25. As often as the trumpet sounds he snorts, `Aha!`    He smells the battle afar off,    the thunder of the captains, and the shouting.
+25. As often as the trumpet sounds he snorts, 'Aha!'    He smells the battle afar off,    the thunder of the captains, and the shouting.
 
 26. "Is it by your wisdom that the hawk soars,    and stretches her wings toward the south?
 
@@ -2153,7 +2153,7 @@
 
 22. The lotuses cover him with their shade.    The willows of the brook surround him.
 
-23. Behold, if a river overflows, he doesn`t tremble.    He is confident, though the Jordan swells even to his mouth.
+23. Behold, if a river overflows, he doesn't tremble.    He is confident, though the Jordan swells even to his mouth.
 
 24. Shall any take him when he is on the watch,    or pierce through his nose with a snare?
 
@@ -2176,7 +2176,7 @@
 
 8. Lay your hand on him.    Remember the battle, and do so no more.
 
-9. Behold, the hope of him is in vain.    Won`t one be cast down even at the sight of him?
+9. Behold, the hope of him is in vain.    Won't one be cast down even at the sight of him?
 
 10. None is so fierce that he dare stir him up.    Who then is he who can stand before me?
 
@@ -2192,7 +2192,7 @@
 
 16. One is so near to another,    that no air can come between them.
 
-17. They are joined one to another.    They stick together, so that they can`t be pulled apart.
+17. They are joined one to another.    They stick together, so that they can't be pulled apart.
 
 18. His sneezing flashes out light.    His eyes are like the eyelids of the morning.
 
@@ -2204,17 +2204,17 @@
 
 22. There is strength in his neck.    Terror dances before him.
 
-23. The flakes of his flesh are joined together.    They are firm on him.    They can`t be moved.
+23. The flakes of his flesh are joined together.    They are firm on him.    They can't be moved.
 
 24. His heart is as firm as a stone,    yes, firm as the lower millstone.
 
 25. When he raises himself up, the mighty are afraid.    They retreat before his thrashing.
 
-26. If one attacks him with the sword, it can`t prevail;    nor the spear, the dart, nor the pointed shaft.
+26. If one attacks him with the sword, it can't prevail;    nor the spear, the dart, nor the pointed shaft.
 
 27. He counts iron as straw;    and brass as rotten wood.
 
-28. The arrow can`t make him flee.    Sling stones are like chaff to him.
+28. The arrow can't make him flee.    Sling stones are like chaff to him.
 
 29. Clubs are counted as stubble.    He laughs at the rushing of the javelin.
 
@@ -2235,9 +2235,9 @@
 
 2. "I know that you can do all things,    and that no purpose of yours can be restrained.
 
-3. You asked, `Who is this who hides counsel without knowledge?`    therefore I have uttered that which I did not understand,    things too wonderful for me, which I didn`t know.
+3. You asked, 'Who is this who hides counsel without knowledge?'    therefore I have uttered that which I did not understand,    things too wonderful for me, which I didn't know.
 
-4. You said, `Listen, now, and I will speak;    I will question you, and you will answer me.`
+4. You said, 'Listen, now, and I will speak;    I will question you, and you will answer me.'
 
 5. I had heard of you by the hearing of the ear,    but now my eye sees you.
 
@@ -2261,7 +2261,7 @@
 
 15. In all the land were no women found so beautiful as the daughters of Job. Their father gave them an inheritance among their brothers.
 
-16. After this Job lived one hundred forty years, and saw his sons, and his sons` sons, to four generations.
+16. After this Job lived one hundred forty years, and saw his sons, and his sons' sons, to four generations.
 
 17. So Job died, being old and full of days.
 

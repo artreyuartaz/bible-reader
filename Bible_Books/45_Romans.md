@@ -10,7 +10,7 @@
 
 4. who was declared to be the Son of God with power, according to the Spirit of holiness, by the resurrection from the dead, Jesus Christ our Lord,
 
-5. through whom we received grace and apostleship, for obedience of faith among all the nations, for his name`s sake;
+5. through whom we received grace and apostleship, for obedience of faith among all the nations, for his name's sake;
 
 6. among whom you are also called to belong to Jesus Christ;
 
@@ -24,9 +24,9 @@
 
 11. For I long to see you, that I may impart to you some spiritual gift, to the end that you may be established;
 
-12. that is, that I with you may be encouraged in you, each of us by the other`s faith, both yours and mine.
+12. that is, that I with you may be encouraged in you, each of us by the other's faith, both yours and mine.
 
-13. Now I don`t desire to have you unaware, brothers, that I often planned to come to you, and was hindered so far, that I might have some fruit among you also, even as among the rest of the Gentiles.
+13. Now I don't desire to have you unaware, brothers, that I often planned to come to you, and was hindered so far, that I might have some fruit among you also, even as among the rest of the Gentiles.
 
 14. I am debtor both to Greeks and to foreigners, both to the wise and to the foolish.
 
@@ -34,7 +34,7 @@
 
 16. For I am not ashamed of the Good News of Christ, for it is the power of God for salvation for everyone who believes; for the Jew first, and also for the Greek.
 
-17. For in it is revealed God`s righteousness from faith to faith. As it is written, "But the righteous shall live by faith."
+17. For in it is revealed God's righteousness from faith to faith. As it is written, "But the righteous shall live by faith."
 
 18. For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who suppress the truth in unrighteousness,
 
@@ -42,7 +42,7 @@
 
 20. For the invisible things of him since the creation of the world are clearly seen, being perceived through the things that are made, even his everlasting power and divinity; that they may be without excuse.
 
-21. Because, knowing God, they didn`t glorify him as God, neither gave thanks, but became vain in their reasoning, and their senseless heart was darkened.
+21. Because, knowing God, they didn't glorify him as God, neither gave thanks, but became vain in their reasoning, and their senseless heart was darkened.
 
 22. Professing themselves to be wise, they became fools,
 
@@ -83,7 +83,7 @@
 
 7. to those who by patience in well-doing seek for glory, honor, and incorruptibility, eternal life;
 
-8. but to those who are self-seeking, and don`t obey the truth, but obey unrighteousness, will be wrath and indignation,
+8. but to those who are self-seeking, and don't obey the truth, but obey unrighteousness, will be wrath and indignation,
 
 9. oppression and anguish, on every soul of man who works evil, to the Jew first, and also to the Greek.
 
@@ -93,9 +93,9 @@
 
 12. For as many as have sinned without law will also perish without the law. As many as have sinned under the law will be judged by the law.
 
-13. For it isn`t the hearers of the law who are righteous before God, but the doers of the law will be justified
+13. For it isn't the hearers of the law who are righteous before God, but the doers of the law will be justified
 
-14. (for when Gentiles who don`t have the law do by nature the things of the law, these, not having the law, are a law to themselves,
+14. (for when Gentiles who don't have the law do by nature the things of the law, these, not having the law, are a law to themselves,
 
 15. in that they show the work of the law written in their hearts, their conscience testifying with them, and their thoughts among themselves accusing or else excusing them)
 
@@ -109,9 +109,9 @@
 
 20. a corrector of the foolish, a teacher of babies, having in the law the form of knowledge and of the truth.
 
-21. You therefore who teach another, don`t you teach yourself? You who preach that a man shouldn`t steal, do you steal?
+21. You therefore who teach another, don't you teach yourself? You who preach that a man shouldn't steal, do you steal?
 
-22. You who say a man shouldn`t commit adultery. Do you commit adultery? You who abhor idols, do you rob temples?
+22. You who say a man shouldn't commit adultery. Do you commit adultery? You who abhor idols, do you rob temples?
 
 23. You who glory in the law, through your disobedience of the law do you dishonor God?
 
@@ -119,9 +119,9 @@
 
 25. For circumcision indeed profits, if you are a doer of the law, but if you are a transgressor of the law, your circumcision has become uncircumcision.
 
-26. If therefore the uncircumcised keep the ordinances of the law, won`t his uncircumcision be accounted as circumcision?
+26. If therefore the uncircumcised keep the ordinances of the law, won't his uncircumcision be accounted as circumcision?
 
-27. Won`t the uncircumcision which is by nature, if it fulfills the law, judge you, who with the letter and circumcision are a transgressor of the law?
+27. Won't the uncircumcision which is by nature, if it fulfills the law, judge you, who with the letter and circumcision are a transgressor of the law?
 
 28. For he is not a Jew who is one outwardly, neither is that circumcision which is outward in the flesh;
 
@@ -162,7 +162,7 @@
 
 16. Destruction and misery are in their ways.
 
-17. The way of peace, they haven`t known."
+17. The way of peace, they haven't known."
 
 18. "There is no fear of God before their eyes."
 
@@ -178,7 +178,7 @@
 
 24. being justified freely by his grace through the redemption that is in Christ Jesus;
 
-25. whom God set forth to be an atoning sacrifice, through faith in his blood, for a demonstration of his righteousness through the passing over of prior sins, in God`s forbearance;
+25. whom God set forth to be an atoning sacrifice, through faith in his blood, for a demonstration of his righteousness through the passing over of prior sins, in God's forbearance;
 
 26. to demonstrate his righteousness at this present time; that he might himself be just, and the justifier of him who has faith in Jesus.
 
@@ -186,7 +186,7 @@
 
 28. We maintain therefore that a man is justified by faith apart from the works of the law.
 
-29. Or is God the God of Jews only? Isn`t he the God of Gentiles also? Yes, of Gentiles also,
+29. Or is God the God of Jews only? Isn't he the God of Gentiles also? Yes, of Gentiles also,
 
 30. since indeed there is one God who will justify the circumcised by faith, and the uncircumcised through faith.
 
@@ -203,7 +203,7 @@
 
 4. Now to him who works, the reward is not counted as grace, but as debt.
 
-5. But to him who doesn`t work, but believes in him who justifies the ungodly, his faith is accounted for righteousness.
+5. But to him who doesn't work, but believes in him who justifies the ungodly, his faith is accounted for righteousness.
 
 6. Even as David also pronounces blessing on the man to whom God counts righteousness apart from works,
 
@@ -219,7 +219,7 @@
 
 12. The father of circumcision to those who not only are of the circumcision, but who also walk in the steps of that faith of our father Abraham, which he had in uncircumcision.
 
-13. For the promise to Abraham and to his seed that he should be heir of the world wasn`t through the law, but through the righteousness of faith.
+13. For the promise to Abraham and to his seed that he should be heir of the world wasn't through the law, but through the righteousness of faith.
 
 14. For if those who are of the law are heirs, faith is made void, and the promise is made of no effect.
 
@@ -231,9 +231,9 @@
 
 18. Who in hope believed against hope, to the end that he might become a father of many nations, according to that which had been spoken, "So will your seed be."
 
-19. Without being weakened in faith, he didn`t consider his own body, already having been worn out, (he being about a hundred years old), and the deadness of Sarah`s womb.
+19. Without being weakened in faith, he didn't consider his own body, already having been worn out, (he being about a hundred years old), and the deadness of Sarah's womb.
 
-20. Yet, looking to the promise of God, he didn`t waver through unbelief, but grew strong through faith, giving glory to God,
+20. Yet, looking to the promise of God, he didn't waver through unbelief, but grew strong through faith, giving glory to God,
 
 21. and being fully assured that what he had promised, he was able also to perform.
 
@@ -256,7 +256,7 @@
 
 4. and perseverance, proven character; and proven character, hope:
 
-5. and hope doesn`t disappoint us, because God`s love has been poured out into our hearts through the Holy Spirit who was given to us.
+5. and hope doesn't disappoint us, because God's love has been poured out into our hearts through the Holy Spirit who was given to us.
 
 6. For while we were yet weak, at the right time Christ died for the ungodly.
 
@@ -264,7 +264,7 @@
 
 8. But God commends his own love toward us, in that while we were yet sinners, Christ died for us.
 
-9. Much more then, being now justified by his blood, we will be saved from God`s wrath through him.
+9. Much more then, being now justified by his blood, we will be saved from God's wrath through him.
 
 10. For if, while we were enemies, we were reconciled to God through the death of his Son, much more, being reconciled, we will be saved by his life.
 
@@ -274,9 +274,9 @@
 
 13. For until the law, sin was in the world; but sin is not charged when there is no law.
 
-14. Nevertheless death reigned from Adam until Moses, even over those whose sins weren`t like Adam`s disobedience, who is a foreshadowing of him who was to come.
+14. Nevertheless death reigned from Adam until Moses, even over those whose sins weren't like Adam's disobedience, who is a foreshadowing of him who was to come.
 
-15. But the free gift isn`t like the trespass. For if by the trespass of the one the many died, much more did the grace of God, and the gift by the grace of the one man, Jesus Christ, abound to the many.
+15. But the free gift isn't like the trespass. For if by the trespass of the one the many died, much more did the grace of God, and the gift by the grace of the one man, Jesus Christ, abound to the many.
 
 16. The gift is not as through one who sinned: for the judgment came by one to condemnation, but the free gift came of many trespasses to justification.
 
@@ -284,7 +284,7 @@
 
 18. So then as through one trespass, all men were condemned; even so through one act of righteousness, all men were justified to life.
 
-19. For as through the one man`s disobedience many were made sinners, even so through the obedience of the one, many will be made righteous.
+19. For as through the one man's disobedience many were made sinners, even so through the obedience of the one, many will be made righteous.
 
 20. The law came in besides, that the trespass might abound; but where sin abounded, grace abounded more exceedingly;
 
@@ -297,7 +297,7 @@
 
 2. May it never be! We who died to sin, how could we live in it any longer?
 
-3. Or don`t you know that all we who were baptized into Christ Jesus were baptized into his death?
+3. Or don't you know that all we who were baptized into Christ Jesus were baptized into his death?
 
 4. We were buried therefore with him through baptism to death, that just like Christ was raised from the dead through the glory of the Father, so we also might walk in newness of life.
 
@@ -315,7 +315,7 @@
 
 11. Thus consider yourselves also to be dead to sin, but alive to God in Christ Jesus our Lord.
 
-12. Therefore don`t let sin reign in your mortal body, that you should obey it in its lusts.
+12. Therefore don't let sin reign in your mortal body, that you should obey it in its lusts.
 
 13. Neither present your members to sin as instruments of unrighteousness, but present yourselves to God, as alive from the dead, and your members as instruments of righteousness to God.
 
@@ -323,7 +323,7 @@
 
 15. What then? Shall we sin, because we are not under law, but under grace? May it never be!
 
-16. Don`t you know that to whom you present yourselves as servants to obedience, his servants you are whom you obey; whether of sin to death, or of obedience to righteousness?
+16. Don't you know that to whom you present yourselves as servants to obedience, his servants you are whom you obey; whether of sin to death, or of obedience to righteousness?
 
 17. But thanks be to God, that, whereas you were bondservants of sin, you became obedient from the heart to that form of teaching whereunto you were delivered.
 
@@ -342,7 +342,7 @@
 
 ## Chapter 7
 
-1. Or don`t you know, brothers (for I speak to men who know the law), that the law has dominion over a man for as long as he lives?
+1. Or don't you know, brothers (for I speak to men who know the law), that the law has dominion over a man for as long as he lives?
 
 2. For the woman that has a husband is bound by law to the husband while he lives, but if the husband dies, she is discharged from the law of the husband.
 
@@ -354,7 +354,7 @@
 
 6. But now we have been discharged from the law, having died to that in which we were held; so that we serve in newness of the spirit, and not in oldness of the letter.
 
-7. What shall we say then? Is the law sin? May it never be! However, I wouldn`t have known sin, except through the law. For I wouldn`t have known coveting, unless the law had said, "You shall not covet."
+7. What shall we say then? Is the law sin? May it never be! However, I wouldn't have known sin, except through the law. For I wouldn't have known coveting, unless the law had said, "You shall not covet."
 
 8. But sin, finding occasion through the commandment, produced in me all kinds of coveting. For apart from the law, sin is dead.
 
@@ -370,36 +370,36 @@
 
 14. For we know that the law is spiritual, but I am fleshly, sold under sin.
 
-15. For I don`t know what I am doing. For I don`t practice what I desire to do; but what I hate, that I do.
+15. For I don't know what I am doing. For I don't practice what I desire to do; but what I hate, that I do.
 
-16. But if what I don`t desire, that I do, I consent to the law that it is good.
+16. But if what I don't desire, that I do, I consent to the law that it is good.
 
 17. So now it is no more I that do it, but sin which dwells in me.
 
-18. For I know that in me, that is, in my flesh, dwells no good thing. For desire is present with me, but I don`t find it doing that which is good.
+18. For I know that in me, that is, in my flesh, dwells no good thing. For desire is present with me, but I don't find it doing that which is good.
 
-19. For the good which I desire, I don`t do; but the evil which I don`t desire, that I practice.
+19. For the good which I desire, I don't do; but the evil which I don't desire, that I practice.
 
-20. But if what I don`t desire, that I do, it is no more I that do it, but sin which dwells in me.
+20. But if what I don't desire, that I do, it is no more I that do it, but sin which dwells in me.
 
 21. I find then the law, that, to me, while I desire to do good, evil is present.
 
-22. For I delight in God`s law after the inward man,
+22. For I delight in God's law after the inward man,
 
 23. but I see a different law in my members, warring against the law of my mind, and bringing me into captivity under the law of sin which is in my members.
 
 24. What a wretched man I am! Who will deliver me out of the body of this death?
 
-25. I thank God through Jesus Christ, our Lord! So then with the mind, I myself serve God`s law, but with the flesh, the sin`s law.
+25. I thank God through Jesus Christ, our Lord! So then with the mind, I myself serve God's law, but with the flesh, the sin's law.
 
 
 ## Chapter 8
 
-1. There is therefore now no condemnation to those who are in Christ Jesus, who don`t walk according to the flesh, but according to the Spirit.
+1. There is therefore now no condemnation to those who are in Christ Jesus, who don't walk according to the flesh, but according to the Spirit.
 
 2. For the law of the Spirit of life in Christ Jesus made me free from the law of sin and of death.
 
-3. For what the law couldn`t do, in that it was weak through the flesh, God did, sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh;
+3. For what the law couldn't do, in that it was weak through the flesh, God did, sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh;
 
 4. that the ordinance of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit.
 
@@ -407,11 +407,11 @@
 
 6. For the mind of the flesh is death, but the mind of the Spirit is life and peace;
 
-7. because the mind of the flesh is hostile towards God; for it is not subject to God`s law, neither indeed can it be.
+7. because the mind of the flesh is hostile towards God; for it is not subject to God's law, neither indeed can it be.
 
-8. Those who are in the flesh can`t please God.
+8. Those who are in the flesh can't please God.
 
-9. But you are not in the flesh but in the Spirit, if it is so that the Spirit of God dwells in you. But if any man doesn`t have the Spirit of Christ, he is not his.
+9. But you are not in the flesh but in the Spirit, if it is so that the Spirit of God dwells in you. But if any man doesn't have the Spirit of Christ, he is not his.
 
 10. If Christ is in you, the body is dead because of sin, but the spirit is alive because of righteousness.
 
@@ -423,7 +423,7 @@
 
 14. For as many as are led by the Spirit of God, these are children of God.
 
-15. For you didn`t receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!"
+15. For you didn't receive the spirit of bondage again to fear, but you received the Spirit of adoption, by whom we cry, "Abba! Father!"
 
 16. The Spirit himself testifies with our spirit that we are children of God;
 
@@ -443,11 +443,11 @@
 
 24. For we were saved in hope, but hope that is seen is not hope. For who hopes for that which he sees?
 
-25. But if we hope for that which we don`t see, we wait for it with patience.
+25. But if we hope for that which we don't see, we wait for it with patience.
 
-26. In the same way, the Spirit also helps our weaknesses, for we don`t know how to pray as we ought. But the Spirit himself makes intercession for us with groanings which can`t be uttered.
+26. In the same way, the Spirit also helps our weaknesses, for we don't know how to pray as we ought. But the Spirit himself makes intercession for us with groanings which can't be uttered.
 
-27. He who searches the hearts knows what is on the Spirit`s mind, because he makes intercession for the saints according to God.
+27. He who searches the hearts knows what is on the Spirit's mind, because he makes intercession for the saints according to God.
 
 28. We know that all things work together for good for those who love God, to those who are called according to his purpose.
 
@@ -457,9 +457,9 @@
 
 31. What then shall we say about these things? If God is for us, who can be against us?
 
-32. He who didn`t spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things?
+32. He who didn't spare his own Son, but delivered him up for us all, how would he not also with him freely give us all things?
 
-33. Who could bring a charge against God`s chosen ones? It is God who justifies.
+33. Who could bring a charge against God's chosen ones? It is God who justifies.
 
 34. Who is he who condemns? It is Christ who died, yes rather, who was raised from the dead, who is at the right hand of God, who also makes intercession for us.
 
@@ -480,7 +480,7 @@
 
 2. that I have great sorrow and unceasing pain in my heart.
 
-3. For I could wish that I myself were accursed from Christ for my brothers` sake, my relatives according to the flesh,
+3. For I could wish that I myself were accursed from Christ for my brothers' sake, my relatives according to the flesh,
 
 4. who are Israelites; whose is the adoption, the glory, the covenants, the giving of the law, the service, and the promises;
 
@@ -488,7 +488,7 @@
 
 6. But it is not as though the word of God has come to nothing. For they are not all Israel, that are of Israel.
 
-7. Neither, because they are Abraham`s seed, are they all children. But, "In Isaac will your seed be called."
+7. Neither, because they are Abraham's seed, are they all children. But, "In Isaac will your seed be called."
 
 8. That is, it is not the children of the flesh who are children of God, but the children of the promise are counted as a seed.
 
@@ -516,7 +516,7 @@
 
 20. But indeed, O man, who are you to reply against God? Will the thing formed ask him who formed it, "Why did you make me like this?"
 
-21. Or hasn`t the potter a right over the clay, from the same lump to make one part a vessel for honor, and another for dishonor?
+21. Or hasn't the potter a right over the clay, from the same lump to make one part a vessel for honor, and another for dishonor?
 
 22. What if God, willing to show his wrath, and to make his power known, endured with much patience vessels of wrath made for destruction,
 
@@ -524,9 +524,9 @@
 
 24. us, whom he also called, not from the Jews only, but also from the Gentiles?
 
-25. As he says also in Hosea, "I will call them `my people,` which were not my people;    and her `beloved,` who was not beloved."
+25. As he says also in Hosea, "I will call them 'my people,' which were not my people;    and her 'beloved,' who was not beloved."
 
-26. "It will be that in the place where it was said to them, `You       are not my people,`    There they will be called `children of the living God.`"
+26. "It will be that in the place where it was said to them, 'You       are not my people,'    There they will be called 'children of the living God.'"
 
 27. Isaiah cries concerning Israel, "If the number of the children of Israel are as the sand of the sea,    it is the remnant who will be saved;
 
@@ -534,30 +534,30 @@
 
 29. As Isaiah has said before, "Unless the Lord of Armies had left us a seed,    we would have become like Sodom,    and would have been made like Gomorrah."
 
-30. What shall we say then? That the Gentiles, who didn`t follow after righteousness, attained to righteousness, even the righteousness which is of faith;
+30. What shall we say then? That the Gentiles, who didn't follow after righteousness, attained to righteousness, even the righteousness which is of faith;
 
-31. but Israel, following after a law of righteousness, didn`t arrive at the law of righteousness.
+31. but Israel, following after a law of righteousness, didn't arrive at the law of righteousness.
 
-32. Why? Because they didn`t seek it by faith, but as it were by works of the law. They stumbled over the stumbling stone;
+32. Why? Because they didn't seek it by faith, but as it were by works of the law. They stumbled over the stumbling stone;
 
 33. even as it is written, "Behold, I lay in Zion a stumbling stone and a rock of offense;    and no one who believes in him will be disappointed."
 
 
 ## Chapter 10
 
-1. Brothers, my heart`s desire and my prayer to God is for Israel, that they may be saved.
+1. Brothers, my heart's desire and my prayer to God is for Israel, that they may be saved.
 
 2. For I testify about them that they have a zeal for God, but not according to knowledge.
 
-3. For being ignorant of God`s righteousness, and seeking to establish their own righteousness, they didn`t subject themselves to the righteousness of God.
+3. For being ignorant of God's righteousness, and seeking to establish their own righteousness, they didn't subject themselves to the righteousness of God.
 
 4. For Christ is the fulfillment of the law for righteousness to everyone who believes.
 
 5. For Moses writes about the righteousness of the law, "The one who does them will live by them."
 
-6. But the righteousness which is of faith says this, "Don`t say in your heart, `Who will ascend into heaven?` (that is, to bring Christ down);
+6. But the righteousness which is of faith says this, "Don't say in your heart, 'Who will ascend into heaven?' (that is, to bring Christ down);
 
-7. or, `Who will descend into the abyss?` (that is, to bring Christ up from the dead.)"
+7. or, 'Who will descend into the abyss?' (that is, to bring Christ up from the dead.)"
 
 8. But what does it say? "The word is near you, in your mouth, and in your heart;" that is, the word of faith, which we preach:
 
@@ -575,15 +575,15 @@
 
 15. And how will they preach unless they are sent? As it is written: "How beautiful are the feet of those who preach the Good News of peace,    who bring glad tidings of good things!"
 
-16. But they didn`t all listen to the glad news. For Isaiah says, "Lord, who has believed our report?"
+16. But they didn't all listen to the glad news. For Isaiah says, "Lord, who has believed our report?"
 
 17. So faith comes by hearing, and hearing by the word of God.
 
-18. But I say, didn`t they hear? Yes, most certainly, "Their sound went out into all the earth,    their words to the ends of the world."
+18. But I say, didn't they hear? Yes, most certainly, "Their sound went out into all the earth,    their words to the ends of the world."
 
-19. But I ask, didn`t Israel know? First Moses says, "I will provoke you to jealousy with that which is no nation,    with a nation void of understanding I will make you angry."
+19. But I ask, didn't Israel know? First Moses says, "I will provoke you to jealousy with that which is no nation,    with a nation void of understanding I will make you angry."
 
-20. Isaiah is very bold, and says, "I was found by those who didn`t seek me.    I was revealed to those who didn`t ask for me."
+20. Isaiah is very bold, and says, "I was found by those who didn't seek me.    I was revealed to those who didn't ask for me."
 
 21. But as to Israel he says, "All day long I stretched out my hands to a disobedient and contrary people."
 
@@ -592,7 +592,7 @@
 
 1. I ask then, did God reject his people? May it never be! For I also am an Israelite, a descendant of Abraham, of the tribe of Benjamin.
 
-2. God didn`t reject his people, which he foreknew. Or don`t you know what the Scripture says about Elijah? How he pleads with God against Israel:
+2. God didn't reject his people, which he foreknew. Or don't you know what the Scripture says about Elijah? How he pleads with God against Israel:
 
 3. "Lord, they have killed your prophets, they have broken down your altars; and I am left alone, and they seek my life."
 
@@ -602,7 +602,7 @@
 
 6. And if by grace, then it is no longer of works; otherwise grace is no longer grace. But if it is of works, it is no longer grace; otherwise work is no longer work.
 
-7. What then? That which Israel seeks for, that he didn`t obtain, but the chosen ones obtained it, and the rest were hardened.
+7. What then? That which Israel seeks for, that he didn't obtain, but the chosen ones obtained it, and the rest were hardened.
 
 8. According as it is written, "God gave them a spirit of stupor, eyes that they should not see, and ears that they should not hear, to this very day."
 
@@ -624,27 +624,27 @@
 
 17. But if some of the branches were broken off, and you, being a wild olive, were grafted in among them, and became partaker with them of the root and of the richness of the olive tree;
 
-18. don`t boast over the branches. But if you boast, it is not you who support the root, but the root supports you.
+18. don't boast over the branches. But if you boast, it is not you who support the root, but the root supports you.
 
 19. You will say then, "Branches were broken off, that I might be grafted in."
 
-20. True; by their unbelief they were broken off, and you stand by your faith. Don`t be conceited, but fear;
+20. True; by their unbelief they were broken off, and you stand by your faith. Don't be conceited, but fear;
 
-21. for if God didn`t spare the natural branches, neither will he spare you.
+21. for if God didn't spare the natural branches, neither will he spare you.
 
 22. See then the goodness and severity of God. Toward those who fell, severity; but toward you, goodness, if you continue in his goodness; otherwise you also will be cut off.
 
-23. They also, if they don`t continue in their unbelief, will be grafted in, for God is able to graft them in again.
+23. They also, if they don't continue in their unbelief, will be grafted in, for God is able to graft them in again.
 
 24. For if you were cut out of that which is by nature a wild olive tree, and were grafted contrary to nature into a good olive tree, how much more will these, which are the natural branches, be grafted into their own olive tree?
 
-25. For I don`t desire you to be ignorant, brothers, of this mystery, so that you won`t be wise in your own conceits, that a partial hardening has happened to Israel, until the fullness of the Gentiles has come in,
+25. For I don't desire you to be ignorant, brothers, of this mystery, so that you won't be wise in your own conceits, that a partial hardening has happened to Israel, until the fullness of the Gentiles has come in,
 
 26. and so all Israel will be saved. Even as it is written, "There will come out of Zion the Deliverer,    and he will turn away ungodliness from Jacob.
 
 27. This is my covenant to them,    when I will take away their sins."
 
-28. Concerning the Good News, they are enemies for your sake. But concerning the election, they are beloved for the fathers` sake.
+28. Concerning the Good News, they are enemies for your sake. But concerning the election, they are beloved for the fathers' sake.
 
 29. For the gifts and the calling of God are irrevocable.
 
@@ -667,11 +667,11 @@
 
 1. Therefore I urge you, brothers, by the mercies of God, to present your bodies a living sacrifice, holy, acceptable to God, which is your spiritual service.
 
-2. Don`t be conformed to this world, but be transformed by the renewing of your mind, so that you may prove what is the good, well-pleasing, and perfect will of God.
+2. Don't be conformed to this world, but be transformed by the renewing of your mind, so that you may prove what is the good, well-pleasing, and perfect will of God.
 
 3. For I say, through the grace that was given me, to every man who is among you, not to think of himself more highly than he ought to think; but to think reasonably, as God has apportioned to each person a measure of faith.
 
-4. For even as we have many members in one body, and all the members don`t have the same function,
+4. For even as we have many members in one body, and all the members don't have the same function,
 
 5. so we, who are many, are one body in Christ, and individually members one of another.
 
@@ -691,21 +691,21 @@
 
 13. contributing to the needs of the saints; given to hospitality.
 
-14. Bless those who persecute you; bless, and don`t curse.
+14. Bless those who persecute you; bless, and don't curse.
 
 15. Rejoice with those who rejoice. Weep with those who weep.
 
-16. Be of the same mind one toward another. Don`t set your mind on high things, but associate with the humble. Don`t be wise in your own conceits.
+16. Be of the same mind one toward another. Don't set your mind on high things, but associate with the humble. Don't be wise in your own conceits.
 
 17. Repay no one evil for evil. Respect what is honorable in the sight of all men.
 
 18. If it is possible, as much as it is up to you, be at peace with all men.
 
-19. Don`t seek revenge yourselves, beloved, but give place to God`s wrath. For it is written, "Vengeance belongs to me; I will repay, says the Lord."
+19. Don't seek revenge yourselves, beloved, but give place to God's wrath. For it is written, "Vengeance belongs to me; I will repay, says the Lord."
 
 20. Therefore "If your enemy is hungry, feed him.    If he is thirsty, give him a drink;    for in doing so, you will heap coals of fire on his head."
 
-21. Don`t be overcome by evil, but overcome evil with good.
+21. Don't be overcome by evil, but overcome evil with good.
 
 
 ## Chapter 13
@@ -716,11 +716,11 @@
 
 3. For rulers are not a terror to the good work, but to the evil. Do you desire to have no fear of the authority? Do that which is good, and you will have praise from the same,
 
-4. for he is a servant of God to you for good. But if you do that which is evil, be afraid, for he doesn`t bear the sword in vain; for he is a servant of God, an avenger for wrath to him who does evil.
+4. for he is a servant of God to you for good. But if you do that which is evil, be afraid, for he doesn't bear the sword in vain; for he is a servant of God, an avenger for wrath to him who does evil.
 
-5. Therefore you need to be in subjection, not only because of the wrath, but also for conscience` sake.
+5. Therefore you need to be in subjection, not only because of the wrath, but also for conscience' sake.
 
-6. For this reason you also pay taxes, for they are servants of God`s service, attending continually on this very thing.
+6. For this reason you also pay taxes, for they are servants of God's service, attending continually on this very thing.
 
 7. Give therefore to everyone what you owe: taxes to whom taxes are due; customs to whom customs; respect to whom respect; honor to whom honor.
 
@@ -728,11 +728,11 @@
 
 9. For the commandments, "You shall not commit adultery," "You shall not murder," "You shall not steal," "You shall not give false testimony," "You shall not covet," and whatever other commandments there are, are all summed up in this saying, namely, "You shall love your neighbor as yourself."
 
-10. Love doesn`t harm a neighbor. Love therefore is the fulfillment of the law.
+10. Love doesn't harm a neighbor. Love therefore is the fulfillment of the law.
 
 11. Do this, knowing the time, that it is already time for you to awaken out of sleep, for salvation is now nearer to us than when we first believed.
 
-12. The night is far gone, and the day is near. Let`s therefore throw off the works of darkness, and let`s put on the armor of light.
+12. The night is far gone, and the day is near. Let's therefore throw off the works of darkness, and let's put on the armor of light.
 
 13. Let us walk properly, as in the day; not in reveling and drunkenness, not in sexual promiscuity and lustful acts, and not in strife and jealousy.
 
@@ -745,33 +745,33 @@
 
 2. One man has faith to eat all things, but he who is weak eats only vegetables.
 
-3. Don`t let him who eats despise him who doesn`t eat. Don`t let him who doesn`t eat judge him who eats, for God has accepted him.
+3. Don't let him who eats despise him who doesn't eat. Don't let him who doesn't eat judge him who eats, for God has accepted him.
 
-4. Who are you who judge another`s servant? To his own lord he stands or falls. Yes, he will be made to stand, for God has power to make him stand.
+4. Who are you who judge another's servant? To his own lord he stands or falls. Yes, he will be made to stand, for God has power to make him stand.
 
 5. One man esteems one day as more important. Another esteems every day alike. Let each man be fully assured in his own mind.
 
-6. He who observes the day, observes it to the Lord; and he who does not observe the day, to the Lord he does not observe it. He who eats, eats to the Lord, for he gives God thanks. He who doesn`t eat, to the Lord he doesn`t eat, and gives God thanks.
+6. He who observes the day, observes it to the Lord; and he who does not observe the day, to the Lord he does not observe it. He who eats, eats to the Lord, for he gives God thanks. He who doesn't eat, to the Lord he doesn't eat, and gives God thanks.
 
 7. For none of us lives to himself, and none dies to himself.
 
-8. For if we live, we live to the Lord. Or if we die, we die to the Lord. If therefore we live or die, we are the Lord`s.
+8. For if we live, we live to the Lord. Or if we die, we die to the Lord. If therefore we live or die, we are the Lord's.
 
 9. For to this end Christ died, rose, and lived again, that he might be Lord of both the dead and the living.
 
 10. But you, why do you judge your brother? Or you again, why do you despise your brother? For we will all stand before the judgment seat of Christ.
 
-11. For it is written, "`As I live,` says the Lord, `to me every knee will bow.    Every tongue will confess to God.`"
+11. For it is written, "'As I live,' says the Lord, 'to me every knee will bow.    Every tongue will confess to God.'"
 
 12. So then each one of us will give account of himself to God.
 
-13. Therefore let`s not judge one another any more, but judge this rather, that no man put a stumbling block in his brother`s way, or an occasion for falling.
+13. Therefore let's not judge one another any more, but judge this rather, that no man put a stumbling block in his brother's way, or an occasion for falling.
 
 14. I know, and am persuaded in the Lord Jesus, that nothing is unclean of itself; except that to him who considers anything to be unclean, to him it is unclean.
 
-15. Yet if because of food your brother is grieved, you walk no longer in love. Don`t destroy with your food him for whom Christ died.
+15. Yet if because of food your brother is grieved, you walk no longer in love. Don't destroy with your food him for whom Christ died.
 
-16. Then don`t let your good be slandered,
+16. Then don't let your good be slandered,
 
 17. for the Kingdom of God is not eating and drinking, but righteousness, peace, and joy in the Holy Spirit.
 
@@ -779,13 +779,13 @@
 
 19. So then, let us follow after things which make for peace, and things by which we may build one another up.
 
-20. Don`t overthrow God`s work for food`s sake. All things indeed are clean, however it is evil for that man who creates a stumbling block by eating.
+20. Don't overthrow God's work for food's sake. All things indeed are clean, however it is evil for that man who creates a stumbling block by eating.
 
 21. It is good to not eat meat, drink wine, nor do anything by which your brother stumbles, is offended, or is made weak.
 
-22. Do you have faith? Have it to yourself before God. Happy is he who doesn`t judge himself in that which he approves.
+22. Do you have faith? Have it to yourself before God. Happy is he who doesn't judge himself in that which he approves.
 
-23. But he who doubts is condemned if he eats, because it isn`t of faith; and whatever is not of faith is sin.
+23. But he who doubts is condemned if he eats, because it isn't of faith; and whatever is not of faith is sin.
 
 24. Now to him who is able to establish you according to my Good News and the preaching of Jesus Christ, according to the revelation of the mystery which has been kept secret through long ages,
 
@@ -800,7 +800,7 @@
 
 2. Let each one of us please his neighbor for that which is good, to be building him up.
 
-3. For even Christ didn`t please himself. But, as it is written, "The reproaches of those who reproached you fell on me."
+3. For even Christ didn't please himself. But, as it is written, "The reproaches of those who reproached you fell on me."
 
 4. For whatever things were written before were written for our learning, that through patience and through encouragement of the Scriptures we might have hope.
 
@@ -832,11 +832,11 @@
 
 18. For I will not dare to speak of any things except those which Christ worked through me, for the obedience of the Gentiles, by word and deed,
 
-19. in the power of signs and wonders, in the power of God`s Spirit; so that from Jerusalem, and around as far as to Illyricum, I have fully preached the Good News of Christ;
+19. in the power of signs and wonders, in the power of God's Spirit; so that from Jerusalem, and around as far as to Illyricum, I have fully preached the Good News of Christ;
 
-20. yes, making it my aim to preach the Good News, not where Christ was already named, that I might not build on another`s foundation.
+20. yes, making it my aim to preach the Good News, not where Christ was already named, that I might not build on another's foundation.
 
-21. But, as it is written, "They will see, to whom no news of him came.    They who haven`t heard will understand."
+21. But, as it is written, "They will see, to whom no news of him came.    They who haven't heard will understand."
 
 22. Therefore also I was hindered these many times from coming to you,
 
@@ -899,7 +899,7 @@
 
 17. Now I beg you, brothers, look out for those who are causing the divisions and occasions of stumbling, contrary to the doctrine which you learned, and turn away from them.
 
-18. For those who are such don`t serve our Lord, Jesus Christ, but their own belly; and by their smooth and flattering speech, they deceive the hearts of the innocent.
+18. For those who are such don't serve our Lord, Jesus Christ, but their own belly; and by their smooth and flattering speech, they deceive the hearts of the innocent.
 
 19. For your obedience has become known to all. I rejoice therefore over you. But I desire to have you wise in that which is good, but innocent in that which is evil.
 

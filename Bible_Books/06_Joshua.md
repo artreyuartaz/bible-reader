@@ -2,7 +2,7 @@
 
 ## Chapter 1
 
-1. Now it happened after the death of Moses the servant of Yahweh, that Yahweh spoke to Joshua the son of Nun, Moses` servant, saying,
+1. Now it happened after the death of Moses the servant of Yahweh, that Yahweh spoke to Joshua the son of Nun, Moses' servant, saying,
 
 2. "Moses my servant is dead; now therefore arise, go over this Jordan, you, and all this people, to the land which I give to them, even to the children of Israel.
 
@@ -14,29 +14,29 @@
 
 6. "Be strong and of good courage; for you shall cause this people to inherit the land which I swore to their fathers to give them.
 
-7. Only be strong and very courageous, to observe to do according to all the law, which Moses my servant commanded you. Don`t turn from it to the right hand or to the left, that you may have good success wherever you go.
+7. Only be strong and very courageous, to observe to do according to all the law, which Moses my servant commanded you. Don't turn from it to the right hand or to the left, that you may have good success wherever you go.
 
 8. This book of the law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe to do according to all that is written therein: for then you shall make your way prosperous, and then you shall have good success.
 
-9. Haven`t I commanded you? Be strong and of good courage. Don`t be afraid, neither be dismayed: for Yahweh your God is with you wherever you go."
+9. Haven't I commanded you? Be strong and of good courage. Don't be afraid, neither be dismayed: for Yahweh your God is with you wherever you go."
 
 10. Then Joshua commanded the officers of the people, saying,
 
-11. "Pass through the midst of the camp, and command the people, saying, `Prepare food; for within three days you are to pass over this Jordan, to go in to possess the land, which Yahweh your God gives you to possess it.`"
+11. "Pass through the midst of the camp, and command the people, saying, 'Prepare food; for within three days you are to pass over this Jordan, to go in to possess the land, which Yahweh your God gives you to possess it.'"
 
 12. Joshua spoke to the Reubenites, and to the Gadites, and to the half-tribe of Manasseh, saying,
 
-13. "Remember the word which Moses the servant of Yahweh commanded you, saying, `Yahweh your God gives you rest, and will give you this land.
+13. "Remember the word which Moses the servant of Yahweh commanded you, saying, 'Yahweh your God gives you rest, and will give you this land.
 
 14. Your wives, your little ones, and your livestock, shall live in the land which Moses gave you beyond the Jordan; but you shall pass over before your brothers armed, all the mighty men of valor, and shall help them
 
-15. until Yahweh has given your brothers rest, as he has given you, and they have also possessed the land which Yahweh your God gives them. Then you shall return to the land of your possession, and possess it, which Moses the servant of Yahweh gave you beyond the Jordan toward the sunrise.`"
+15. until Yahweh has given your brothers rest, as he has given you, and they have also possessed the land which Yahweh your God gives them. Then you shall return to the land of your possession, and possess it, which Moses the servant of Yahweh gave you beyond the Jordan toward the sunrise.'"
 
 16. They answered Joshua, saying, "All that you have commanded us we will do, and wherever you send us we will go.
 
 17. Just as we listened to Moses in all things, so will we listen to you. Only may Yahweh your God be with you, as he was with Moses.
 
-18. Whoever rebels against your commandment, and doesn`t listen to your words in all that you command him, he shall be put to death. Only be strong and of good courage."
+18. Whoever rebels against your commandment, and doesn't listen to your words in all that you command him, he shall be put to death. Only be strong and of good courage."
 
 
 ## Chapter 2
@@ -47,9 +47,9 @@
 
 3. The king of Jericho sent to Rahab, saying, "Bring out the men who have come to you, who have entered into your house; for they have come to spy out all the land."
 
-4. The woman took the two men and hid them. Then she said, "Yes, the men came to me, but I didn`t know where they came from.
+4. The woman took the two men and hid them. Then she said, "Yes, the men came to me, but I didn't know where they came from.
 
-5. It happened about the time of the shutting of the gate, when it was dark, that the men went out. Where the men went, I don`t know. Pursue them quickly; for you will overtake them."
+5. It happened about the time of the shutting of the gate, when it was dark, that the men went out. Where the men went, I don't know. Pursue them quickly; for you will overtake them."
 
 6. But she had brought them up to the roof, and hid them with the stalks of flax, which she had laid in order on the roof.
 
@@ -63,11 +63,11 @@
 
 11. As soon as we had heard it, our hearts melted, neither did there remain any more spirit in any man, because of you: for Yahweh your God, he is God in heaven above, and on earth beneath.
 
-12. Now therefore, please swear to me by Yahweh, since I have dealt kindly with you, that you also will deal kindly with my father`s house, and give me a true token;
+12. Now therefore, please swear to me by Yahweh, since I have dealt kindly with you, that you also will deal kindly with my father's house, and give me a true token;
 
 13. and that you will save alive my father, my mother, my brothers, and my sisters, and all that they have, and will deliver our lives from death."
 
-14. The men said to her, "Our life for yours, if you don`t talk about this business of ours; and it shall be, when Yahweh gives us the land, that we will deal kindly and truly with you."
+14. The men said to her, "Our life for yours, if you don't talk about this business of ours; and it shall be, when Yahweh gives us the land, that we will deal kindly and truly with you."
 
 15. Then she let them down by a cord through the window; for her house was on the side of the wall, and she lived on the wall.
 
@@ -75,7 +75,7 @@
 
 17. The men said to her, "We will be guiltless of this your oath which you have made us to swear.
 
-18. Behold, when we come into the land, you shall bind this line of scarlet thread in the window which you did let us down by. You shall gather to yourself into the house your father, your mother, your brothers, and all your father`s household.
+18. Behold, when we come into the land, you shall bind this line of scarlet thread in the window which you did let us down by. You shall gather to yourself into the house your father, your mother, your brothers, and all your father's household.
 
 19. It shall be that whoever goes out of the doors of your house into the street, his blood will be on his head, and we will be guiltless. Whoever is with you in the house, his blood shall be on our head, if any hand is on him.
 
@@ -83,7 +83,7 @@
 
 21. She said, "According to your words, so be it." She sent them away, and they departed. She tied the scarlet line in the window.
 
-22. They went, and came to the mountain, and stayed there three days, until the pursuers had returned. The pursuers sought them throughout all the way, but didn`t find them.
+22. They went, and came to the mountain, and stayed there three days, until the pursuers had returned. The pursuers sought them throughout all the way, but didn't find them.
 
 23. Then the two men returned, descended from the mountain, passed over, and came to Joshua the son of Nun; and they told him all that had happened to them.
 
@@ -98,7 +98,7 @@
 
 3. and they commanded the people, saying, "When you see the ark of the covenant of Yahweh your God, and the priests the Levites bearing it, then you shall move from your place, and follow it.
 
-4. Yet there shall be a space between you and it, about two thousand cubits by measure. Don`t come near to it, that you may know the way by which you must go; for you have not passed this way before."
+4. Yet there shall be a space between you and it, about two thousand cubits by measure. Don't come near to it, that you may know the way by which you must go; for you have not passed this way before."
 
 5. Joshua said to the people, "Sanctify yourselves; for tomorrow Yahweh will do wonders among you."
 
@@ -106,7 +106,7 @@
 
 7. Yahweh said to Joshua, "Today I will begin to magnify you in the sight of all Israel, that they may know that as I was with Moses, so I will be with you.
 
-8. You shall command the priests who bear the ark of the covenant, saying, `When you come to the brink of the waters of the Jordan, you shall stand still in the Jordan.`"
+8. You shall command the priests who bear the ark of the covenant, saying, 'When you come to the brink of the waters of the Jordan, you shall stand still in the Jordan.'"
 
 9. Joshua said to the children of Israel, "Come here, and hear the words of Yahweh your God."
 
@@ -133,15 +133,15 @@
 
 2. "Take twelve men out of the people, out of every tribe a man,
 
-3. and command them, saying, `Take from out of the middle of the Jordan, out of the place where the priests` feet stood firm, twelve stones, and carry them over with you, and lay them down in the lodging place, where you will lodge tonight.`"
+3. and command them, saying, 'Take from out of the middle of the Jordan, out of the place where the priests' feet stood firm, twelve stones, and carry them over with you, and lay them down in the lodging place, where you will lodge tonight.'"
 
 4. Then Joshua called the twelve men, whom he had prepared of the children of Israel, out of every tribe a man.
 
 5. Joshua said to them, "Pass over before the ark of Yahweh your God into the middle of the Jordan, and each of you pick up a stone and put it on your shoulder, according to the number of the tribes of the children of Israel;
 
-6. that this may be a sign among you, that when your children ask in time to come, saying, `What do you mean by these stones?`
+6. that this may be a sign among you, that when your children ask in time to come, saying, 'What do you mean by these stones?'
 
-7. then you shall tell them, `Because the waters of the Jordan were cut off before the ark of the covenant of Yahweh. When it passed over the Jordan, the waters of the Jordan were cut off. These stones shall be for a memorial to the children of Israel forever.`"
+7. then you shall tell them, 'Because the waters of the Jordan were cut off before the ark of the covenant of Yahweh. When it passed over the Jordan, the waters of the Jordan were cut off. These stones shall be for a memorial to the children of Israel forever.'"
 
 8. The children of Israel did as Joshua commanded, and took up twelve stones out of the middle of the Jordan, as Yahweh spoke to Joshua, according to the number of the tribes of the children of Israel; and they carried them over with them to the place where they lodged, and laid them down there.
 
@@ -163,19 +163,19 @@
 
 17. Joshua therefore commanded the priests, saying, "Come up out of the Jordan!"
 
-18. It happened, when the priests who bore the ark of the covenant of Yahweh had come up out of the middle of the Jordan, and the soles of the priests` feet were lifted up to the dry ground, that the waters of the Jordan returned to their place, and went over all its banks, as before.
+18. It happened, when the priests who bore the ark of the covenant of Yahweh had come up out of the middle of the Jordan, and the soles of the priests' feet were lifted up to the dry ground, that the waters of the Jordan returned to their place, and went over all its banks, as before.
 
 19. The people came up out of the Jordan on the tenth day of the first month, and encamped in Gilgal, on the east border of Jericho.
 
 20. Joshua set up those twelve stones, which they took out of the Jordan, in Gilgal.
 
-21. He spoke to the children of Israel, saying, "When your children ask their fathers in time to come, saying, `What do these stones mean?`
+21. He spoke to the children of Israel, saying, "When your children ask their fathers in time to come, saying, 'What do these stones mean?'
 
-22. Then you shall let your children know, saying, `Israel came over this Jordan on dry land.
+22. Then you shall let your children know, saying, 'Israel came over this Jordan on dry land.
 
 23. For Yahweh your God dried up the waters of the Jordan from before you, until you had passed over, as Yahweh your God did to the Red Sea, which he dried up from before us, until we had passed over;
 
-24. that all the peoples of the earth may know the hand of Yahweh, that it is mighty; that you may fear Yahweh your God forever.`"
+24. that all the peoples of the earth may know the hand of Yahweh, that it is mighty; that you may fear Yahweh your God forever.'"
 
 
 ## Chapter 5
@@ -190,7 +190,7 @@
 
 5. For all the people who came out were circumcised; but all the people who were born in the wilderness by the way as they came out of Egypt had not been circumcised.
 
-6. For the children of Israel walked forty years in the wilderness, until all the nation, even the men of war who came out of Egypt, were consumed, because they didn`t listen to the voice of Yahweh. Yahweh swore to them that he wouldn`t let them see the land which Yahweh swore to their fathers that he would give us, a land flowing with milk and honey.
+6. For the children of Israel walked forty years in the wilderness, until all the nation, even the men of war who came out of Egypt, were consumed, because they didn't listen to the voice of Yahweh. Yahweh swore to them that he wouldn't let them see the land which Yahweh swore to their fathers that he would give us, a land flowing with milk and honey.
 
 7. Their children, whom he raised up in their place, were circumcised by Joshua; for they were uncircumcised, because they had not circumcised them on the way.
 
@@ -202,13 +202,13 @@
 
 11. They ate unleavened cakes and parched grain of the produce of the land on the next day after the Passover, in the same day.
 
-12. The manna ceased on the next day, after they had eaten of the produce of the land. The children of Israel didn`t have manna any more; but they ate of the fruit of the land of Canaan that year.
+12. The manna ceased on the next day, after they had eaten of the produce of the land. The children of Israel didn't have manna any more; but they ate of the fruit of the land of Canaan that year.
 
 13. It happened, when Joshua was by Jericho, that he lifted up his eyes and looked, and behold, a man stood in front of him with his sword drawn in his hand. Joshua went to him, and said to him, "Are you for us, or for our adversaries?"
 
-14. He said, "No; but I have come now as commander of Yahweh`s army."     Joshua fell on his face to the earth, and worshipped, and said to him, "What does my lord say to his servant?"
+14. He said, "No; but I have come now as commander of Yahweh's army."     Joshua fell on his face to the earth, and worshipped, and said to him, "What does my lord say to his servant?"
 
-15. The prince of Yahweh`s army said to Joshua, "Take your shoes off of your feet; for the place on which you stand is holy." Joshua did so.
+15. The prince of Yahweh's army said to Joshua, "Take your shoes off of your feet; for the place on which you stand is holy." Joshua did so.
 
 
 ## Chapter 6
@@ -219,15 +219,15 @@
 
 3. All your men of war shall march around the city, going around the city once. You shall do this six days.
 
-4. Seven priests shall bear seven trumpets of rams` horns before the ark. On the seventh day, you shall march around the city seven times, and the priests shall blow the trumpets.
+4. Seven priests shall bear seven trumpets of rams' horns before the ark. On the seventh day, you shall march around the city seven times, and the priests shall blow the trumpets.
 
-5. It shall be that when they make a long blast with the ram`s horn, and when you hear the sound of the trumpet, all the people shall shout with a great shout; and the wall of the city shall fall down flat, and the people shall go up every man straight before him."
+5. It shall be that when they make a long blast with the ram's horn, and when you hear the sound of the trumpet, all the people shall shout with a great shout; and the wall of the city shall fall down flat, and the people shall go up every man straight before him."
 
-6. Joshua the son of Nun called the priests, and said to them, "Take up the ark of the covenant, and let seven priests bear seven trumpets of rams` horns before the ark of Yahweh."
+6. Joshua the son of Nun called the priests, and said to them, "Take up the ark of the covenant, and let seven priests bear seven trumpets of rams' horns before the ark of Yahweh."
 
-7. They said to the people, "Advance! March around the city, and let the armed men pass on before Yahweh`s ark."
+7. They said to the people, "Advance! March around the city, and let the armed men pass on before Yahweh's ark."
 
-8. It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams` horns before Yahweh advanced, and blew the trumpets; and the ark of the covenant of Yahweh followed them.
+8. It was so, that when Joshua had spoken to the people, the seven priests bearing the seven trumpets of rams' horns before Yahweh advanced, and blew the trumpets; and the ark of the covenant of Yahweh followed them.
 
 9. The armed men went before the priests who blew the trumpets, and the ark went after them. The trumpets sounded as they went.
 
@@ -237,7 +237,7 @@
 
 12. Joshua rose early in the morning, and the priests took up the ark of Yahweh.
 
-13. The seven priests bearing the seven trumpets of rams` horns before the ark of Yahweh went on continually, and blew the trumpets: and the armed men went before them. The rear guard came after the ark of Yahweh. The trumpets sounded as they went.
+13. The seven priests bearing the seven trumpets of rams' horns before the ark of Yahweh went on continually, and blew the trumpets: and the armed men went before them. The rear guard came after the ark of Yahweh. The trumpets sounded as they went.
 
 14. The second day they marched around the city once, and returned into the camp. They did this six days.
 
@@ -249,19 +249,19 @@
 
 18. But as for you, only keep yourselves from the devoted thing, lest when you have devoted it, you take of the devoted thing; so would you make the camp of Israel accursed, and trouble it.
 
-19. But all the silver, and gold, and vessels of brass and iron, are holy to Yahweh. They shall come into Yahweh`s treasury."
+19. But all the silver, and gold, and vessels of brass and iron, are holy to Yahweh. They shall come into Yahweh's treasury."
 
 20. So the people shouted, and the priests blew the trumpets. It happened, when the people heard the sound of the trumpet, that the people shouted with a great shout, and the wall fell down flat, so that the people went up into the city, every man straight before him, and they took the city.
 
 21. They utterly destroyed all that was in the city, both man and woman, both young and old, and ox, and sheep, and donkey, with the edge of the sword.
 
-22. Joshua said to the two men who had spied out the land, "Go into the prostitute`s house, and bring out from there the woman and all that she has, as you swore to her."
+22. Joshua said to the two men who had spied out the land, "Go into the prostitute's house, and bring out from there the woman and all that she has, as you swore to her."
 
 23. The young men who were spies went in, and brought out Rahab with her father, her mother, her brothers, and all that she had. They also brought out all her relatives, and they set them outside of the camp of Israel.
 
-24. They burnt the city with fire, and all that was in it. Only they put the silver, the gold, and the vessels of brass and of iron into the treasury of Yahweh`s house.
+24. They burnt the city with fire, and all that was in it. Only they put the silver, the gold, and the vessels of brass and of iron into the treasury of Yahweh's house.
 
-25. But Rahab the prostitute, her father`s household, and all that she had, Joshua saved alive. She lived in the midst of Israel to this day, because she hid the messengers, whom Joshua sent to spy out Jericho.
+25. But Rahab the prostitute, her father's household, and all that she had, Joshua saved alive. She lived in the midst of Israel to this day, because she hid the messengers, whom Joshua sent to spy out Jericho.
 
 26. Joshua commanded them with an oath at that time, saying, "Cursed is the man before Yahweh, who rises up and builds this city Jericho. With the loss of his firstborn shall he lay its foundation, and with the loss of his youngest son shall he set up its gates."
 
@@ -270,11 +270,11 @@
 
 ## Chapter 7
 
-1. But the children of Israel committed a trespass in the devoted things; for Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, took some of the devoted things. Therefore Yahweh`s anger burned against the children of Israel.
+1. But the children of Israel committed a trespass in the devoted things; for Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, took some of the devoted things. Therefore Yahweh's anger burned against the children of Israel.
 
 2. Joshua sent men from Jericho to Ai, which is beside Beth Aven, on the east side of Bethel, and spoke to them, saying, "Go up and spy out the land."     The men went up and spied out Ai.
 
-3. They returned to Joshua, and said to him, "Don`t let all the people go up; but let about two or three thousand men go up and strike Ai. Don`t make all the people to toil there, for there are only a few of them."
+3. They returned to Joshua, and said to him, "Don't let all the people go up; but let about two or three thousand men go up and strike Ai. Don't make all the people to toil there, for there are only a few of them."
 
 4. So about three thousand men of the people went up there, and they fled before the men of Ai.
 
@@ -292,13 +292,13 @@
 
 11. Israel has sinned. Yes, they have even transgressed my covenant which I commanded them. Yes, they have even taken of the devoted things, and have also stolen, and also deceived. They have even put it among their own stuff.
 
-12. Therefore the children of Israel can`t stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you.
+12. Therefore the children of Israel can't stand before their enemies. They turn their backs before their enemies, because they have become devoted for destruction. I will not be with you any more, unless you destroy the devoted things from among you.
 
-13. "Get up! Sanctify the people, and say, `Sanctify yourselves for tomorrow, for Yahweh, the God of Israel, says, "There is a devoted thing in the midst of you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you."
+13. "Get up! Sanctify the people, and say, 'Sanctify yourselves for tomorrow, for Yahweh, the God of Israel, says, "There is a devoted thing in the midst of you, Israel. You cannot stand before your enemies until you take away the devoted thing from among you."
 
-14. "`In the morning therefore you shall be brought near by your tribes. It shall be that the tribe which Yahweh selects shall come near by families. The family which Yahweh selects shall come near by households. The household which Yahweh selects shall come near man by man.
+14. "'In the morning therefore you shall be brought near by your tribes. It shall be that the tribe which Yahweh selects shall come near by families. The family which Yahweh selects shall come near by households. The household which Yahweh selects shall come near man by man.
 
-15. It shall be, that he who is taken with the devoted thing shall be burnt with fire, he and all that he has, because he has transgressed the covenant of Yahweh, and because he has done a disgraceful thing in Israel.`"
+15. It shall be, that he who is taken with the devoted thing shall be burnt with fire, he and all that he has, because he has transgressed the covenant of Yahweh, and because he has done a disgraceful thing in Israel.'"
 
 16. So Joshua rose up early in the morning and brought Israel near by their tribes. The tribe of Judah was selected.
 
@@ -306,7 +306,7 @@
 
 18. He brought near his household man by man, and Achan, the son of Carmi, the son of Zabdi, the son of Zerah, of the tribe of Judah, was selected.
 
-19. Joshua said to Achan, "My son, please give glory to Yahweh, the God of Israel, and make confession to him. Tell me now what you have done! Don`t hide it from me!"
+19. Joshua said to Achan, "My son, please give glory to Yahweh, the God of Israel, and make confession to him. Tell me now what you have done! Don't hide it from me!"
 
 20. Achan answered Joshua, and said, "I have truly sinned against Yahweh, the God of Israel, and this is what I have done.
 
@@ -325,17 +325,17 @@
 
 ## Chapter 8
 
-1. Yahweh said to Joshua, "Don`t be afraid, neither be dismayed. Take all the people of war with you, and arise, go up to Ai. Behold, I have given into your hand the king of Ai, with his people, his city, and his land.
+1. Yahweh said to Joshua, "Don't be afraid, neither be dismayed. Take all the people of war with you, and arise, go up to Ai. Behold, I have given into your hand the king of Ai, with his people, his city, and his land.
 
 2. You shall do to Ai and her king as you did to Jericho and her king, except its spoil and its livestock, you shall take for a plunder for yourselves. Set an ambush for the city behind it."
 
 3. So Joshua arose, and all the people of war, to go up to Ai. Joshua chose thirty thousand men, the mighty men of valor, and sent them out by night.
 
-4. He commanded them, saying, "Behold, you shall lie in ambush against the city, behind the city. Don`t go very far from the city, but all of you be ready.
+4. He commanded them, saying, "Behold, you shall lie in ambush against the city, behind the city. Don't go very far from the city, but all of you be ready.
 
 5. I, and all the people who are with me, will approach to the city. It shall happen, when they come out against us, as at the first, that we will flee before them.
 
-6. They will come out after us, until we have drawn them away from the city; for they will say, `They flee before us, like the first time.` So we will flee before them,
+6. They will come out after us, until we have drawn them away from the city; for they will say, 'They flee before us, like the first time.' So we will flee before them,
 
 7. and you shall rise up from the ambush, and take possession of the city; for Yahweh your God will deliver it into your hand.
 
@@ -351,13 +351,13 @@
 
 13. So they set the people, even all the army who was on the north of the city, and their ambush on the west of the city; and Joshua went that night into the midst of the valley.
 
-14. It happened, when the king of Ai saw it, that they hurried and rose up early, and the men of the city went out against Israel to battle, he and all his people, at the time appointed, before the Arabah; but he didn`t know that there was an ambush against him behind the city.
+14. It happened, when the king of Ai saw it, that they hurried and rose up early, and the men of the city went out against Israel to battle, he and all his people, at the time appointed, before the Arabah; but he didn't know that there was an ambush against him behind the city.
 
 15. Joshua and all Israel made as if they were beaten before them, and fled by the way of the wilderness.
 
 16. All the people who were in the city were called together to pursue after them. They pursued Joshua, and were drawn away from the city.
 
-17. There was not a man left in Ai or Beth El who didn`t go out after Israel. They left the city open, and pursued Israel.
+17. There was not a man left in Ai or Beth El who didn't go out after Israel. They left the city open, and pursued Israel.
 
 18. Yahweh said to Joshua, "Stretch out the javelin that is in your hand toward Ai, for I will give it into your hand."     Joshua stretched out the javelin that was in his hand toward the city.
 
@@ -375,7 +375,7 @@
 
 25. All that fell that day, both of men and women, were twelve thousand, even all the men of Ai.
 
-26. For Joshua didn`t draw back his hand, with which he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai.
+26. For Joshua didn't draw back his hand, with which he stretched out the javelin, until he had utterly destroyed all the inhabitants of Ai.
 
 27. Only the livestock and the spoil of that city Israel took for prey to themselves, according to the word of Yahweh which he commanded Joshua.
 
@@ -389,11 +389,11 @@
 
 32. He wrote there on the stones a copy of the law of Moses, which he wrote in the presence of the children of Israel.
 
-33. All Israel, and their elders and officers, and their judges, stood on this side of the ark and on that side before the priests the Levites, who carried the ark of Yahweh`s covenant, the foreigner as well as the native; half of them in front of Mount Gerizim, and half of them in front of Mount Ebal, as Moses the servant of Yahweh had commanded at the first, that they should bless the people of Israel.
+33. All Israel, and their elders and officers, and their judges, stood on this side of the ark and on that side before the priests the Levites, who carried the ark of Yahweh's covenant, the foreigner as well as the native; half of them in front of Mount Gerizim, and half of them in front of Mount Ebal, as Moses the servant of Yahweh had commanded at the first, that they should bless the people of Israel.
 
 34. Afterward he read all the words of the law, the blessing and the curse, according to all that is written in the book of the law.
 
-35. There was not a word of all that Moses commanded, which Joshua didn`t read before all the assembly of Israel, with the women, the little ones, and the foreigners who were among them.
+35. There was not a word of all that Moses commanded, which Joshua didn't read before all the assembly of Israel, with the women, the little ones, and the foreigners who were among them.
 
 
 ## Chapter 9
@@ -418,13 +418,13 @@
 
 10. and all that he did to the two kings of the Amorites who were beyond the Jordan, to Sihon king of Heshbon and to Og king of Bashan, who was at Ashtaroth.
 
-11. Our elders and all the inhabitants of our country spoke to us, saying, `Take provision in your hand for the journey, and go to meet them, and tell them, "We are your servants. Now make a covenant with us."`
+11. Our elders and all the inhabitants of our country spoke to us, saying, 'Take provision in your hand for the journey, and go to meet them, and tell them, "We are your servants. Now make a covenant with us."'
 
 12. This our bread we took hot for our provision out of our houses on the day we went out to go to you; but now, behold, it is dry, and has become moldy.
 
 13. These wineskins, which we filled, were new; and behold, they are torn. These our garments and our shoes have become old because of the very long journey."
 
-14. The men sampled their provisions, and didn`t ask counsel from the mouth of Yahweh.
+14. The men sampled their provisions, and didn't ask counsel from the mouth of Yahweh.
 
 15. Joshua made peace with them, and made a covenant with them, to let them live. The princes of the congregation swore to them.
 
@@ -432,7 +432,7 @@
 
 17. The children of Israel traveled and came to their cities on the third day. Now their cities were Gibeon, Chephirah, Beeroth, and Kiriath Jearim.
 
-18. The children of Israel didn`t strike them, because the princes of the congregation had sworn to them by Yahweh, the God of Israel. All the congregation murmured against the princes.
+18. The children of Israel didn't strike them, because the princes of the congregation had sworn to them by Yahweh, the God of Israel. All the congregation murmured against the princes.
 
 19. But all the princes said to all the congregation, "We have sworn to them by Yahweh, the God of Israel: now therefore we may not touch them.
 
@@ -440,7 +440,7 @@
 
 21. The princes said to them, "Let them live, so they became wood cutters and drawers of water for all the congregation, as the princes had spoken to them."
 
-22. Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, `We are very far from you,` when you live among us?
+22. Joshua called for them, and he spoke to them, saying, "Why have you deceived us, saying, 'We are very far from you,' when you live among us?
 
 23. Now therefore you are cursed, and some of you will never fail to be bondservants, both wood cutters and drawers of water for the house of my God."
 
@@ -448,7 +448,7 @@
 
 25. Now, behold, we are in your hand. Do to us as it seems good and right to you to do."
 
-26. He did so to them, and delivered them out of the hand of the children of Israel, so that they didn`t kill them.
+26. He did so to them, and delivered them out of the hand of the children of Israel, so that they didn't kill them.
 
 27. That day Joshua made them wood cutters and drawers of water for the congregation and for the altar of Yahweh, to this day, in the place which he should choose.
 
@@ -465,11 +465,11 @@
 
 5. Therefore the five kings of the Amorites, the king of Jerusalem, the king of Hebron, the king of Jarmuth, the king of Lachish, the king of Eglon, gathered themselves together, and went up, they and all their armies, and encamped against Gibeon, and made war against it.
 
-6. The men of Gibeon sent to Joshua to the camp to Gilgal, saying, "Don`t abandon your servants! Come up to us quickly, and save us, and help us; for all the kings of the Amorites that dwell in the hill country have gathered together against us."
+6. The men of Gibeon sent to Joshua to the camp to Gilgal, saying, "Don't abandon your servants! Come up to us quickly, and save us, and help us; for all the kings of the Amorites that dwell in the hill country have gathered together against us."
 
 7. So Joshua went up from Gilgal, he, and all the people of war with him, and all the mighty men of valor.
 
-8. Yahweh said to Joshua, "Don`t fear them, for I have delivered them into your hands. Not a man of them will stand before you."
+8. Yahweh said to Joshua, "Don't fear them, for I have delivered them into your hands. Not a man of them will stand before you."
 
 9. Joshua therefore came on them suddenly. He went up from Gilgal all night.
 
@@ -479,7 +479,7 @@
 
 12. Then Joshua spoke to Yahweh in the day when Yahweh delivered up the Amorites before the children of Israel; and he said in the sight of Israel, "Sun, stand still on Gibeon! You, moon, stop in the valley of Aijalon!"
 
-13. The sun stood still, and the moon stayed, until the nation had avenged themselves of their enemies. Isn`t this written in the book of Jashar? The sun stayed in the midst of the sky, and didn`t hurry to go down about a whole day.
+13. The sun stood still, and the moon stayed, until the nation had avenged themselves of their enemies. Isn't this written in the book of Jashar? The sun stayed in the midst of the sky, and didn't hurry to go down about a whole day.
 
 14. There was no day like that before it or after it, that Yahweh listened to the voice of a man; for Yahweh fought for Israel.
 
@@ -491,7 +491,7 @@
 
 18. Joshua said, "Roll large stones to the mouth of the cave, and set men by it to guard them;
 
-19. but don`t stay. Pursue your enemies, and them from the rear. Don`t allow them to enter into their cities; for Yahweh your God has delivered them into your hand."
+19. but don't stay. Pursue your enemies, and them from the rear. Don't allow them to enter into their cities; for Yahweh your God has delivered them into your hand."
 
 20. It happened, when Joshua and the children of Israel had finished killing them with a very great slaughter until they were consumed, and the remnant which remained of them had entered into the fortified cities,
 
@@ -503,7 +503,7 @@
 
 24. It happened, when they brought those kings out to Joshua, that Joshua called for all the men of Israel, and said to the chiefs of the men of war who went with him, "Come near, put your feet on the necks of these kings."     They came near, and put their feet on their necks.
 
-25. Joshua said to them, "Don`t be afraid, nor be dismayed. Be strong and of good courage, for Yahweh will do this to all your enemies against whom you fight."
+25. Joshua said to them, "Don't be afraid, nor be dismayed. Be strong and of good courage, for Yahweh will do this to all your enemies against whom you fight."
 
 26. Afterward Joshua struck them, put them to death, and hanged them on five trees. They were hanging on the trees until the evening.
 
@@ -554,7 +554,7 @@
 
 5. All these kings met together; and they came and encamped together at the waters of Merom, to fight with Israel.
 
-6. Yahweh said to Joshua, "Don`t be afraid because of them; for tomorrow at this time, I will deliver them up all slain before Israel. You shall hamstring their horses and burn their chariots with fire."
+6. Yahweh said to Joshua, "Don't be afraid because of them; for tomorrow at this time, I will deliver them up all slain before Israel. You shall hamstring their horses and burn their chariots with fire."
 
 7. So Joshua came, and all the people of war with him, against them by the waters of Merom suddenly, and fell on them.
 
@@ -570,7 +570,7 @@
 
 13. But as for the cities that stood on their mounds, Israel burned none of them, except Hazor only. Joshua burned that.
 
-14. The children of Israel took all the spoil of these cities, with the livestock, as spoils for themselves; but every man they struck with the edge of the sword, until they had destroyed them. They didn`t leave any who breathed.
+14. The children of Israel took all the spoil of these cities, with the livestock, as spoils for themselves; but every man they struck with the edge of the sword, until they had destroyed them. They didn't leave any who breathed.
 
 15. As Yahweh commanded Moses his servant, so Moses commanded Joshua. Joshua did so. He left nothing undone of all that Yahweh commanded Moses.
 
@@ -668,7 +668,7 @@
 
 12. all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (the same was left of the remnant of the Rephaim); for Moses attacked these, and drove them out.
 
-13. Nevertheless the children of Israel didn`t drive out the Geshurites, nor the Maacathites: but Geshur and Maacath dwell in the midst of Israel to this day.
+13. Nevertheless the children of Israel didn't drive out the Geshurites, nor the Maacathites: but Geshur and Maacath dwell in the midst of Israel to this day.
 
 14. Only he gave no inheritance to the tribe of Levi. The offerings of Yahweh, the God of Israel, made by fire are his inheritance, as he spoke to him.
 
@@ -696,7 +696,7 @@
 
 26. and from Heshbon to Ramath Mizpeh, and Betonim; and from Mahanaim to the border of Debir;
 
-27. and in the valley, Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, the Jordan`s bank, to the uttermost part of the sea of Chinnereth beyond the Jordan eastward.
+27. and in the valley, Beth Haram, Beth Nimrah, Succoth, and Zaphon, the rest of the kingdom of Sihon king of Heshbon, the Jordan's bank, to the uttermost part of the sea of Chinnereth beyond the Jordan eastward.
 
 28. This is the inheritance of the children of Gad according to their families, the cities and its villages.
 
@@ -713,7 +713,7 @@
 
 ## Chapter 14
 
-1. These are the inheritances which the children of Israel took in the land of Canaan, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers` houses of the tribes of the children of Israel, distributed to them,
+1. These are the inheritances which the children of Israel took in the land of Canaan, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed to them,
 
 2. by the lot of their inheritance, as Yahweh commanded by Moses, for the nine tribes, and for the half-tribe.
 
@@ -729,7 +729,7 @@
 
 8. Nevertheless, my brothers who went up with me made the heart of the people melt; but I wholly followed Yahweh my God.
 
-9. Moses swore on that day, saying, `Surely the land where you walked shall be an inheritance to you and to your children forever, because you have wholly followed Yahweh my God.`
+9. Moses swore on that day, saying, 'Surely the land where you walked shall be an inheritance to you and to your children forever, because you have wholly followed Yahweh my God.'
 
 10. "Now, behold, Yahweh has kept me alive, as he spoke, these forty-five years, from the time that Yahweh spoke this word to Moses, while Israel walked in the wilderness. Now, behold, I am eighty-five years old, today.
 
@@ -870,7 +870,7 @@
 
 62. Nibshan, the City of Salt, and En Gedi; six cities with their villages.
 
-63. As for the Jebusites, the inhabitants of Jerusalem, the children of Judah couldn`t drive them out; but the Jebusites live with the children of Judah at Jerusalem to this day.
+63. As for the Jebusites, the inhabitants of Jerusalem, the children of Judah couldn't drive them out; but the Jebusites live with the children of Judah at Jerusalem to this day.
 
 
 ## Chapter 16
@@ -893,7 +893,7 @@
 
 9. together with the cities which were set apart for the children of Ephraim in the midst of the inheritance of the children of Manasseh, all the cities with their villages.
 
-10. They didn`t drive out the Canaanites who lived in Gezer; but the Canaanites dwell in the midst of Ephraim to this day, and have become servants to do forced labor.
+10. They didn't drive out the Canaanites who lived in Gezer; but the Canaanites dwell in the midst of Ephraim to this day, and have become servants to do forced labor.
 
 
 ## Chapter 17
@@ -916,13 +916,13 @@
 
 9. The border went down to the brook of Kanah, southward of the brook. These cities belonged to Ephraim among the cities of Manasseh. The border of Manasseh was on the north side of the brook, and ended at the sea.
 
-10. Southward it was Ephraim`s, and northward it was Manasseh`s, and the sea was his border. They reached to Asher on the north, and to Issachar on the east.
+10. Southward it was Ephraim's, and northward it was Manasseh's, and the sea was his border. They reached to Asher on the north, and to Issachar on the east.
 
 11. Manasseh had three heights in Issachar, in Asher Beth Shean and its towns, and Ibleam and its towns, and the inhabitants of Dor and its towns, and the inhabitants of Endor and its towns, and the inhabitants of Taanach and its towns, and the inhabitants of Megiddo and its towns.
 
-12. Yet the children of Manasseh couldn`t drive out the inhabitants of those cities; but the Canaanites would dwell in that land.
+12. Yet the children of Manasseh couldn't drive out the inhabitants of those cities; but the Canaanites would dwell in that land.
 
-13. It happened, when the children of Israel had grown strong, that they put the Canaanites to forced labor, and didn`t utterly drive them out.
+13. It happened, when the children of Israel had grown strong, that they put the Canaanites to forced labor, and didn't utterly drive them out.
 
 14. The children of Joseph spoke to Joshua, saying, "Why have you given me just one lot and one part for an inheritance, since I am a great people, because Yahweh has blessed me so far?"
 
@@ -932,7 +932,7 @@
 
 17. Joshua spoke to the house of Joseph, even to Ephraim and to Manasseh, saying, "You are a great people, and have great power. You shall not have one lot only;
 
-18. but the hill country shall be yours. Although it is a forest, you shall cut it down, and it`s farthest extent shall be yours; for you shall drive out the Canaanites, though they have chariots of iron, and though they are strong."
+18. but the hill country shall be yours. Although it is a forest, you shall cut it down, and it's farthest extent shall be yours; for you shall drive out the Canaanites, though they have chariots of iron, and though they are strong."
 
 
 ## Chapter 18
@@ -1096,22 +1096,22 @@
 
 50. According to the commandment of Yahweh, they gave him the city which he asked, even Timnathserah in the hill country of Ephraim; and he built the city, and lived there.
 
-51. These are the inheritances, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers` houses of the tribes of the children of Israel, distributed for inheritance by lot in Shiloh before Yahweh, at the door of the Tent of Meeting. So they made an end of dividing the land.
+51. These are the inheritances, which Eleazar the priest, Joshua the son of Nun, and the heads of the fathers' houses of the tribes of the children of Israel, distributed for inheritance by lot in Shiloh before Yahweh, at the door of the Tent of Meeting. So they made an end of dividing the land.
 
 
 ## Chapter 20
 
 1. Yahweh spoke to Joshua, saying,
 
-2. "Speak to the children of Israel, saying, `Assign the cities of refuge, of which I spoke to you by Moses,
+2. "Speak to the children of Israel, saying, 'Assign the cities of refuge, of which I spoke to you by Moses,
 
 3. that the manslayer who kills any person accidentally or unintentionally may flee there. They shall be to you for a refuge from the avenger of blood.
 
 4. He shall flee to one of those cities, and shall stand at the entrance of the gate of the city, and declare his cause in the ears of the elders of that city. They shall take him into the city with them, and give him a place, that he may live among them.
 
-5. If the avenger of blood pursue after him, then they shall not deliver up the manslayer into his hand; because he struck his neighbor unintentionally, and didn`t hate him before.
+5. If the avenger of blood pursue after him, then they shall not deliver up the manslayer into his hand; because he struck his neighbor unintentionally, and didn't hate him before.
 
-6. He shall dwell in that city until he stands before the congregation for judgment, until the death of the high priest that shall be in those days. Then the manslayer shall return, and come to his own city, and to his own house, to the city he fled from.`"
+6. He shall dwell in that city until he stands before the congregation for judgment, until the death of the high priest that shall be in those days. Then the manslayer shall return, and come to his own city, and to his own house, to the city he fled from.'"
 
 7. They set apart Kedesh in Galilee in the hill country of Naphtali, Shechem in the hill country of Ephraim, and Kiriath Arba (the same is Hebron) in the hill country of Judah.
 
@@ -1122,7 +1122,7 @@
 
 ## Chapter 21
 
-1. Then the heads of fathers` houses of the Levites came near to Eleazar the priest, and to Joshua the son of Nun, and to the heads of fathers` houses of the tribes of the children of Israel.
+1. Then the heads of fathers' houses of the Levites came near to Eleazar the priest, and to Joshua the son of Nun, and to the heads of fathers' houses of the tribes of the children of Israel.
 
 2. They spoke to them at Shiloh in the land of Canaan, saying, "Yahweh commanded Moses to give us cities to dwell in, with their suburbs for our livestock."
 
@@ -1241,35 +1241,35 @@
 
 13. The children of Israel sent to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, into the land of Gilead, Phinehas the son of Eleazar the priest,
 
-14. and with him ten princes, one prince of a fathers` house for each of the tribes of Israel; and they were everyone of them head of their fathers` houses among the thousands of Israel.
+14. and with him ten princes, one prince of a fathers' house for each of the tribes of Israel; and they were everyone of them head of their fathers' houses among the thousands of Israel.
 
 15. They came to the children of Reuben, and to the children of Gad, and to the half-tribe of Manasseh, to the land of Gilead, and they spoke with them, saying,
 
-16. "Thus says the whole congregation of Yahweh, `What trespass is this that you have committed against the God of Israel, to turn away this day from following Yahweh, in that you have built you an altar, to rebel this day against Yahweh?
+16. "Thus says the whole congregation of Yahweh, 'What trespass is this that you have committed against the God of Israel, to turn away this day from following Yahweh, in that you have built you an altar, to rebel this day against Yahweh?
 
 17. Is the iniquity of Peor too little for us, from which we have not cleansed ourselves to this day, although there came a plague on the congregation of Yahweh,
 
 18. that you must turn away this day from following Yahweh? It will be, seeing that you rebel today against Yahweh, that tomorrow he will be angry with the whole congregation of Israel.
 
-19. However, if the land of your possession is unclean, then pass over to the land of the possession of Yahweh, in which Yahweh`s tabernacle dwells, and take possession among us; but don`t rebel against Yahweh, nor rebel against us, in building an altar other than the altar of Yahweh our God.
+19. However, if the land of your possession is unclean, then pass over to the land of the possession of Yahweh, in which Yahweh's tabernacle dwells, and take possession among us; but don't rebel against Yahweh, nor rebel against us, in building an altar other than the altar of Yahweh our God.
 
-20. Didn`t Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn`t perish alone in his iniquity.`"
+20. Didn't Achan the son of Zerah commit a trespass in the devoted thing, and wrath fell on all the congregation of Israel? That man didn't perish alone in his iniquity.'"
 
 21. Then the children of Reuben and the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel,
 
-22. "The Mighty One, God, Yahweh, the Mighty One, God, Yahweh, he knows; and Israel shall know: if it was in rebellion, or if in trespass against Yahweh (don`t save us this day),
+22. "The Mighty One, God, Yahweh, the Mighty One, God, Yahweh, he knows; and Israel shall know: if it was in rebellion, or if in trespass against Yahweh (don't save us this day),
 
 23. that we have built us an altar to turn away from following Yahweh; or if to offer burnt offering or meal offering, or if to offer sacrifices of peace offerings, let Yahweh himself require it.
 
-24. "If we have not out of concern done this, and for a reason, saying, `In time to come your children might speak to our children, saying, "What have you to do with Yahweh, the God of Israel?
+24. "If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with Yahweh, the God of Israel?
 
-25. For Yahweh has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in Yahweh."` So your children might make our children cease from fearing Yahweh.
+25. For Yahweh has made the Jordan a border between us and you, you children of Reuben and children of Gad. You have no portion in Yahweh."' So your children might make our children cease from fearing Yahweh.
 
-26. "Therefore we said, `Let`s now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice;
+26. "Therefore we said, 'Let's now prepare to build ourselves an altar, not for burnt offering, nor for sacrifice;
 
-27. but it will be a witness between us and you, and between our generations after us, that we may perform the service of Yahweh before him with our burnt offerings, with our sacrifices, and with our peace offerings;` that your children may not tell our children in time to come, `You have no portion in Yahweh.`
+27. but it will be a witness between us and you, and between our generations after us, that we may perform the service of Yahweh before him with our burnt offerings, with our sacrifices, and with our peace offerings;' that your children may not tell our children in time to come, 'You have no portion in Yahweh.'
 
-28. "Therefore we said, `It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of the altar of Yahweh, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."`
+28. "Therefore we said, 'It shall be, when they tell us or our generations this in time to come, that we shall say, "Behold the pattern of the altar of Yahweh, which our fathers made, not for burnt offering, nor for sacrifice; but it is a witness between us and you."'
 
 29. "Far be it from us that we should rebel against Yahweh, and turn away this day from following Yahweh, to build an altar for burnt offering, for meal offering, or for sacrifice, besides the altar of Yahweh our God that is before his tabernacle!"
 
@@ -1323,29 +1323,29 @@
 
 1. Joshua gathered all the tribes of Israel to Shechem, and called for the elders of Israel, for their heads, for their judges, and for their officers; and they presented themselves before God.
 
-2. Joshua said to all the people, "Thus says Yahweh, the God of Israel, `Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor: and they served other gods.
+2. Joshua said to all the people, "Thus says Yahweh, the God of Israel, 'Your fathers lived of old time beyond the River, even Terah, the father of Abraham, and the father of Nahor: and they served other gods.
 
 3. I took your father Abraham from beyond the River, and led him throughout all the land of Canaan, and multiplied his seed, and gave him Isaac.
 
 4. I gave to Isaac Jacob and Esau: and I gave to Esau Mount Seir, to possess it. Jacob and his children went down into Egypt.
 
-5. "`I sent Moses and Aaron, and I plagued Egypt, according to that which I did in its midst: and afterward I brought you out.
+5. "'I sent Moses and Aaron, and I plagued Egypt, according to that which I did in its midst: and afterward I brought you out.
 
 6. I brought your fathers out of Egypt: and you came to the sea. The Egyptians pursued after your fathers with chariots and with horsemen to the Red Sea.
 
 7. When they cried out to Yahweh, he put darkness between you and the Egyptians, and brought the sea on them, and covered them; and your eyes saw what I did in Egypt: and you lived in the wilderness many days.
 
-8. "`I brought you into the land of the Amorites, that lived beyond the Jordan: and they fought with you; and I gave them into your hand. You possessed their land; and I destroyed them from before you.
+8. "'I brought you into the land of the Amorites, that lived beyond the Jordan: and they fought with you; and I gave them into your hand. You possessed their land; and I destroyed them from before you.
 
 9. Then Balak the son of Zippor, king of Moab, arose and fought against Israel. He sent and called Balaam the son of Beor to curse you;
 
 10. but I would not listen to Balaam; therefore he blessed you still. So I delivered you out of his hand.
 
-11. "`You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand.
+11. "'You went over the Jordan, and came to Jericho. The men of Jericho fought against you, the Amorite, the Perizzite, the Canaanite, the Hittite, the Girgashite, the Hivite, and the Jebusite; and I delivered them into your hand.
 
 12. I sent the hornet before you, which drove them out from before you, even the two kings of the Amorites; not with your sword, nor with your bow.
 
-13. I gave you a land whereon you had not labored, and cities which you didn`t build, and you live in them. You eat of vineyards and olive groves which you didn`t plant.`
+13. I gave you a land whereon you had not labored, and cities which you didn't build, and you live in them. You eat of vineyards and olive groves which you didn't plant.'
 
 14. "Now therefore fear Yahweh, and serve him in sincerity and in truth. Put away the gods which your fathers served beyond the River, in Egypt; and serve Yahweh.
 
@@ -1357,7 +1357,7 @@
 
 18. Yahweh drove out from before us all the peoples, even the Amorites who lived in the land. Therefore we also will serve Yahweh; for he is our God."
 
-19. Joshua said to the people, "You can`t serve Yahweh; for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your sins.
+19. Joshua said to the people, "You can't serve Yahweh; for he is a holy God. He is a jealous God. He will not forgive your disobedience nor your sins.
 
 20. If you forsake Yahweh, and serve foreign gods, then he will turn and do you evil, and consume you, after he has done you good."
 

@@ -8,7 +8,7 @@
 
 3. As I urged you when I was going into Macedonia, stay at Ephesus that you might command certain men not to teach a different doctrine,
 
-4. neither to pay attention to myths and endless genealogies, which cause disputes, rather than God`s stewardship, which is in faith--
+4. neither to pay attention to myths and endless genealogies, which cause disputes, rather than God's stewardship, which is in faith--
 
 5. but the goal of this command is love, out of a pure heart and a good conscience and unfeigned faith;
 
@@ -67,11 +67,11 @@
 
 11. Let a woman learn in quietness with all subjection.
 
-12. But I don`t permit a woman to teach, nor to exercise authority over a man, but to be in quietness.
+12. But I don't permit a woman to teach, nor to exercise authority over a man, but to be in quietness.
 
 13. For Adam was first formed, then Eve.
 
-14. Adam wasn`t deceived, but the woman, being deceived, has fallen into disobedience;
+14. Adam wasn't deceived, but the woman, being deceived, has fallen into disobedience;
 
 15. but she will be saved through her childbearing, if they continue in faith, love, and sanctification with sobriety.
 
@@ -86,7 +86,7 @@
 
 4. one who rules his own house well, having children in subjection with all reverence;
 
-5. (but if a man doesn`t know how to rule his own house, how will he take care of the assembly of God?)
+5. (but if a man doesn't know how to rule his own house, how will he take care of the assembly of God?)
 
 6. not a new convert, lest being puffed up he fall into the same condemnation as the devil.
 
@@ -125,7 +125,7 @@
 
 6. If you instruct the brothers of these things, you will be a good servant of Christ Jesus, nourished in the words of the faith, and of the good doctrine which you have followed.
 
-7. But refuse profane and old wives` fables. Exercise yourself toward godliness.
+7. But refuse profane and old wives' fables. Exercise yourself toward godliness.
 
 8. For bodily exercise has some value, but godliness has value in all things, having the promise of the life which is now, and of that which is to come.
 
@@ -139,7 +139,7 @@
 
 13. Until I come, pay attention to reading, to exhortation, and to teaching.
 
-14. Don`t neglect the gift that is in you, which was given to you by prophecy, with the laying on of the hands of the elders.
+14. Don't neglect the gift that is in you, which was given to you by prophecy, with the laying on of the hands of the elders.
 
 15. Be diligent in these things. Give yourself wholly to them, that your progress may be revealed to all.
 
@@ -148,7 +148,7 @@
 
 ## Chapter 5
 
-1. Don`t rebuke an older man, but exhort him as a father; the younger men as brothers;
+1. Don't rebuke an older man, but exhort him as a father; the younger men as brothers;
 
 2. the elder women as mothers; the younger as sisters, in all purity.
 
@@ -162,11 +162,11 @@
 
 7. Also command these things, that they may be without reproach.
 
-8. But if anyone doesn`t provide for his own, and especially his own household, he has denied the faith, and is worse than an unbeliever.
+8. But if anyone doesn't provide for his own, and especially his own household, he has denied the faith, and is worse than an unbeliever.
 
 9. Let no one be enrolled as a widow under sixty years old, having been the wife of one man,
 
-10. being approved by good works, if she has brought up children, if she has been hospitable to strangers, if she has washed the saints` feet, if she has relieved the afflicted, and if she has diligently followed every good work.
+10. being approved by good works, if she has brought up children, if she has been hospitable to strangers, if she has washed the saints' feet, if she has relieved the afflicted, and if she has diligently followed every good work.
 
 11. But refuse younger widows, for when they have grown wanton against Christ, they desire to marry;
 
@@ -178,25 +178,25 @@
 
 15. For already some have turned aside after Satan.
 
-16. If any man or woman who believes has widows, let them relieve them, and don`t let the assembly be burdened; that it might relieve those who are widows indeed.
+16. If any man or woman who believes has widows, let them relieve them, and don't let the assembly be burdened; that it might relieve those who are widows indeed.
 
 17. Let the elders who rule well be counted worthy of double honor, especially those who labor in the word and in teaching.
 
 18. For the Scripture says, "You shall not muzzle the ox when it treads out the grain." And, "The laborer is worthy of his wages."
 
-19. Don`t receive an accusation against an elder, except at the word of two or three witnesses.
+19. Don't receive an accusation against an elder, except at the word of two or three witnesses.
 
 20. Those who sin, reprove in the sight of all, that the rest also may be in fear.
 
 21. I command you in the sight of God, and Christ Jesus, and the chosen angels, that you observe these things without prejudice, doing nothing by partiality.
 
-22. Lay hands hastily on no one, neither be a participant in other men`s sins. Keep yourself pure.
+22. Lay hands hastily on no one, neither be a participant in other men's sins. Keep yourself pure.
 
-23. Be no longer a drinker of water only, but use a little wine for your stomach`s sake and your frequent infirmities.
+23. Be no longer a drinker of water only, but use a little wine for your stomach's sake and your frequent infirmities.
 
-24. Some men`s sins are evident, preceding them to judgment, and some also follow later.
+24. Some men's sins are evident, preceding them to judgment, and some also follow later.
 
-25. In the same way also there are good works that are obvious, and those that are otherwise can`t be hidden.
+25. In the same way also there are good works that are obvious, and those that are otherwise can't be hidden.
 
 
 ## Chapter 6
@@ -205,7 +205,7 @@
 
 2. Those who have believing masters, let them not despise them, because they are brothers, but rather let them serve them, because those who partake of the benefit are believing and beloved. Teach and exhort these things.
 
-3. If anyone teaches a different doctrine, and doesn`t consent to sound words, the words of our Lord Jesus Christ, and to the doctrine which is according to godliness,
+3. If anyone teaches a different doctrine, and doesn't consent to sound words, the words of our Lord Jesus Christ, and to the doctrine which is according to godliness,
 
 4. he is conceited, knowing nothing, but obsessed with arguments, disputes, and word battles, from which come envy, strife, insulting, evil suspicions,
 
@@ -213,7 +213,7 @@
 
 6. But godliness with contentment is great gain.
 
-7. For we brought nothing into the world, and we certainly can`t carry anything out.
+7. For we brought nothing into the world, and we certainly can't carry anything out.
 
 8. But having food and clothing, we will be content with that.
 

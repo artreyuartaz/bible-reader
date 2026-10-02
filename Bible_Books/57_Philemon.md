@@ -18,7 +18,7 @@
 
 8. Therefore, though I have all boldness in Christ to command you that which is appropriate,
 
-9. yet for love`s sake I rather beg, being such a one as Paul, the aged, but also a prisoner of Jesus Christ.
+9. yet for love's sake I rather beg, being such a one as Paul, the aged, but also a prisoner of Jesus Christ.
 
 10. I beg you for my child, whom I have become the father of in my chains, Onesimus,
 

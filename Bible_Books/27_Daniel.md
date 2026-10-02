@@ -8,15 +8,15 @@
 
 3. The king spoke to Ashpenaz the master of his eunuchs, that he should bring in [certain] of the children of Israel, even of the seed royal and of the nobles;
 
-4. youths in whom was no blemish, but well-favored, and skillful in all wisdom, and endowed with knowledge, and understanding science, and such as had ability to stand in the king`s palace; and that he should teach them the learning and the language of the Chaldeans.
+4. youths in whom was no blemish, but well-favored, and skillful in all wisdom, and endowed with knowledge, and understanding science, and such as had ability to stand in the king's palace; and that he should teach them the learning and the language of the Chaldeans.
 
-5. The king appointed for them a daily portion of the king`s dainties, and of the wine which he drank, and that they should be nourished three years; that at its end they should stand before the king.
+5. The king appointed for them a daily portion of the king's dainties, and of the wine which he drank, and that they should be nourished three years; that at its end they should stand before the king.
 
 6. Now among these were, of the children of Judah, Daniel, Hananiah, Mishael, and Azariah.
 
 7. The prince of the eunuchs gave names to them: to Daniel he gave [the name of] Belteshazzar; and to Hananiah, [of] Shadrach; and to Mishael, [of] Meshach; and to Azariah, [of] Abednego.
 
-8. But Daniel purposed in his heart that he would not defile himself with the king`s dainties, nor with the wine which he drank: therefore he requested of the prince of the eunuchs that he might not defile himself.
+8. But Daniel purposed in his heart that he would not defile himself with the king's dainties, nor with the wine which he drank: therefore he requested of the prince of the eunuchs that he might not defile himself.
 
 9. Now God made Daniel to find kindness and compassion in the sight of the prince of the eunuchs.
 
@@ -26,11 +26,11 @@
 
 12. Prove your servants, I beg you, ten days; and let them give us pulse to eat, and water to drink.
 
-13. Then let our faces be looked on before you, and the face of the youths who eat of the king`s dainties; and as you see, deal with your servants.
+13. Then let our faces be looked on before you, and the face of the youths who eat of the king's dainties; and as you see, deal with your servants.
 
 14. So he listened to them in this matter, and proved them ten days.
 
-15. At the end of ten days their faces appeared fairer, and they were fatter in flesh, than all the youths who ate of the king`s dainties.
+15. At the end of ten days their faces appeared fairer, and they were fatter in flesh, than all the youths who ate of the king's dainties.
 
 16. So the steward took away their dainties, and the wine that they should drink, and gave them pulse.
 
@@ -55,7 +55,7 @@
 
 4. Then spoke the Chaldeans to the king in the Syrian language, O king, live forever: tell your servants the dream, and we will show the interpretation.
 
-5. The king answered the Chaldeans, The thing is gone from me: if you don`t make known to me the dream and its interpretation, you shall be cut in pieces, and your houses shall be made a dunghill.
+5. The king answered the Chaldeans, The thing is gone from me: if you don't make known to me the dream and its interpretation, you shall be cut in pieces, and your houses shall be made a dunghill.
 
 6. But if you show the dream and its interpretation, you shall receive of me gifts and rewards and great honor: therefore show me the dream and its interpretation.
 
@@ -63,9 +63,9 @@
 
 8. The king answered, I know of a certainty that you would gain time, because you see the thing is gone from me.
 
-9. But if you don`t make known to me the dream, there is but one law for you; for you have prepared lying and corrupt words to speak before me, until the time be changed: therefore tell me the dream, and I shall know that you can show me its interpretation.
+9. But if you don't make known to me the dream, there is but one law for you; for you have prepared lying and corrupt words to speak before me, until the time be changed: therefore tell me the dream, and I shall know that you can show me its interpretation.
 
-10. The Chaldeans answered before the king, and said, There is not a man on the earth who can show the king`s matter, because no king, lord, or ruler, has asked such a thing of any magician, or enchanter, or Chaldean.
+10. The Chaldeans answered before the king, and said, There is not a man on the earth who can show the king's matter, because no king, lord, or ruler, has asked such a thing of any magician, or enchanter, or Chaldean.
 
 11. It is a rare thing that the king requires, and there is no other who can show it before the king, except the gods, whose dwelling is not with flesh.
 
@@ -73,9 +73,9 @@
 
 13. So the decree went forth, and the wise men were to be slain; and they sought Daniel and his companions to be slain.
 
-14. Then Daniel returned answer with counsel and prudence to Arioch the captain of the king`s guard, who was gone forth to kill the wise men of Babylon;
+14. Then Daniel returned answer with counsel and prudence to Arioch the captain of the king's guard, who was gone forth to kill the wise men of Babylon;
 
-15. he answered Arioch the king`s captain, Why is the decree so urgent from the king? Then Arioch made the thing known to Daniel.
+15. he answered Arioch the king's captain, Why is the decree so urgent from the king? Then Arioch made the thing known to Daniel.
 
 16. Daniel went in, and desired of the king that he would appoint him a time, and he would show the king the interpretation.
 
@@ -91,9 +91,9 @@
 
 22. he reveals the deep and secret things; he knows what is in the darkness, and the light dwells with him.
 
-23. I thank you, and praise you, you God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king`s matter.
+23. I thank you, and praise you, you God of my fathers, who have given me wisdom and might, and have now made known to me what we desired of you; for you have made known to us the king's matter.
 
-24. Therefore Daniel went in to Arioch, whom the king had appointed to destroy the wise men of Babylon; he went and said thus to him: Don`t destroy the wise men of Babylon; bring me in before the king, and I will show to the king the interpretation.
+24. Therefore Daniel went in to Arioch, whom the king had appointed to destroy the wise men of Babylon; he went and said thus to him: Don't destroy the wise men of Babylon; bring me in before the king, and I will show to the king the interpretation.
 
 25. Then Arioch brought in Daniel before the king in haste, and said thus to him, I have found a man of the children of the captivity of Judah, who will make known to the king the interpretation.
 
@@ -127,7 +127,7 @@
 
 40. The fourth kingdom shall be strong as iron, because iron breaks in pieces and subdues all things; and as iron that crushes all these, shall it break in pieces and crush.
 
-41. Whereas you saw the feet and toes, part of potters` clay, and part of iron, it shall be a divided kingdom; but there shall be in it of the strength of the iron, because you saw the iron mixed with miry clay.
+41. Whereas you saw the feet and toes, part of potters' clay, and part of iron, it shall be a divided kingdom; but there shall be in it of the strength of the iron, because you saw the iron mixed with miry clay.
 
 42. As the toes of the feet were part of iron, and part of clay, so the kingdom shall be partly strong, and partly broken.
 
@@ -158,7 +158,7 @@
 
 5. that whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, you fall down and worship the golden image that Nebuchadnezzar the king has set up;
 
-6. and whoever doesn`t fall down and worship shall the same hour be cast into the midst of a burning fiery furnace.
+6. and whoever doesn't fall down and worship shall the same hour be cast into the midst of a burning fiery furnace.
 
 7. Therefore at that time, when all the peoples heard the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, all the peoples, the nations, and the languages, fell down and worshiped the golden image that Nebuchadnezzar the king had set up.
 
@@ -168,15 +168,15 @@
 
 10. You, O king, have made a decree, that every man that shall hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, shall fall down and worship the golden image;
 
-11. and whoever doesn`t fall down and worship shall be cast into the midst of a burning fiery furnace.
+11. and whoever doesn't fall down and worship shall be cast into the midst of a burning fiery furnace.
 
-12. There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego; these men, O king, have not respected you. They don`t serve your gods, nor worship the golden image which you have set up.
+12. There are certain Jews whom you have appointed over the affairs of the province of Babylon: Shadrach, Meshach, and Abednego; these men, O king, have not respected you. They don't serve your gods, nor worship the golden image which you have set up.
 
 13. Then Nebuchadnezzar in [his] rage and fury commanded to bring Shadrach, Meshach, and Abednego. Then they brought these men before the king.
 
-14. Nebuchadnezzar answered them, Is it on purpose, Shadrach, Meshach, and Abednego, that you don`t serve my god, nor worship the golden image which I have set up?
+14. Nebuchadnezzar answered them, Is it on purpose, Shadrach, Meshach, and Abednego, that you don't serve my god, nor worship the golden image which I have set up?
 
-15. Now if you are ready whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music to fall down and worship the image which I have made, [well]: but if you don`t worship, you shall be cast the same hour into the midst of a burning fiery furnace; and who is that god that shall deliver you out of my hands?
+15. Now if you are ready whenever you hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music to fall down and worship the image which I have made, [well]: but if you don't worship, you shall be cast the same hour into the midst of a burning fiery furnace; and who is that god that shall deliver you out of my hands?
 
 16. Shadrach, Meshach, and Abednego answered the king, Nebuchadnezzar, we have no need to answer you in this matter.
 
@@ -190,19 +190,19 @@
 
 21. Then these men were bound in their pants, their tunics, and their mantles, and their [other] garments, and were cast into the midst of the burning fiery furnace.
 
-22. Therefore because the king`s commandment was urgent, and the furnace exceeding hot, the flame of the fire killed those men who took up Shadrach, Meshach, and Abednego.
+22. Therefore because the king's commandment was urgent, and the furnace exceeding hot, the flame of the fire killed those men who took up Shadrach, Meshach, and Abednego.
 
 23. These three men, Shadrach, Meshach, and Abednego, fell down bound into the midst of the burning fiery furnace.
 
-24. Then Nebuchadnezzar the king was astonished, and rose up in haste: he spoke and said to his counselors, Didn`t we cast three men bound into the midst of the fire? They answered the king, True, O king.
+24. Then Nebuchadnezzar the king was astonished, and rose up in haste: he spoke and said to his counselors, Didn't we cast three men bound into the midst of the fire? They answered the king, True, O king.
 
 25. He answered, Look, I see four men loose, walking in the midst of the fire, and they have no hurt; and the aspect of the fourth is like a son of the gods.
 
 26. Then Nebuchadnezzar came near to the mouth of the burning fiery furnace: he spoke and said, Shadrach, Meshach, and Abednego, you servants of the Most High God, come forth, and come here. Then Shadrach, Meshach, and Abednego came forth out of the midst of the fire.
 
-27. The satraps, the deputies, and the governors, and the king`s counselors, being gathered together, saw these men, that the fire had no power on their bodies, nor was the hair of their head singed, neither were their pants changed, nor had the smell of fire passed on them.
+27. The satraps, the deputies, and the governors, and the king's counselors, being gathered together, saw these men, that the fire had no power on their bodies, nor was the hair of their head singed, neither were their pants changed, nor had the smell of fire passed on them.
 
-28. Nebuchadnezzar spoke and said, Blessed be the God of Shadrach, Meshach, and Abednego, who has sent his angel, and delivered his servants who trusted in him, and have changed the king`s word, and have yielded their bodies, that they might not serve nor worship any god, except their own God.
+28. Nebuchadnezzar spoke and said, Blessed be the God of Shadrach, Meshach, and Abednego, who has sent his angel, and delivered his servants who trusted in him, and have changed the king's word, and have yielded their bodies, that they might not serve nor worship any god, except their own God.
 
 29. Therefore I make a decree, that every people, nation, and language, which speak anything evil against the God of Shadrach, Meshach, and Abednego, shall be cut in pieces, and their houses shall be made a dunghill; because there is no other god who is able to deliver after this sort.
 
@@ -241,13 +241,13 @@
 
 15. Nevertheless leave the stump of its roots in the earth, even with a band of iron and brass, in the tender grass of the field; and let it be wet with the dew of the sky: and let his portion be with the animals in the grass of the earth:
 
-16. let his heart be changed from man`s, and let an animal`s heart be given to him; and let seven times pass over him.
+16. let his heart be changed from man's, and let an animal's heart be given to him; and let seven times pass over him.
 
 17. The sentence is by the decree of the watchers, and the demand by the word of the holy ones; to the intent that the living may know that the Most High rules in the kingdom of men, and gives it to whomever he will, and sets up over it the lowest of men.
 
 18. This dream I, king Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom are not able to make known to me the interpretation; but you are able; for the spirit of the holy gods is in you.
 
-19. Then Daniel, whose name was Belteshazzar, was stricken mute for a while, and his thoughts troubled him. The king answered, Belteshazzar, don`t let the dream, or the interpretation, trouble you. Belteshazzar answered, My lord, the dream be to those who hate you, and its interpretation to your adversaries.
+19. Then Daniel, whose name was Belteshazzar, was stricken mute for a while, and his thoughts troubled him. The king answered, Belteshazzar, don't let the dream, or the interpretation, trouble you. Belteshazzar answered, My lord, the dream be to those who hate you, and its interpretation to your adversaries.
 
 20. The tree that you saw, which grew, and was strong, whose height reached to the sky, and its sight to all the earth;
 
@@ -271,11 +271,11 @@
 
 30. The king spoke and said, Is not this great Babylon, which I have built for the royal dwelling place, by the might of my power and for the glory of my majesty?
 
-31. While the word was in the king`s mouth, there fell a voice from the sky, [saying], O king Nebuchadnezzar, to you it is spoken: The kingdom has departed from you:
+31. While the word was in the king's mouth, there fell a voice from the sky, [saying], O king Nebuchadnezzar, to you it is spoken: The kingdom has departed from you:
 
 32. and you shall be driven from men; and your dwelling shall be with the animals of the field; you shall be made to eat grass as oxen; and seven times shall pass over you; until you know that the Most High rules in the kingdom of men, and gives it to whomever he will.
 
-33. The same hour was the thing fulfilled on Nebuchadnezzar: and he was driven from men, and ate grass as oxen, and his body was wet with the dew of the sky, until his hair was grown like eagles` [feathers], and his nails like birds` [claws].
+33. The same hour was the thing fulfilled on Nebuchadnezzar: and he was driven from men, and ate grass as oxen, and his body was wet with the dew of the sky, until his hair was grown like eagles' [feathers], and his nails like birds' [claws].
 
 34. At the end of the days I, Nebuchadnezzar, lifted up my eyes to heaven, and my understanding returned to me, and I blessed the Most High, and I praised and honored him who lives forever; for his dominion is an everlasting dominion, and his kingdom from generation to generation.
 
@@ -296,17 +296,17 @@
 
 4. They drank wine, and praised the gods of gold, and of silver, of brass, of iron, of wood, and of stone.
 
-5. In the same hour came forth the fingers of a man`s hand, and wrote over against the lampstand on the plaster of the wall of the king`s palace: and the king saw the part of the hand that wrote.
+5. In the same hour came forth the fingers of a man's hand, and wrote over against the lampstand on the plaster of the wall of the king's palace: and the king saw the part of the hand that wrote.
 
-6. Then the king`s face was changed in him, and his thoughts troubled him; and the joints of his thighs were loosened, and his knees struck one against another.
+6. Then the king's face was changed in him, and his thoughts troubled him; and the joints of his thighs were loosened, and his knees struck one against another.
 
 7. The king cried aloud to bring in the enchanters, the Chaldeans, and the soothsayers. The king spoke and said to the wise men of Babylon, Whoever shall read this writing, and show me its interpretation, shall be clothed with purple, and have a chain of gold about his neck, and shall be the third ruler in the kingdom.
 
-8. Then came in all the king`s wise men; but they could not read the writing, nor make known to the king the interpretation.
+8. Then came in all the king's wise men; but they could not read the writing, nor make known to the king the interpretation.
 
 9. Then was king Belshazzar greatly troubled, and his face was changed in him, and his lords were perplexed.
 
-10. [Now] the queen by reason of the words of the king and his lords came into the banquet house: the queen spoke and said, O king, live forever; don`t let your thoughts trouble you, nor let your face be changed.
+10. [Now] the queen by reason of the words of the king and his lords came into the banquet house: the queen spoke and said, O king, live forever; don't let your thoughts trouble you, nor let your face be changed.
 
 11. There is a man in your kingdom, in whom is the spirit of the holy gods; and in the days of your father light and understanding and wisdom, like the wisdom of the gods, were found in him; and the king Nebuchadnezzar your father, the king, [I say], your father, made him master of the magicians, enchanters, Chaldeans, and soothsayers;
 
@@ -328,11 +328,11 @@
 
 20. But when his heart was lifted up, and his spirit was hardened so that he dealt proudly, he was deposed from his kingly throne, and they took his glory from him:
 
-21. and he was driven from the sons of men, and his heart was made like the animals`, and his dwelling was with the wild donkeys; he was fed with grass like oxen, and his body was wet with the dew of the sky; until he knew that the Most High God rules in the kingdom of men, and that he sets up over it whomever he will.
+21. and he was driven from the sons of men, and his heart was made like the animals', and his dwelling was with the wild donkeys; he was fed with grass like oxen, and his body was wet with the dew of the sky; until he knew that the Most High God rules in the kingdom of men, and that he sets up over it whomever he will.
 
 22. You, his son, Belshazzar, have not humbled your heart, though you knew all this,
 
-23. but have lifted up yourself against the Lord of heaven; and they have brought the vessels of his house before you, and you and your lords, your wives and your concubines, have drunk wine from them; and you have praised the gods of silver and gold, of brass, iron, wood, and stone, which don`t see, nor hear, nor know; and the God in whose hand your breath is, and whose are all your ways, you have not glorified.
+23. but have lifted up yourself against the Lord of heaven; and they have brought the vessels of his house before you, and you and your lords, your wives and your concubines, have drunk wine from them; and you have praised the gods of silver and gold, of brass, iron, wood, and stone, which don't see, nor hear, nor know; and the God in whose hand your breath is, and whose are all your ways, you have not glorified.
 
 24. Then was the part of the hand sent from before him, and this writing was inscribed.
 
@@ -367,7 +367,7 @@
 
 7. All the presidents of the kingdom, the deputies and the satraps, the counselors and the governors, have consulted together to establish a royal statute, and to make a strong decree, that whoever shall ask a petition of any god or man for thirty days, except of you, O king, he shall be cast into the den of lions.
 
-8. Now, O king, establish the decree, and sign the writing, that it not be changed, according to the law of the Medes and Persians, which doesn`t alter.
+8. Now, O king, establish the decree, and sign the writing, that it not be changed, according to the law of the Medes and Persians, which doesn't alter.
 
 9. Therefore king Darius signed the writing and the decree.
 
@@ -375,9 +375,9 @@
 
 11. Then these men assembled together, and found Daniel making petition and supplication before his God.
 
-12. Then they came near, and spoke before the king concerning the king`s decree: Haven`t you signed an decree, that every man who shall make petition to any god or man within thirty days, except to you, O king, shall be cast into the den of lions? The king answered, The thing is true, according to the law of the Medes and Persians, which doesn`t alter.
+12. Then they came near, and spoke before the king concerning the king's decree: Haven't you signed an decree, that every man who shall make petition to any god or man within thirty days, except to you, O king, shall be cast into the den of lions? The king answered, The thing is true, according to the law of the Medes and Persians, which doesn't alter.
 
-13. Then answered they and said before the king, That Daniel, who is of the children of the captivity of Judah, doesn`t respect you, O king, nor the decree that you have signed, but makes his petition three times a day.
+13. Then answered they and said before the king, That Daniel, who is of the children of the captivity of Judah, doesn't respect you, O king, nor the decree that you have signed, but makes his petition three times a day.
 
 14. Then the king, when he heard these words, was sore displeased, and set his heart on Daniel to deliver him; and he labored until the going down of the sun to rescue him.
 
@@ -395,7 +395,7 @@
 
 21. Then said Daniel to the king, O king, live forever.
 
-22. My God has sent his angel, and has shut the lions` mouths, and they have not hurt me; because as before him innocence was found in me; and also before you, O king, have I done no hurt.
+22. My God has sent his angel, and has shut the lions' mouths, and they have not hurt me; because as before him innocence was found in me; and also before you, O king, have I done no hurt.
 
 23. Then was the king exceeding glad, and commanded that they should take Daniel up out of the den. So Daniel was taken up out of the den, and no manner of hurt was found on him, because he had trusted in his God.
 
@@ -418,7 +418,7 @@
 
 3. Four great animals came up from the sea, diverse one from another.
 
-4. The first was like a lion, and had eagle`s wings: I saw until its wings were plucked, and it was lifted up from the earth, and made to stand on two feet as a man; and a man`s heart was given to it.
+4. The first was like a lion, and had eagle's wings: I saw until its wings were plucked, and it was lifted up from the earth, and made to stand on two feet as a man; and a man's heart was given to it.
 
 5. Behold, another animal, a second, like a bear; and it was raised up on one side, and three ribs were in its mouth between its teeth: and they said thus to it, Arise, devour much flesh.
 
@@ -479,7 +479,7 @@
 
 4. I saw the ram pushing westward, and northward, and southward; and no animals could stand before him, neither was there any who could deliver out of his hand; but he did according to his will, and magnified himself.
 
-5. As I was considering, behold, a male goat came from the west over the surface of the whole earth, and didn`t touch the ground: and the goat had a notable horn between his eyes.
+5. As I was considering, behold, a male goat came from the west over the surface of the whole earth, and didn't touch the ground: and the goat had a notable horn between his eyes.
 
 6. He came to the ram that had the two horns, which I saw standing before the river, and ran on him in the fury of his power.
 
@@ -501,7 +501,7 @@
 
 15. It happened, when I, even I Daniel, had seen the vision, that I sought to understand it; and behold, there stood before me as the appearance of a man.
 
-16. I heard a man`s voice between [the banks of] the Ulai, which called, and said, Gabriel, make this man to understand the vision.
+16. I heard a man's voice between [the banks of] the Ulai, which called, and said, Gabriel, make this man to understand the vision.
 
 17. So he came near where I stood; and when he came, I was frightened, and fell on my face: but he said to me, Understand, son of man; for the vision belongs to the time of the end.
 
@@ -523,7 +523,7 @@
 
 26. The vision of the evenings and mornings which has been told is true: but seal up the vision; for it belongs to many days [to come].
 
-27. I, Daniel, fainted, and was sick certain days; then I rose up, and did the king`s business: and I wondered at the vision, but none understood it.
+27. I, Daniel, fainted, and was sick certain days; then I rose up, and did the king's business: and I wondered at the vision, but none understood it.
 
 
 ## Chapter 9
@@ -560,11 +560,11 @@
 
 16. Lord, according to all your righteousness, let your anger and please let your wrath be turned away from your city Jerusalem, your holy mountain; because for our sins, and for the iniquities of our fathers, Jerusalem and your people have become a reproach to all who are around us.
 
-17. Now therefore, our God, listen to the prayer of your servant, and to his petitions, and cause your face to shine on your sanctuary that is desolate, for the Lord`s sake.
+17. Now therefore, our God, listen to the prayer of your servant, and to his petitions, and cause your face to shine on your sanctuary that is desolate, for the Lord's sake.
 
-18. My God, turn your ear, and hear; open your eyes, and see our desolations, and the city which is called by your name: for we do not present our petitions before you for our righteousness, but for your great mercies` sake.
+18. My God, turn your ear, and hear; open your eyes, and see our desolations, and the city which is called by your name: for we do not present our petitions before you for our righteousness, but for your great mercies' sake.
 
-19. Lord, hear; Lord, forgive; Lord, listen and do; don`t defer, for your own sake, my God, because your city and your people are called by your name.
+19. Lord, hear; Lord, forgive; Lord, listen and do; don't defer, for your own sake, my God, because your city and your people are called by your name.
 
 20. While I was speaking, and praying, and confessing my sin and the sin of my people Israel, and presenting my supplication before Yahweh my God for the holy mountain of my God;
 
@@ -597,7 +597,7 @@
 
 6. his body also was like the beryl, and his face as the appearance of lightning, and his eyes as flaming torches, and his arms and his feet like burnished brass, and the voice of his words like the voice of a multitude.
 
-7. I, Daniel, alone saw the vision; for the men who were with me didn`t see the vision; but a great quaking fell on them, and they fled to hide themselves.
+7. I, Daniel, alone saw the vision; for the men who were with me didn't see the vision; but a great quaking fell on them, and they fled to hide themselves.
 
 8. So I was left alone, and saw this great vision, and there remained no strength in me; for my comeliness was turned in me into corruption, and I retained no strength.
 
@@ -607,7 +607,7 @@
 
 11. He said to me, Daniel, you man greatly beloved, understand the words that I speak to you, and stand upright; for am I now sent to you. When he had spoken this word to me, I stood trembling.
 
-12. Then said he to me, Don`t be afraid, Daniel; for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard: and I have come for your words` sake.
+12. Then said he to me, Don't be afraid, Daniel; for from the first day that you set your heart to understand, and to humble yourself before your God, your words were heard: and I have come for your words' sake.
 
 13. But the prince of the kingdom of Persia withstood me twenty-one days; but, behold, Michael, one of the chief princes, came to help me: and I remained there with the kings of Persia.
 
@@ -621,7 +621,7 @@
 
 18. Then there touched me again one like the appearance of a man, and he strengthened me.
 
-19. He said, "Greatly beloved man, don`t be afraid: peace be to you, be strong, yes, be strong."     When he spoke to me, I was strengthened, and said, "Let my lord speak; for you have strengthened me."
+19. He said, "Greatly beloved man, don't be afraid: peace be to you, be strong, yes, be strong."     When he spoke to me, I was strengthened, and said, "Let my lord speak; for you have strengthened me."
 
 20. Then he said, "Do you know why I have come to you? Now I will return to fight with the prince of Persia. When I go forth, behold, the prince of Greece shall come.
 
@@ -676,7 +676,7 @@
 
 23. After the league made with him he shall work deceitfully; for he shall come up, and shall become strong, with a small people.
 
-24. In time of security shall he come even on the fattest places of the province; and he shall do that which his fathers have not done, nor his fathers` fathers; he shall scatter among them prey, and spoil, and substance: yes, he shall devise his devices against the strongholds, even for a time.
+24. In time of security shall he come even on the fattest places of the province; and he shall do that which his fathers have not done, nor his fathers' fathers; he shall scatter among them prey, and spoil, and substance: yes, he shall devise his devices against the strongholds, even for a time.
 
 25. He shall stir up his power and his courage against the king of the south with a great army; and the king of the south shall war in battle with an exceeding great and mighty army; but he shall not stand; for they shall devise devices against him.
 
@@ -704,7 +704,7 @@
 
 37. Neither shall he regard the gods of his fathers, nor the desire of women, nor regard any god; for he shall magnify himself above all.
 
-38. But in his place shall he honor the god of fortresses; and a god whom his fathers didn`t know shall he honor with gold, and silver, and with precious stones, and pleasant things.
+38. But in his place shall he honor the god of fortresses; and a god whom his fathers didn't know shall he honor with gold, and silver, and with precious stones, and pleasant things.
 
 39. He shall deal with the strongest fortresses by the help of a foreign god: whoever acknowledges [him] he will increase with glory; and he shall cause them to rule over many, and shall divide the land for a price.
 
@@ -737,7 +737,7 @@
 
 7. I heard the man clothed in linen, who was above the waters of the river, when he held up his right hand and his left hand to heaven, and swore by him who lives forever that it shall be for a time, times, and a half; and when they have made an end of breaking in pieces the power of the holy people, all these things shall be finished.
 
-8. I heard, but I didn`t understand: then said I, my lord, what shall be the issue of these things?
+8. I heard, but I didn't understand: then said I, my lord, what shall be the issue of these things?
 
 9. He said, Go your way, Daniel; for the words are shut up and sealed until the time of the end.
 

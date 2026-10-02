@@ -28,11 +28,11 @@
 
 13. in whom you also, having heard the word of the truth, the Good News of your salvation,--in whom, having also believed, you were sealed with the Holy Spirit of promise,
 
-14. who is a pledge of our inheritance, to the redemption of God`s own possession, to the praise of his glory.
+14. who is a pledge of our inheritance, to the redemption of God's own possession, to the praise of his glory.
 
 15. For this cause I also, having heard of the faith in the Lord Jesus which is among you, and the love which you have toward all the saints,
 
-16. don`t cease to give thanks for you, making mention of you in my prayers,
+16. don't cease to give thanks for you, making mention of you in my prayers,
 
 17. that the God of our Lord Jesus Christ, the Father of glory, may give to you a spirit of wisdom and revelation in the knowledge of him;
 
@@ -134,7 +134,7 @@
 
 18. may be strengthened to comprehend with all the saints what is the breadth and length and height and depth,
 
-19. and to know Christ`s love which surpasses knowledge, that you may be filled with all the fullness of God.
+19. and to know Christ's love which surpasses knowledge, that you may be filled with all the fullness of God.
 
 20. Now to him who is able to do exceedingly abundantly above all that we ask or think, according to the power that works in us,
 
@@ -193,7 +193,7 @@
 
 25. Therefore, putting away falsehood, speak truth each one with his neighbor. For we are members of one another.
 
-26. "Be angry, and don`t sin." Don`t let the sun go down on your wrath,
+26. "Be angry, and don't sin." Don't let the sun go down on your wrath,
 
 27. neither give place to the devil.
 
@@ -201,7 +201,7 @@
 
 29. Let no corrupt speech proceed out of your mouth, but such as is good for building up as the need may be, that it may give grace to those who hear.
 
-30. Don`t grieve the Holy Spirit of God, in whom you were sealed for the day of redemption.
+30. Don't grieve the Holy Spirit of God, in whom you were sealed for the day of redemption.
 
 31. Let all bitterness, wrath, anger, outcry, and slander, be put away from you, with all malice.
 
@@ -222,7 +222,7 @@
 
 6. Let no one deceive you with empty words. For because of these things, the wrath of God comes on the children of disobedience.
 
-7. Therefore don`t be partakers with them.
+7. Therefore don't be partakers with them.
 
 8. For you were once darkness, but are now light in the Lord. Walk as children of light,
 
@@ -242,9 +242,9 @@
 
 16. redeeming the time, because the days are evil.
 
-17. Therefore don`t be foolish, but understand what the will of the Lord is.
+17. Therefore don't be foolish, but understand what the will of the Lord is.
 
-18. Don`t be drunken with wine, in which is dissipation, but be filled with the Spirit,
+18. Don't be drunken with wine, in which is dissipation, but be filled with the Spirit,
 
 19. speaking to one another in psalms, hymns, and spiritual songs; singing, and making melody in your heart to the Lord;
 
@@ -285,7 +285,7 @@
 
 3. "that it may be well with you, and you may live long on the earth."
 
-4. You fathers, don`t provoke your children to wrath, but nurture them in the discipline and instruction of the Lord.
+4. You fathers, don't provoke your children to wrath, but nurture them in the discipline and instruction of the Lord.
 
 5. Servants, be obedient to those who according to the flesh are your masters, with fear and trembling, in singleness of your heart, as to Christ;
 
@@ -301,7 +301,7 @@
 
 11. Put on the whole armor of God, that you may be able to stand against the wiles of the devil.
 
-12. For our wrestling is not against flesh and blood, but against the principalities, against the powers, against the world`s rulers of the darkness of this age, and against the spiritual forces of wickedness in the heavenly places.
+12. For our wrestling is not against flesh and blood, but against the principalities, against the powers, against the world's rulers of the darkness of this age, and against the spiritual forces of wickedness in the heavenly places.
 
 13. Therefore, put on the whole armor of God, that you may be able to withstand in the evil day, and, having done all, to stand.
 

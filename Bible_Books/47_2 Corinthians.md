@@ -16,7 +16,7 @@
 
 7. Our hope for you is steadfast, knowing that, since you are partakers of the sufferings, so also are you of the comfort.
 
-8. For we don`t desire to have you uninformed, brothers, concerning our affliction which happened to us in Asia, that we were weighed down exceedingly, beyond our power, so much that we despaired even of life.
+8. For we don't desire to have you uninformed, brothers, concerning our affliction which happened to us in Asia, that we were weighed down exceedingly, beyond our power, so much that we despaired even of life.
 
 9. Yes, we ourselves have had the sentence of death within ourselves, that we should not trust in ourselves, but in God who raises the dead,
 
@@ -46,7 +46,7 @@
 
 22. who also sealed us, and gave us the down payment of the Spirit in our hearts.
 
-23. But I call God for a witness to my soul, that I didn`t come to Corinth to spare you.
+23. But I call God for a witness to my soul, that I didn't come to Corinth to spare you.
 
 24. Not that we have lordship over your faith, but are fellow workers with you for your joy. For you stand firm in faith.
 
@@ -57,7 +57,7 @@
 
 2. For if I make you sorry, then who will make me glad but he who is made sorry by me?
 
-3. And I wrote this very thing to you, so that, when I came, I wouldn`t have sorrow from them of whom I ought to rejoice; having confidence in you all, that my joy would be shared by all of you.
+3. And I wrote this very thing to you, so that, when I came, I wouldn't have sorrow from them of whom I ought to rejoice; having confidence in you all, that my joy would be shared by all of you.
 
 4. For out of much affliction and anguish of heart I wrote to you with many tears, not that you should be made sorry, but that you might know the love that I have so abundantly for you.
 
@@ -77,7 +77,7 @@
 
 12. Now when I came to Troas for the Good News of Christ, and when a door was opened to me in the Lord,
 
-13. I had no relief for my spirit, because I didn`t find Titus, my brother, but taking my leave of them, I went out into Macedonia.
+13. I had no relief for my spirit, because I didn't find Titus, my brother, but taking my leave of them, I went out into Macedonia.
 
 14. Now thanks be to God, who always leads us in triumph in Christ, and reveals through us the sweet aroma of his knowledge in every place.
 
@@ -104,7 +104,7 @@
 
 7. But if the service of death, written engraved on stones, came with glory, so that the children of Israel could not look steadfastly on the face of Moses for the glory of his face; which was passing away:
 
-8. won`t service of the Spirit be with much more glory?
+8. won't service of the Spirit be with much more glory?
 
 9. For if the service of condemnation has glory, the service of righteousness exceeds much more in glory.
 
@@ -114,7 +114,7 @@
 
 12. Having therefore such a hope, we use great boldness of speech,
 
-13. and not as Moses, who put a veil on his face, that the children of Israel wouldn`t look steadfastly on the end of that which was passing away.
+13. and not as Moses, who put a veil on his face, that the children of Israel wouldn't look steadfastly on the end of that which was passing away.
 
 14. But their minds were hardened, for until this very day at the reading of the old covenant the same veil remains, because in Christ it passes away.
 
@@ -129,15 +129,15 @@
 
 ## Chapter 4
 
-1. Therefore seeing we have this ministry, even as we obtained mercy, we don`t faint.
+1. Therefore seeing we have this ministry, even as we obtained mercy, we don't faint.
 
-2. But we have renounced the hidden things of shame, not walking in craftiness, nor handling the word of God deceitfully; but by the manifestation of the truth commending ourselves to every man`s conscience in the sight of God.
+2. But we have renounced the hidden things of shame, not walking in craftiness, nor handling the word of God deceitfully; but by the manifestation of the truth commending ourselves to every man's conscience in the sight of God.
 
 3. Even if our Good News is veiled, it is veiled in those who perish;
 
 4. in whom the god of this world has blinded the minds of the unbelieving, that the light of the Good News of the glory of Christ, who is the image of God, should not dawn on them.
 
-5. For we don`t preach ourselves, but Christ Jesus as Lord, and ourselves as your servants for Jesus` sake;
+5. For we don't preach ourselves, but Christ Jesus as Lord, and ourselves as your servants for Jesus' sake;
 
 6. seeing it is God who said, "Light will shine out of darkness," who has shone in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.
 
@@ -149,7 +149,7 @@
 
 10. always carrying in the body the putting to death of the Lord Jesus, that the life of Jesus may also be revealed in our body.
 
-11. For we who live are always delivered to death for Jesus` sake, that the life also of Jesus may be revealed in our mortal flesh.
+11. For we who live are always delivered to death for Jesus' sake, that the life also of Jesus may be revealed in our mortal flesh.
 
 12. So then death works in us, but life in you.
 
@@ -159,11 +159,11 @@
 
 15. For all things are for your sakes, that the grace, being multiplied through the many, may cause the thanksgiving to abound to the glory of God.
 
-16. Therefore we don`t faint, but though our outward man is decaying, yet our inward man is renewed day by day.
+16. Therefore we don't faint, but though our outward man is decaying, yet our inward man is renewed day by day.
 
 17. For our light affliction, which is for the moment, works for us more and more exceedingly an eternal weight of glory;
 
-18. while we don`t look at the things which are seen, but at the things which are not seen. For the things which are seen are temporal, but the things which are not seen are eternal.
+18. while we don't look at the things which are seen, but at the things which are not seen. For the things which are seen are temporal, but the things which are not seen are eternal.
 
 
 ## Chapter 5
@@ -239,15 +239,15 @@
 
 13. Now in return, I speak as to my children, you also be open wide.
 
-14. Don`t be unequally yoked with unbelievers, for what fellowship have righteousness and iniquity? Or what fellowship has light with darkness?
+14. Don't be unequally yoked with unbelievers, for what fellowship have righteousness and iniquity? Or what fellowship has light with darkness?
 
 15. What agreement has Christ with Belial? Or what portion has a believer with an unbeliever?
 
 16. What agreement has a temple of God with idols? For you are a temple of the living God. Even as God said, "I will dwell in them, and walk in them; and I will be their God, and they will be my people."
 
-17. Therefore, "`Come out from among them,    and be separate,` says the Lord. `Touch no unclean thing.    I will receive you.
+17. Therefore, "'Come out from among them,    and be separate,' says the Lord. 'Touch no unclean thing.    I will receive you.
 
-18. I will be to you a Father.    You will be to me sons and daughters,`     says the Lord Almighty."
+18. I will be to you a Father.    You will be to me sons and daughters,'     says the Lord Almighty."
 
 
 ## Chapter 7
@@ -309,7 +309,7 @@
 
 11. But now complete the doing also, that as there was the readiness to be willing, so there may be the completion also out of your ability.
 
-12. For if the readiness is there, it is acceptable according to what you have, not according to what you don`t have.
+12. For if the readiness is there, it is acceptable according to what you have, not according to what you don't have.
 
 13. For this is not that others may be eased and you distressed,
 
@@ -344,7 +344,7 @@
 
 3. But I have sent the brothers that our boasting on your behalf may not be in vain in this respect, that, just as I said, you may be prepared,
 
-4. so that I won`t by any means, if there come with me any of Macedonia and find you unprepared, we (to say nothing of you) should be disappointed in this confident boasting.
+4. so that I won't by any means, if there come with me any of Macedonia and find you unprepared, we (to say nothing of you) should be disappointed in this confident boasting.
 
 5. I thought it necessary therefore to entreat the brothers that they would go before to you, and arrange ahead of time the generous gift that you promised before, that the same might be ready as a matter of generosity, and not of greediness.
 
@@ -375,7 +375,7 @@
 
 2. Yes, I beg you that I may not, when present, show courage with the confidence with which I intend to be bold against some, who consider us to be walking according to the flesh.
 
-3. For though we walk in the flesh, we don`t wage war according to the flesh;
+3. For though we walk in the flesh, we don't wage war according to the flesh;
 
 4. for the weapons of our warfare are not of the flesh, but mighty before God to the throwing down of strongholds,
 
@@ -383,7 +383,7 @@
 
 6. and being in readiness to avenge all disobedience, when your obedience will be made full.
 
-7. Do you look at things only as they appear in front of your face? If anyone trusts in himself that he is Christ`s, let him consider this again with himself, that, even as he is Christ`s, so also we are Christ`s.
+7. Do you look at things only as they appear in front of your face? If anyone trusts in himself that he is Christ's, let him consider this again with himself, that, even as he is Christ's, so also we are Christ's.
 
 8. For though I should boast somewhat abundantly concerning our authority, (which the Lord gave for building you up, and not for casting you down) I will not be disappointed,
 
@@ -397,15 +397,15 @@
 
 13. But we will not boast beyond proper limits, but within the boundaries with which God appointed to us, which reach even to you.
 
-14. For we don`t stretch ourselves too much, as though we didn`t reach to you. For we came even as far as to you with the Good News of Christ,
+14. For we don't stretch ourselves too much, as though we didn't reach to you. For we came even as far as to you with the Good News of Christ,
 
-15. not boasting beyond proper limits in other men`s labors, but having hope that as your faith grows, we will be abundantly enlarged by you in our sphere of influence,
+15. not boasting beyond proper limits in other men's labors, but having hope that as your faith grows, we will be abundantly enlarged by you in our sphere of influence,
 
 16. so as to preach the Good News even to the parts beyond you, not to boast in what someone else has already done.
 
 17. But "he who boasts, let him boast in the Lord."
 
-18. For it isn`t he who commends himself who is approved, but whom the Lord commends.
+18. For it isn't he who commends himself who is approved, but whom the Lord commends.
 
 
 ## Chapter 11
@@ -422,19 +422,19 @@
 
 6. But though I am unskilled in speech, yet I am not unskilled in knowledge. No, in every way we have been revealed to you in all things.
 
-7. Or did I commit a sin in humbling myself that you might be exalted, because I preached to you God`s Good News free of charge?
+7. Or did I commit a sin in humbling myself that you might be exalted, because I preached to you God's Good News free of charge?
 
 8. I robbed other assemblies, taking wages from them that I might serve you.
 
-9. When I was present with you and was in need, I wasn`t a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I will continue to do so.
+9. When I was present with you and was in need, I wasn't a burden on anyone, for the brothers, when they came from Macedonia, supplied the measure of my need. In everything I kept myself from being burdensome to you, and I will continue to do so.
 
 10. As the truth of Christ is in me, no one will stop me from this boasting in the regions of Achaia.
 
-11. Why? Because I don`t love you? God knows.
+11. Why? Because I don't love you? God knows.
 
 12. But what I do, that I will do, that I may cut off occasion from them that desire an occasion, that in which they boast, they may be found even as we.
 
-13. For such men are false apostles, deceitful workers, masquerading as Christ`s apostles.
+13. For such men are false apostles, deceitful workers, masquerading as Christ's apostles.
 
 14. And no wonder, for even Satan masquerades as an angel of light.
 
@@ -442,7 +442,7 @@
 
 16. I say again, let no one think me foolish. But if so, yet receive me as foolish, that I also may boast a little.
 
-17. That which I speak, I don`t speak according to the Lord, but as in foolishness, in this confidence of boasting.
+17. That which I speak, I don't speak according to the Lord, but as in foolishness, in this confidence of boasting.
 
 18. Seeing that many boast after the flesh, I will also boast.
 
@@ -466,11 +466,11 @@
 
 28. Besides those things that are outside, there is that which presses on me daily, anxiety for all the assemblies.
 
-29. Who is weak, and I am not weak? Who is caused to stumble, and I don`t burn with indignation?
+29. Who is weak, and I am not weak? Who is caused to stumble, and I don't burn with indignation?
 
 30. If I must boast, I will boast of the things that concern my weakness.
 
-31. The God and Father of the Lord Jesus Christ, he who is blessed forevermore, knows that I don`t lie.
+31. The God and Father of the Lord Jesus Christ, he who is blessed forevermore, knows that I don't lie.
 
 32. In Damascus the governor under King Aretas guarded the city of the Damascenes desiring to arrest me.
 
@@ -481,9 +481,9 @@
 
 1. It is doubtless not profitable for me to boast. For I will come to visions and revelations of the Lord.
 
-2. I know a man in Christ, fourteen years ago (whether in the body, I don`t know, or whether out of the body, I don`t know; God knows), such a one caught up into the third heaven.
+2. I know a man in Christ, fourteen years ago (whether in the body, I don't know, or whether out of the body, I don't know; God knows), such a one caught up into the third heaven.
 
-3. I know such a man (whether in the body, or outside of the body, I don`t know; God knows),
+3. I know such a man (whether in the body, or outside of the body, I don't know; God knows),
 
 4. how he was caught up into Paradise, and heard unspeakable words, which it is not lawful for a man to utter.
 
@@ -497,7 +497,7 @@
 
 9. He has said to me, "My grace is sufficient for you, for my power is made perfect in weakness." Most gladly therefore I will rather glory in my weaknesses, that the power of Christ may rest on me.
 
-10. Therefore I take pleasure in weaknesses, in injuries, in necessities, in persecutions, in distresses, for Christ`s sake. For when I am weak, then am I strong.
+10. Therefore I take pleasure in weaknesses, in injuries, in necessities, in persecutions, in distresses, for Christ's sake. For when I am weak, then am I strong.
 
 11. I have become foolish in boasting. You compelled me, for I ought to have been commended by you, for in nothing was I inferior to the very best apostles, though I am nothing.
 
@@ -513,11 +513,11 @@
 
 17. Did I take advantage of you by anyone of them whom I have sent to you?
 
-18. I exhorted Titus, and I sent the brother with him. Did Titus take any advantage of you? Didn`t we walk in the same spirit? Didn`t we walk in the same steps?
+18. I exhorted Titus, and I sent the brother with him. Did Titus take any advantage of you? Didn't we walk in the same spirit? Didn't we walk in the same steps?
 
 19. Again, do you think that we are excusing ourselves to you? In the sight of God we speak in Christ. But all things, beloved, are for your edifying.
 
-20. For I am afraid that by any means, when I come, I might find you not the way I want to, and that I might be found by you as you don`t desire; that by any means there would be strife, jealousy, outbursts of anger, factions, slander, whisperings, proud thoughts, riots;
+20. For I am afraid that by any means, when I come, I might find you not the way I want to, and that I might be found by you as you don't desire; that by any means there would be strife, jealousy, outbursts of anger, factions, slander, whisperings, proud thoughts, riots;
 
 21. that again when I come my God would humble me before you, and I would mourn for many of those who have sinned before now, and not repented of the uncleanness and sexual immorality and lustfulness which they committed.
 
@@ -532,9 +532,9 @@
 
 4. For he was crucified through weakness, yet he lives through the power of God. For we also are weak in him, but we will live with him through the power of God toward you.
 
-5. Test your own selves, whether you are in the faith. Test your own selves. Or don`t you know as to your own selves, that Jesus Christ is in you?--unless indeed you are disqualified.
+5. Test your own selves, whether you are in the faith. Test your own selves. Or don't you know as to your own selves, that Jesus Christ is in you?--unless indeed you are disqualified.
 
-6. But I hope that you will know that we aren`t disqualified.
+6. But I hope that you will know that we aren't disqualified.
 
 7. Now I pray to God that you do no evil; not that we may appear approved, but that you may do that which is honorable, though we are as reprobate.
 

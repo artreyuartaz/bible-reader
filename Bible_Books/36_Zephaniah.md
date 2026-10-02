@@ -12,13 +12,13 @@
 
 5. those who worship the army of the sky on the housetops, those who worship and swear by Yahweh and also swear by Malcam,
 
-6. those who have turned back from following Yahweh, and those who haven`t sought Yahweh nor inquired after him.
+6. those who have turned back from following Yahweh, and those who haven't sought Yahweh nor inquired after him.
 
 7. Be silent at the presence of the Lord Yahweh, for the day of Yahweh is at hand. For Yahweh has prepared a sacrifice. He has consecrated his guests.
 
-8. It will happen in the day of Yahweh`s sacrifice, that I will punish the princes, the king`s sons, and all those who are clothed with foreign clothing.
+8. It will happen in the day of Yahweh's sacrifice, that I will punish the princes, the king's sons, and all those who are clothed with foreign clothing.
 
-9. In that day, I will punish all those who leap over the threshold, who fill their master`s house with violence and deceit.
+9. In that day, I will punish all those who leap over the threshold, who fill their master's house with violence and deceit.
 
 10. In that day, says Yahweh, there will be the noise of a cry from the fish gate, a wailing from the second quarter, and a great crashing from the hills.
 
@@ -26,7 +26,7 @@
 
 12. It will happen at that time, that I will search Jerusalem with lamps, and I will punish the men who are settled on their dregs, who say in their heart, "Yahweh will not do good, neither will he do evil."
 
-13. Their wealth will become a spoil, and their houses a desolation. Yes, they will build houses, but won`t inhabit them. They will plant vineyards, but won`t drink their wine.
+13. Their wealth will become a spoil, and their houses a desolation. Yes, they will build houses, but won't inhabit them. They will plant vineyards, but won't drink their wine.
 
 14. The great day of Yahweh is near. It is near, and hurries greatly, the voice of the day of Yahweh. The mighty man cries there bitterly.
 
@@ -36,16 +36,16 @@
 
 17. I will bring distress on men, that they will walk like blind men, because they have sinned against Yahweh, and their blood will be poured out like dust, and their flesh like dung.
 
-18. Neither their silver nor their gold will be able to deliver them in the day of Yahweh`s wrath, but the whole land will be devoured by the fire of his jealousy; for he will make an end, yes, a terrible end, of all those who dwell in the land.
+18. Neither their silver nor their gold will be able to deliver them in the day of Yahweh's wrath, but the whole land will be devoured by the fire of his jealousy; for he will make an end, yes, a terrible end, of all those who dwell in the land.
 
 
 ## Chapter 2
 
 1. Gather yourselves together, yes, gather together, you nation that has no shame,
 
-2. before the appointed time when the day passes as the chaff, before the fierce anger of Yahweh comes on you, before the day of Yahweh`s anger comes on you.
+2. before the appointed time when the day passes as the chaff, before the fierce anger of Yahweh comes on you, before the day of Yahweh's anger comes on you.
 
-3. Seek Yahweh, all you humble of the land, who have kept his ordinances. Seek righteousness. Seek humility. It may be that you will be hidden in the day of Yahweh`s anger.
+3. Seek Yahweh, all you humble of the land, who have kept his ordinances. Seek righteousness. Seek humility. It may be that you will be hidden in the day of Yahweh's anger.
 
 4. For Gaza will be forsaken, and Ashkelon a desolation. They will drive out Ashdod at noonday, and Ekron will be rooted up.
 
@@ -76,17 +76,17 @@
 
 1. Woe to her who is rebellious and polluted, the oppressing city!
 
-2. She didn`t obey the voice. She didn`t receive correction. She didn`t trust in Yahweh. She didn`t draw near to her God.
+2. She didn't obey the voice. She didn't receive correction. She didn't trust in Yahweh. She didn't draw near to her God.
 
 3. Her princes in the midst of her are roaring lions. Her judges are evening wolves. They leave nothing until the next day.
 
 4. Her prophets are arrogant and treacherous people. Her priests have profaned the sanctuary. They have done violence to the law.
 
-5. Yahweh, in the midst of her, is righteous. He will do no wrong. Every morning he brings his justice to light. He doesn`t fail, but the unjust know no shame.
+5. Yahweh, in the midst of her, is righteous. He will do no wrong. Every morning he brings his justice to light. He doesn't fail, but the unjust know no shame.
 
 6. I have cut off nations. Their battlements are desolate. I have made their streets waste, so that no one passes by. Their cities are destroyed, so that there is no man, so that there is no inhabitant.
 
-7. I said, "Just fear me. Receive correction, so that her dwelling won`t be cut off, according to all that I have appointed concerning her." But they rose early and corrupted all their doings.
+7. I said, "Just fear me. Receive correction, so that her dwelling won't be cut off, according to all that I have appointed concerning her." But they rose early and corrupted all their doings.
 
 8. "Therefore wait for me," says Yahweh, "until the day that I rise up to the prey, for my determination is to gather the nations, that I may assemble the kingdoms, to pour on them my indignation, even all my fierce anger, for all the earth will be devoured with the fire of my jealousy.
 
@@ -104,7 +104,7 @@
 
 15. Yahweh has taken away your judgments. He has thrown out your enemy. The King of Israel, Yahweh, is in the midst of you. You will not be afraid of evil any more.
 
-16. In that day, it will be said to Jerusalem, "Don`t be afraid, Zion. Don`t let your hands be weak."
+16. In that day, it will be said to Jerusalem, "Don't be afraid, Zion. Don't let your hands be weak."
 
 17. Yahweh, your God, is in the midst of you, a mighty one who will save. He will rejoice over you with joy. He will calm you in his love. He will rejoice over you with singing.
 

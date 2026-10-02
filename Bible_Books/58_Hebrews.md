@@ -28,7 +28,7 @@
 
 13. But which of the angels has he told at any time, "Sit at my right hand,    until I make your enemies the footstool of your feet?"
 
-14. Aren`t they all serving spirits, sent out to do service for the sake of those who will inherit salvation?
+14. Aren't they all serving spirits, sent out to do service for the sake of those who will inherit salvation?
 
 
 ## Chapter 2
@@ -41,13 +41,13 @@
 
 4. God also testifying with them, both by signs and wonders, by various works of power, and by gifts of the Holy Spirit, according to his own will?
 
-5. For he didn`t subject the world to come, of which we speak, to angels.
+5. For he didn't subject the world to come, of which we speak, to angels.
 
 6. But one has somewhere testified, saying, "What is man, that you think of him?    Or the son of man, that you care for him?
 
 7. You made him a little lower than the angels.    You crowned him with glory and honor.
 
-8. You have put all things in subjection under his feet."     For in that he subjected all things to him, he left nothing that is not subject to him. But now we don`t see all things subjected to him, yet.
+8. You have put all things in subjection under his feet."     For in that he subjected all things to him, he left nothing that is not subject to him. But now we don't see all things subjected to him, yet.
 
 9. But we see him who has been made a little lower than the angels, Jesus, because of the suffering of death crowned with glory and honor, that by the grace of God he should taste of death for everyone.
 
@@ -63,7 +63,7 @@
 
 15. and might deliver all of them who through fear of death were all their lifetime subject to bondage.
 
-16. For most certainly, he doesn`t give help to angels, but he gives help to the seed of Abraham.
+16. For most certainly, he doesn't give help to angels, but he gives help to the seed of Abraham.
 
 17. Therefore he was obligated in all things to be made like his brothers, that he might become a merciful and faithful high priest in things pertaining to God, to make atonement for the sins of the people.
 
@@ -86,13 +86,13 @@
 
 7. Therefore, even as the Holy Spirit says, "Today if you will hear his voice,
 
-8. don`t harden your hearts, as in the rebellion,    like as in the day of the trial in the wilderness,
+8. don't harden your hearts, as in the rebellion,    like as in the day of the trial in the wilderness,
 
 9. where your fathers tested me by proving me,    and saw my works for forty years.
 
-10. Therefore I was displeased with that generation,    and said, `They always err in their heart,    but they didn`t know my ways;`
+10. Therefore I was displeased with that generation,    and said, 'They always err in their heart,    but they didn't know my ways;'
 
-11. as I swore in my wrath,    `They will not enter into my rest.`"
+11. as I swore in my wrath,    'They will not enter into my rest.'"
 
 12. Beware, brothers, lest perhaps there be in any one of you an evil heart of unbelief, in falling away from the living God;
 
@@ -100,13 +100,13 @@
 
 14. For we have become partakers of Christ, if we hold fast the beginning of our confidence firm to the end:
 
-15. while it is said, "Today if you will hear his voice,    don`t harden your hearts, as in the rebellion."
+15. while it is said, "Today if you will hear his voice,    don't harden your hearts, as in the rebellion."
 
-16. For who, when they heard, rebelled? No, didn`t all those who came out of Egypt by Moses?
+16. For who, when they heard, rebelled? No, didn't all those who came out of Egypt by Moses?
 
-17. With whom was he displeased forty years? Wasn`t it with those who sinned, whose bodies fell in the wilderness?
+17. With whom was he displeased forty years? Wasn't it with those who sinned, whose bodies fell in the wilderness?
 
-18. To whom did he swear that they wouldn`t enter into his rest, but to those who were disobedient?
+18. To whom did he swear that they wouldn't enter into his rest, but to those who were disobedient?
 
 19. We see that they were not able to enter in because of unbelief.
 
@@ -115,7 +115,7 @@
 
 1. Let us fear therefore, lest perhaps anyone of you should seem to have come short of a promise of entering into his rest.
 
-2. For indeed we have had good news preached to us, even as they also did, but the word they heard didn`t profit them, because it wasn`t mixed with faith by those who heard.
+2. For indeed we have had good news preached to us, even as they also did, but the word they heard didn't profit them, because it wasn't mixed with faith by those who heard.
 
 3. For we who have believed do enter into that rest, even as he has said, "As I swore in my wrath, they will not enter into my rest;" although the works were finished from the foundation of the world.
 
@@ -125,7 +125,7 @@
 
 6. Seeing therefore it remains that some should enter therein, and they to whom the good news was before preached failed to enter in because of disobedience,
 
-7. he again defines a certain day, today, saying through David so long a time afterward (just as has been said), "Today if you will hear his voice,    don`t harden your hearts."
+7. he again defines a certain day, today, saying through David so long a time afterward (just as has been said), "Today if you will hear his voice,    don't harden your hearts."
 
 8. For if Joshua had given them rest, he would not have spoken afterward of another day.
 
@@ -141,7 +141,7 @@
 
 14. Having then a great high priest, who has passed through the heavens, Jesus, the Son of God, let us hold tightly to our confession.
 
-15. For we don`t have a high priest who can`t be touched with the feeling of our infirmities, but one who has been in all points tempted like we are, yet without sin.
+15. For we don't have a high priest who can't be touched with the feeling of our infirmities, but one who has been in all points tempted like we are, yet without sin.
 
 16. Let us therefore draw near with boldness to the throne of grace, that we may receive mercy, and may find grace for help in time of need.
 
@@ -156,7 +156,7 @@
 
 4. Nobody takes this honor on himself, but he is called by God, just like Aaron was.
 
-5. So also Christ didn`t glorify himself to be made a high priest, but it was he who said to him, "You are my Son.    Today I have become your father."
+5. So also Christ didn't glorify himself to be made a high priest, but it was he who said to him, "You are my Son.    Today I have become your father."
 
 6. As he says also in another place, "You are a priest forever,    after the order of Melchizedek."
 
@@ -201,7 +201,7 @@
 
 11. We desire that each one of you may show the same diligence to the fullness of hope even to the end,
 
-12. that you won`t be sluggish, but imitators of those who through faith and patience inherited the promises.
+12. that you won't be sluggish, but imitators of those who through faith and patience inherited the promises.
 
 13. For when God made a promise to Abraham, since he could swear by none greater, he swore by himself,
 
@@ -230,7 +230,7 @@
 
 4. Now consider how great this man was, to whom even Abraham, the patriarch, gave a tenth out of the best spoils.
 
-5. They indeed of the sons of Levi who receive the priest`s office have a commandment to take tithes of the people according to the law, that is, of their brothers, though these have come out of the body of Abraham,
+5. They indeed of the sons of Levi who receive the priest's office have a commandment to take tithes of the people according to the law, that is, of their brothers, though these have come out of the body of Abraham,
 
 6. but he whose genealogy is not counted from them has accepted tithes from Abraham, and has blessed him who has the promises.
 
@@ -262,7 +262,7 @@
 
 20. Inasmuch as he was not made priest without the taking of an oath
 
-21. (for they indeed have been made priests without an oath), but he with an oath by him that says of him, "The Lord swore and will not change his mind,    `You are a priest forever,    according to the order of Melchizedek.`"
+21. (for they indeed have been made priests without an oath), but he with an oath by him that says of him, "The Lord swore and will not change his mind,    'You are a priest forever,    according to the order of Melchizedek.'"
 
 22. By so much, Jesus has become the collateral of a better covenant.
 
@@ -274,7 +274,7 @@
 
 26. For such a high priest was fitting for us: holy, guiltless, undefiled, separated from sinners, and made higher than the heavens;
 
-27. who doesn`t need, like those high priests, to offer up sacrifices daily, first for his own sins, and then for the sins of the people. For he did this once for all, when he offered up himself.
+27. who doesn't need, like those high priests, to offer up sacrifices daily, first for his own sins, and then for the sins of the people. For he did this once for all, when he offered up himself.
 
 28. For the law appoints men as high priests who have weakness, but the word of the oath which came after the law appoints a Son forever who has been perfected.
 
@@ -297,11 +297,11 @@
 
 8. For finding fault with them, he said, "Behold, the days come," says the Lord,    "that I will make a new covenant with the house of Israel and with       the house of Judah;
 
-9. not according to the covenant that I made with their fathers,    in the day that I took them by the hand to lead them out of the land       of Egypt; for they didn`t continue in my covenant,    and I disregarded them," says the Lord.
+9. not according to the covenant that I made with their fathers,    in the day that I took them by the hand to lead them out of the land       of Egypt; for they didn't continue in my covenant,    and I disregarded them," says the Lord.
 
 10. "For this is the covenant that I will make with the house of       Israel.    After those days," says the Lord; "I will put my laws into their mind,    I will also write them on their heart. I will be their God,    and they will be my people.
 
-11. They will not teach every man his fellow citizen,    and every man his brother, saying, `Know the Lord,`    for all will know me,    from the least of them to the greatest of them.
+11. They will not teach every man his fellow citizen,    and every man his brother, saying, 'Know the Lord,'    for all will know me,    from the least of them to the greatest of them.
 
 12. For I will be merciful to their unrighteousness.    I will remember their sins and lawless deeds no more."
 
@@ -316,15 +316,15 @@
 
 3. After the second veil was the tabernacle which is called the Holy of Holies,
 
-4. having a golden altar of incense, and the ark of the covenant overlaid on all sides with gold, in which was a golden pot holding the manna, Aaron`s rod that budded, and the tablets of the covenant;
+4. having a golden altar of incense, and the ark of the covenant overlaid on all sides with gold, in which was a golden pot holding the manna, Aaron's rod that budded, and the tablets of the covenant;
 
-5. and above it cherubim of glory overshadowing the mercy seat, of which things we can`t speak now in detail.
+5. and above it cherubim of glory overshadowing the mercy seat, of which things we can't speak now in detail.
 
 6. Now these things having been thus prepared, the priests go in continually into the first tabernacle, accomplishing the services,
 
 7. but into the second the high priest alone, once in the year, not without blood, which he offers for himself, and for the errors of the people.
 
-8. The Holy Spirit is indicating this, that the way into the Holy Place wasn`t yet revealed while the first tabernacle was still standing;
+8. The Holy Spirit is indicating this, that the way into the Holy Place wasn't yet revealed while the first tabernacle was still standing;
 
 9. which is a symbol of the present age, where gifts and sacrifices are offered that are incapable, concerning the conscience, of making the worshipper perfect;
 
@@ -356,7 +356,7 @@
 
 23. It was necessary therefore that the copies of the things in the heavens should be cleansed with these; but the heavenly things themselves with better sacrifices than these.
 
-24. For Christ hasn`t entered into holy places made with hands, which are representations of the true, but into heaven itself, now to appear in the presence of God for us;
+24. For Christ hasn't entered into holy places made with hands, which are representations of the true, but into heaven itself, now to appear in the presence of God for us;
 
 25. nor yet that he should offer himself often, as the high priest enters into the holy place year by year with blood not his own,
 
@@ -371,19 +371,19 @@
 
 1. For the law, having a shadow of the good to come, not the very image of the things, can never with the same sacrifices year by year, which they offer continually, make perfect those who draw near.
 
-2. Or else wouldn`t they have ceased to be offered, because the worshippers, having been once cleansed, would have had no more consciousness of sins?
+2. Or else wouldn't they have ceased to be offered, because the worshippers, having been once cleansed, would have had no more consciousness of sins?
 
 3. But in those sacrifices there is yearly reminder of sins.
 
 4. For it is impossible that the blood of bulls and goats should take away sins.
 
-5. Therefore when he comes into the world, he says, "Sacrifice and offering you didn`t desire,    but you prepared a body for me;
+5. Therefore when he comes into the world, he says, "Sacrifice and offering you didn't desire,    but you prepared a body for me;
 
 6. You had no pleasure in whole burnt offerings and sacrifices for       sin.
 
-7. Then I said, `Behold, I have come (in the scroll of the book       it is written of me)    to do your will, O God.`"
+7. Then I said, 'Behold, I have come (in the scroll of the book       it is written of me)    to do your will, O God.'"
 
-8. Previously saying, "Sacrifices and offerings and whole burnt offerings and sacrifices for sin you didn`t desire, neither had pleasure in them" (those which are offered according to the law),
+8. Previously saying, "Sacrifices and offerings and whole burnt offerings and sacrifices for sin you didn't desire, neither had pleasure in them" (those which are offered according to the law),
 
 9. then he has said, "Behold, I have come to do your will." He takes away the first, that he may establish the second,
 
@@ -399,7 +399,7 @@
 
 15. The Holy Spirit also testifies to us, for after saying,
 
-16. "This is the covenant that I will make with them:    `After those days,` says the Lord, `I will put my laws on their heart,    I will also write them on their mind;`"     then he says,
+16. "This is the covenant that I will make with them:    'After those days,' says the Lord, 'I will put my laws on their heart,    I will also write them on their mind;'"     then he says,
 
 17. "I will remember their sins and their iniquities no more."
 
@@ -411,7 +411,7 @@
 
 21. and having a great priest over the house of God,
 
-22. let`s draw near with a true heart in fullness of faith, having our hearts sprinkled from an evil conscience, and having our body washed with pure water,
+22. let's draw near with a true heart in fullness of faith, having our hearts sprinkled from an evil conscience, and having our body washed with pure water,
 
 23. let us hold fast the confession of our hope without wavering; for he who promised is faithful.
 
@@ -423,7 +423,7 @@
 
 27. but a certain fearful expectation of judgment, and a fierceness of fire which will devour the adversaries.
 
-28. A man who disregards Moses` law dies without compassion on the word of two or three witnesses.
+28. A man who disregards Moses' law dies without compassion on the word of two or three witnesses.
 
 29. How much worse punishment, do you think, will he be judged worthy of, who has trodden under foot the Son of God, and has counted the blood of the covenant with which he was sanctified an unholy thing, and has insulted the Spirit of grace?
 
@@ -437,7 +437,7 @@
 
 34. For you both had compassion on me in my chains, and joyfully accepted the plundering of your possessions, knowing that you have for yourselves a better possession and an enduring one in the heavens.
 
-35. Therefore don`t throw away your boldness, which has a great reward.
+35. Therefore don't throw away your boldness, which has a great reward.
 
 36. For you need endurance so that, having done the will of God, you may receive the promise.
 
@@ -458,7 +458,7 @@
 
 4. By faith, Abel offered to God a more excellent sacrifice than Cain, through which he had testimony given to him that he was righteous, God testifying with respect to his gifts; and through it he, being dead, still speaks.
 
-5. By faith, Enoch was taken away, so that he wouldn`t see death, and he was not found, because God translated him. For he has had testimony given to him that before his translation he had been well pleasing to God.
+5. By faith, Enoch was taken away, so that he wouldn't see death, and he was not found, because God translated him. For he has had testimony given to him that before his translation he had been well pleasing to God.
 
 6. Without faith it is impossible to be well pleasing to him, for he who comes to God must believe that he exists, and that he is a rewarder of those who seek him.
 
@@ -494,11 +494,11 @@
 
 22. By faith, Joseph, when his end was near, made mention of the departure of the children of Israel; and gave instructions concerning his bones.
 
-23. By faith, Moses, when he was born, was hidden for three months by his parents, because they saw that he was a beautiful child, and they were not afraid of the king`s commandment.
+23. By faith, Moses, when he was born, was hidden for three months by his parents, because they saw that he was a beautiful child, and they were not afraid of the king's commandment.
 
-24. By faith, Moses, when he had grown up, refused to be called the son of Pharaoh`s daughter,
+24. By faith, Moses, when he had grown up, refused to be called the son of Pharaoh's daughter,
 
-25. choosing rather to share ill treatment with God`s people, than to enjoy the pleasures of sin for a time;
+25. choosing rather to share ill treatment with God's people, than to enjoy the pleasures of sin for a time;
 
 26. accounting the reproach of Christ greater riches than the treasures of Egypt; for he looked to the reward.
 
@@ -510,7 +510,7 @@
 
 30. By faith, the walls of Jericho fell down, after they had been encircled for seven days.
 
-31. By faith, Rahab the prostitute, didn`t perish with those who were disobedient, having received the spies in peace.
+31. By faith, Rahab the prostitute, didn't perish with those who were disobedient, having received the spies in peace.
 
 32. What more shall I say? For the time would fail me if I told of Gideon, Barak, Samson, Jephthah, David, Samuel, and the prophets;
 
@@ -526,7 +526,7 @@
 
 38. (of whom the world was not worthy), wandering in deserts, mountains, caves, and the holes of the earth.
 
-39. These all, having had testimony given to them through their faith, didn`t receive the promise,
+39. These all, having had testimony given to them through their faith, didn't receive the promise,
 
 40. God having provided some better thing concerning us, so that apart from us they should not be made perfect.
 
@@ -537,15 +537,15 @@
 
 2. looking to Jesus, the author and perfecter of faith, who for the joy that was set before him endured the cross, despising its shame, and has sat down at the right hand of the throne of God.
 
-3. For consider him who has endured such contradiction of sinners against himself, that you don`t grow weary, fainting in your souls.
+3. For consider him who has endured such contradiction of sinners against himself, that you don't grow weary, fainting in your souls.
 
 4. You have not yet resisted to blood, striving against sin;
 
-5. and you have forgotten the exhortation which reasons with you as with children, "My son, don`t take lightly the chastening of the Lord,    nor faint when you are reproved by him;
+5. and you have forgotten the exhortation which reasons with you as with children, "My son, don't take lightly the chastening of the Lord,    nor faint when you are reproved by him;
 
 6. For whom the Lord loves, he chastens,    and scourges every son whom he receives."
 
-7. It is for discipline that you endure. God deals with you as with children, for what son is there whom his father doesn`t discipline?
+7. It is for discipline that you endure. God deals with you as with children, for what son is there whom his father doesn't discipline?
 
 8. But if you are without discipline, of which all have been made partakers, then are you illegitimate, and not children.
 
@@ -581,13 +581,13 @@
 
 24. to Jesus, the mediator of a new covenant, and to the blood of sprinkling that speaks better than that of Abel.
 
-25. See that you don`t refuse him who speaks. For if they didn`t escape when they refused him who warned on the Earth, how much more will we not escape who turn away from him who warns from heaven,
+25. See that you don't refuse him who speaks. For if they didn't escape when they refused him who warned on the Earth, how much more will we not escape who turn away from him who warns from heaven,
 
 26. whose voice shook the earth then, but now he has promised, saying, "Yet once more I will shake not only the earth, but also the heavens."
 
 27. This phrase, "Yet once more," signifies the removing of those things that are shaken, as of things that have been made, that those things which are not shaken may remain.
 
-28. Therefore, receiving a Kingdom that can`t be shaken, let us have grace, through which we serve God acceptably, with reverence and awe,
+28. Therefore, receiving a Kingdom that can't be shaken, let us have grace, through which we serve God acceptably, with reverence and awe,
 
 29. for our God is a consuming fire.
 
@@ -596,7 +596,7 @@
 
 1. Let brotherly love continue.
 
-2. Don`t forget to show hospitality to strangers, for in doing so, some have entertained angels without knowing it.
+2. Don't forget to show hospitality to strangers, for in doing so, some have entertained angels without knowing it.
 
 3. Remember those who are in bonds, as bound with them; and those who are ill-treated, since you are also in the body.
 
@@ -610,7 +610,7 @@
 
 8. Jesus Christ is the same yesterday, today, and forever.
 
-9. Don`t be carried away by various and strange teachings, for it is good that the heart be established by grace, not by food, through which those who were so occupied were not benefited.
+9. Don't be carried away by various and strange teachings, for it is good that the heart be established by grace, not by food, through which those who were so occupied were not benefited.
 
 10. We have an altar from which those who serve the holy tabernacle have no right to eat.
 
@@ -620,11 +620,11 @@
 
 13. Let us therefore go out to him outside of the camp, bearing his reproach.
 
-14. For we don`t have here an enduring city, but we seek that which is to come.
+14. For we don't have here an enduring city, but we seek that which is to come.
 
 15. Through him, then, let us offer up a sacrifice of praise to God continually, that is, the fruit of lips which proclaim allegiance to his name.
 
-16. But don`t forget to be doing good and sharing, for with such sacrifices God is well pleased.
+16. But don't forget to be doing good and sharing, for with such sacrifices God is well pleased.
 
 17. Obey your leaders and submit to them, for they watch on behalf of your souls, as those who will give account, that they may do this with joy, and not with groaning, for that would be unprofitable for you.
 

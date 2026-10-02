@@ -12,7 +12,7 @@
 
 5. Then the mariners were afraid, and every man cried to his god. They threw the cargo that was in the ship into the sea to lighten the ship. But Jonah had gone down into the innermost parts of the ship, and he was laying down, and was fast asleep.
 
-6. So the shipmaster came to him, and said to him, "What do you mean, sleeper? Arise, call on your God! Maybe your God will notice us, so that we won`t perish."
+6. So the shipmaster came to him, and said to him, "What do you mean, sleeper? Arise, call on your God! Maybe your God will notice us, so that we won't perish."
 
 7. They all said to each other, "Come, let us cast lots, that we may know who is responsible for this evil that is on us." So they cast lots, and the lot fell on Jonah.
 
@@ -28,7 +28,7 @@
 
 13. Nevertheless the men rowed hard to get them back to the land; but they could not, for the sea grew more and more stormy against them.
 
-14. Therefore they cried to Yahweh, and said, "We beg you, Yahweh, we beg you, don`t let us die for this man`s life, and don`t lay on us innocent blood; for you, Yahweh, have done as it pleased you."
+14. Therefore they cried to Yahweh, and said, "We beg you, Yahweh, we beg you, don't let us die for this man's life, and don't lay on us innocent blood; for you, Yahweh, have done as it pleased you."
 
 15. So they took up Jonah, and threw him into the sea; and the sea ceased its raging.
 
@@ -39,13 +39,13 @@
 
 ## Chapter 2
 
-1. Then Jonah prayed to Yahweh, his God, out of the fish`s belly.
+1. Then Jonah prayed to Yahweh, his God, out of the fish's belly.
 
 2. He said, "I called because of my affliction to Yahweh.    He answered me. Out of the belly of Sheol I cried.    You heard my voice.
 
 3. For you threw me into the depths,    in the heart of the seas. The flood was all around me.    All your waves and your billows passed over me.
 
-4. I said, `I have been banished from your sight;    yet I will look again toward your holy temple.`
+4. I said, 'I have been banished from your sight;    yet I will look again toward your holy temple.'
 
 5. The waters surrounded me,    even to the soul. The deep was around me.    The weeds were wrapped around my head.
 
@@ -66,9 +66,9 @@
 
 2. "Arise, go to Nineveh, that great city, and preach to it the message that I give you."
 
-3. So Jonah arose, and went to Nineveh, according to the word of Yahweh. Now Nineveh was an exceedingly great city, three days` journey across.
+3. So Jonah arose, and went to Nineveh, according to the word of Yahweh. Now Nineveh was an exceedingly great city, three days' journey across.
 
-4. Jonah began to enter into the city a day`s journey, and he cried out, and said, "In forty days, Nineveh will be overthrown!"
+4. Jonah began to enter into the city a day's journey, and he cried out, and said, "In forty days, Nineveh will be overthrown!"
 
 5. The people of Nineveh believed God; and they proclaimed a fast, and put on sackcloth, from the greatest of them even to the least of them.
 
@@ -80,14 +80,14 @@
 
 9. Who knows whether God will not turn and relent, and turn away from his fierce anger, so that we might not perish?"
 
-10. God saw their works, that they turned from their evil way. God relented of the disaster which he said he would do to them, and he didn`t do it.
+10. God saw their works, that they turned from their evil way. God relented of the disaster which he said he would do to them, and he didn't do it.
 
 
 ## Chapter 4
 
 1. But it displeased Jonah exceedingly, and he was angry.
 
-2. He prayed to Yahweh, and said, "Please, Yahweh, wasn`t this what I said when I was still in my own country? Therefore I hurried to flee to Tarshish, for I knew that you are a gracious God, and merciful, slow to anger, and abundant in loving kindness, and you relent of doing harm.
+2. He prayed to Yahweh, and said, "Please, Yahweh, wasn't this what I said when I was still in my own country? Therefore I hurried to flee to Tarshish, for I knew that you are a gracious God, and merciful, slow to anger, and abundant in loving kindness, and you relent of doing harm.
 
 3. Therefore now, Yahweh, take, I beg you, my life from me; for it is better for me to die than to live."
 
@@ -99,11 +99,11 @@
 
 7. But God prepared a worm at dawn the next day, and it chewed on the vine, so that it withered.
 
-8. It happened, when the sun arose, that God prepared a sultry east wind; and the sun beat on Jonah`s head, so that he fainted, and requested for himself that he might die, and said, "It is better for me to die than to live."
+8. It happened, when the sun arose, that God prepared a sultry east wind; and the sun beat on Jonah's head, so that he fainted, and requested for himself that he might die, and said, "It is better for me to die than to live."
 
 9. God said to Jonah, "Is it right for you to be angry about the vine?"     He said, "I am right to be angry, even to death."
 
 10. Yahweh said, "You have been concerned for the vine, for which you have not labored, neither made it grow; which came up in a night, and perished in a night.
 
-11. Shouldn`t I be concerned for Nineveh, that great city, in which are more than one hundred twenty thousand persons who can`t discern between their right hand and their left hand; and also much livestock?"
+11. Shouldn't I be concerned for Nineveh, that great city, in which are more than one hundred twenty thousand persons who can't discern between their right hand and their left hand; and also much livestock?"
 
