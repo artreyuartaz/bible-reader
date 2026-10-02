@@ -1,0 +1,36 @@
+<!doctype html>
+<html lang="en">
+<head>
+<meta charset="utf-8">
+<meta name="viewport" content="width=device-width,initial-scale=1">
+<title>Bible Reader</title>
+<link rel="stylesheet" href="style.css">
+</head>
+<body>
+<aside id="side">
+  <div class="searchbox">
+    <input id="q" type="search" placeholder='Search all books…  ("exact phrase")' autocomplete="off" spellcheck="false">
+    <div class="opts">
+      <select id="scope"><option value="">All books</option><option value="cur">Current book</option><option value="ot">Old Testament</option><option value="nt">New Testament</option></select>
+      <label><input type="checkbox" id="whole"> Whole word</label>
+      <label><input type="checkbox" id="cs"> Match case</label>
+    </div>
+  </div>
+  <nav class="tabs"><button id="tabBooks" class="on">Books</button><button id="tabRes">Results <span id="resCount"></span></button></nav>
+  <div id="testaments" class="seg"><button data-t="ot" class="on">Old Testament</button><button data-t="nt">New Testament</button></div>
+  <div id="books" class="panel"></div>
+  <div id="results" class="panel" hidden></div>
+</aside>
+<main id="main">
+  <header id="bar">
+    <button id="menu" title="Toggle sidebar">☰</button>
+    <h1 id="title">Select a book</h1>
+    <select id="chap" title="Jump to chapter"></select>
+    <button id="prev" title="Previous book">‹</button><button id="next" title="Next book">›</button>
+    <button id="theme" title="Toggle theme">◐</button>
+  </header>
+  <article id="doc"><p class="hint">Choose a book from the index, or search with <kbd>Ctrl</kbd>+<kbd>K</kbd>.</p></article>
+</main>
+<script src="app.js"></script>
+</body>
+</html>
