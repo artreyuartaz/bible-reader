@@ -188,8 +188,13 @@ function readNotes() {
 }
 function writeFileAtomic(file, content) {
   try { if (fs.readFileSync(file, 'utf8') === content) return; } catch {}
-  fs.writeFileSync(file + '.tmp', content);
-  fs.renameSync(file + '.tmp', file);
+  try {
+    fs.writeFileSync(file + '.tmp', content);
+    fs.renameSync(file + '.tmp', file);
+  } catch (e) { // Windows can refuse the rename if an editor/antivirus has the file open; write in place instead
+    try { fs.unlinkSync(file + '.tmp'); } catch {}
+    fs.writeFileSync(file, content);
+  }
 }
 function writeNotes(list) {
   fs.mkdirSync(NOTES_DIR, { recursive: true });
@@ -222,7 +227,7 @@ function saveList(req, res, clean, write) {
       if (!list) return json(res, { error: 'invalid data' }, 400);
       write(list);
       json(res, { ok: true, count: list.length });
-    } catch (e) { console.error(e); json(res, { error: 'bad request' }, 400); }
+    } catch (e) { console.error(e); json(res, { error: String(e.message || e) }, 400); }
   });
 }
 

@@ -2,6 +2,22 @@ const $ = id => document.getElementById(id);
 const state = { books: [], cur: null, blocks: [], terms: [], hits: [], reqId: 0, bm: [], notes: [] };
 const esc = s => s.replace(/[&<>"]/g, c => ({ '&': '&amp;', '<': '&lt;', '>': '&gt;', '"': '&quot;' }[c]));
 const cache = new Map();
+let toastTimer;
+function toast(msg, err) {
+  const t = $('toast');
+  t.textContent = msg;
+  t.className = err ? 'err' : '';
+  t.hidden = false;
+  clearTimeout(toastTimer);
+  toastTimer = setTimeout(() => { t.hidden = true; }, err ? 12000 : 2000);
+}
+async function putList(url, list, what) {
+  try {
+    const r = await fetch(url, { method: 'PUT', headers: { 'Content-Type': 'application/json' }, body: JSON.stringify(list) });
+    if (!r.ok) throw new Error((await r.json().catch(() => ({}))).error || 'HTTP ' + r.status);
+    toast(what + ' saved');
+  } catch (e) { toast(`Could not save ${what}: ${e.message}. Restart the server and reload the page (Ctrl+F5).`, true); }
+}
 
 // ---------- Book index ----------
 async function init() {
@@ -269,11 +285,8 @@ async function loadNotes() {
   renderNotes();
 }
 async function saveNotes() {
-  try {
-    if (!state.notesOK) throw new Error('notes were not loaded; refusing to overwrite');
-    const r = await fetch('/api/notes', { method: 'PUT', headers: { 'Content-Type': 'application/json' }, body: JSON.stringify(state.notes) });
-    if (!r.ok) throw new Error(r.status);
-  } catch { $('notes').insertAdjacentHTML('afterbegin', '<div class="status err">Could not save notes to file.</div>'); }
+  if (!state.notesOK) return toast('Notes were not loaded, so saving is disabled to protect your files. Reload the page (Ctrl+F5).', true);
+  await putList('/api/notes', state.notes, 'Notes');
 }
 
 // wrap chars [from,to) of a block's text in <span class="nh"> (one span per text node; verse numbers skipped)
@@ -361,11 +374,8 @@ async function loadBookmarks() {
   renderBookmarks();
 }
 async function saveBookmarks() {
-  try {
-    if (!state.bmOK) throw new Error('bookmarks were not loaded; refusing to overwrite');
-    const r = await fetch('/api/bookmarks', { method: 'PUT', headers: { 'Content-Type': 'application/json' }, body: JSON.stringify(state.bm) });
-    if (!r.ok) throw new Error(r.status);
-  } catch { $('bookmarks').insertAdjacentHTML('afterbegin', '<div class="status err">Could not save bookmarks to file.</div>'); }
+  if (!state.bmOK) return toast('Bookmarks were not loaded, so saving is disabled to protect your files. Reload the page (Ctrl+F5).', true);
+  await putList('/api/bookmarks', state.bm, 'Bookmarks');
 }
 function renderBookmarks() {
   $('bmCount').textContent = state.bm.length ? `(${state.bm.length})` : '';
