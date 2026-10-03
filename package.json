@@ -1,0 +1,36 @@
+{
+  "name": "bible-reader",
+  "version": "1.0.0",
+  "description": "Local markdown Bible reader with search, dictionary, bookmarks and notes (web app + desktop app)",
+  "main": "desktop/main.js",
+  "private": true,
+  "scripts": {
+    "start": "node server.js",
+    "desktop": "electron .",
+    "dist": "electron-builder --win portable"
+  },
+  "build": {
+    "appId": "com.artreyuartaz.biblereader",
+    "productName": "Bible Reader",
+    "files": [
+      "desktop/**",
+      "core.js",
+      "public/**",
+      "Bible_Books/**",
+      "Dictionary/**",
+      "package.json",
+      "bible-app-leather.ico"
+    ],
+    "directories": {
+      "output": "dist"
+    },
+    "win": {
+      "target": "portable",
+      "icon": "bible-app-leather.ico"
+    }
+  },
+  "devDependencies": {
+    "electron": "^44.5.1",
+    "electron-builder": "^26.15.3"
+  }
+}

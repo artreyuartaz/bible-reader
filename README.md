@@ -51,6 +51,18 @@ $env:PORT=8080; node server.js
 
 The server listens on `127.0.0.1` only, so it is not reachable from other computers on your network.
 
+### Desktop app (no web server)
+
+The same reader also runs as a standalone desktop window (Electron). It serves the front end and API in-process through an `app://` protocol, so there is no web host and no port. It has the same features and uses the same `data/` folder as the web version when run from source.
+
+```
+npm install        # once (installs Electron; needs Node 18+)
+npm run desktop    # or double-click desktop.bat
+npm run dist       # optional: builds a portable Windows .exe in dist/
+```
+
+In the portable build, bookmarks and notes are stored in a `data/` folder next to the .exe.
+
 ## Using the reader
 
 | To do this | Do this |
@@ -99,12 +111,15 @@ The note files are the source of truth, so you can read or edit them in any text
 ## Project layout
 
 ```
-server.js         Node HTTP server (no dependencies): API + static files
+server.js         Web server wrapper (no dependencies) around core.js
+core.js           Shared back end: loading, search, dictionary, bookmarks, notes, API handler
+desktop/main.js   Electron desktop shell (app:// protocol, no web host)
 public/           Front end: index.html, style.css, app.js (vanilla JS, no build step)
 Bible_Books/      The 66 books as Markdown (NN_Name.md)
 Dictionary/       The Bible dictionary as Markdown, one file per letter (A.md … Z.md)
 data/             Your bookmarks and notes (created at runtime, git-ignored)
-start.bat / stop.bat   Windows helpers
+start.bat / stop.bat   Windows helpers for the web version
+desktop.bat       Launches the desktop app
 ```
 
 ### Source file formats
