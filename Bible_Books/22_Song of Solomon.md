@@ -1,259 +1,262 @@
-# Song of Solomon
 
-## Chapter 1
+# The Song of Solomon
 
-1. The Song of songs, which is Solomon's.  Beloved
+## Song of Solomon Chapter 1
 
-2. Let him kiss me with the kisses of his mouth;    for your love is better than wine.
+1 The song of songs, which is Solomon's.
 
-3. Your oils have a pleasing fragrance.    Your name is oil poured forth,    therefore the virgins love you.
+2 Let him kiss me with the kisses of his mouth: for thy love is better than wine.
 
-4. Take me away with you.    Let us hurry.    The king has brought me into his chambers.  Friends We will be glad and rejoice in you.    We will praise your love more than wine!  Beloved They are right to love you.
+3 Because of the savour of thy good ointments thy name is as ointment poured forth, therefore do the virgins love thee.
 
-5. I am dark, but lovely,    you daughters of Jerusalem,    like Kedar's tents,    like Solomon's curtains.
+4 Draw me, we will run after thee: the king hath brought me into his chambers: we will be glad and rejoice in thee, we will remember thy love more than wine: the upright love thee.
 
-6. Don't stare at me because I am dark,    because the sun has scorched me. My mother's sons were angry with me.    They made me keeper of the vineyards.    I haven't kept my own vineyard.
+5 I am black, but comely, O ye daughters of Jerusalem, as the tents of Kedar, as the curtains of Solomon.
 
-7. Tell me, you whom my soul loves,    where you graze your flock,    where you rest them at noon;    For why should I be as one who is veiled    beside the flocks of your companions?  Lover
+6 Look not upon me, because I am black, because the sun hath looked upon me: my mother's children were angry with me; they made me the keeper of the vineyards; but mine own vineyard have I not kept.
 
-8. If you don't know, most beautiful among women,    follow the tracks of the sheep.    Graze your young goats beside the shepherds' tents.
+7 Tell me, O thou whom my soul loveth, where thou feedest, where thou makest thy flock to rest at noon: for why should I be as one that turneth aside by the flocks of thy companions?
 
-9. I have compared you, my love,    to a steed in Pharaoh's chariots.
+8 If thou know not, O thou fairest among women, go thy way forth by the footsteps of the flock, and feed thy kids beside the shepherds' tents.
 
-10. Your cheeks are beautiful with earrings,    your neck with strings of jewels.
+9 I have compared thee, O my love, to a company of horses in Pharaoh's chariots.
 
-11. We will make you earrings of gold,    with studs of silver.  Beloved
+10 Thy cheeks are comely with rows of jewels, thy neck with chains of gold.
 
-12. While the king sat at his table,    my perfume spread its fragrance.
+11 We will make thee borders of gold with studs of silver.
 
-13. My beloved is to me a sachet of myrrh,    that lies between my breasts.
+12 While the king sitteth at his table, my spikenard sendeth forth the smell thereof.
 
-14. My beloved is to me a cluster of henna blossoms    from the vineyards of En Gedi.  Lover
+13 A bundle of myrrh is my well-beloved unto me; he shall lie all night betwixt my breasts.
 
-15. Behold, you are beautiful, my love.    Behold, you are beautiful.    Your eyes are doves.  Beloved
+14 My beloved is unto me as a cluster of camphire in the vineyards of Engedi.
 
-16. Behold, you are beautiful, my beloved, yes, pleasant;    and our couch is verdant.  Lover
+15 Behold, thou art fair, my love; behold, thou art fair; thou hast doves' eyes.
 
-17. The beams of our house are cedars.    Our rafters are firs. Beloved
+16 Behold, thou art fair, my beloved, yea, pleasant: also our bed is green.
 
+17 The beams of our house are cedar, and our rafters of fir.
 
-## Chapter 2
 
-1. I am a rose of Sharon,    a lily of the valleys.  Lover
+## Song of Solomon Chapter 2
 
-2. As a lily among thorns,    so is my love among the daughters.  Beloved
+1 I am the rose of Sharon, and the lily of the valleys.
 
-3. As the apple tree among the trees of the wood,    so is my beloved among the sons. I sat down under his shadow with great delight,    his fruit was sweet to my taste.
+2 As the lily among thorns, so is my love among the daughters.
 
-4. He brought me to the banquet hall.    His banner over me is love.
+3 As the apple tree among the trees of the wood, so is my beloved among the sons. I sat down under his shadow with great delight, and his fruit was sweet to my taste.
 
-5. Strengthen me with raisins,    refresh me with apples;    For I am faint with love.
+4 He brought me to the banqueting house, and his banner over me was love.
 
-6. His left hand is under my head.    His right hand embraces me.
+5 Stay me with flagons, comfort me with apples: for I am sick of love.
 
-7. I adjure you, daughters of Jerusalem,    by the roes, or by the hinds of the field,    that you not stir up, nor awaken love,    until it so desires.
+6 His left hand is under my head, and his right hand doth embrace me.
 
-8. The voice of my beloved!    Behold, he comes,    leaping on the mountains,    skipping on the hills.
+7 I charge you, O ye daughters of Jerusalem, by the roes, and by the hinds of the field, that ye stir not up, nor awake my love, till he please.
 
-9. My beloved is like a roe or a young hart.    Behold, he stands behind our wall! He looks in at the windows.    He glances through the lattice.
+8 The voice of my beloved! behold, he cometh leaping upon the mountains, skipping upon the hills.
 
-10. My beloved spoke, and said to me,    "Rise up, my love, my beautiful one, and come away.
+9 My beloved is like a roe or a young hart: behold, he standeth behind our wall, he looketh forth at the windows, shewing himself through the lattice.
 
-11. For, behold, the winter is past.    The rain is over and gone.
+10 My beloved spake, and said unto me, Rise up, my love, my fair one, and come away.
 
-12. The flowers appear on the earth.    The time of the singing has come,    and the voice of the turtledove is heard in our land.
+11 For, lo, the winter is past, the rain is over and gone;
 
-13. The fig tree ripens her green figs.    The vines are in blossom.    They give forth their fragrance. Arise, my love, my beautiful one,    and come away."  Lover
+12 The flowers appear on the earth; the time of the singing of birds is come, and the voice of the turtle is heard in our land;
 
-14. My dove in the clefts of the rock,    In the hiding places of the mountainside,    Let me see your face.    Let me hear your voice;    for your voice is sweet, and your face is lovely.
+13 The fig tree putteth forth her green figs, and the vines with the tender grape give a good smell. Arise, my love, my fair one, and come away.
 
-15. Catch for us the foxes,    the little foxes that spoil the vineyards;    for our vineyards are in blossom.  Beloved
+14 O my dove, that art in the clefts of the rock, in the secret places of the stairs, let me see thy countenance, let me hear thy voice; for sweet is thy voice, and thy countenance is comely.
 
-16. My beloved is mine, and I am his.    He browses among the lilies.
+15 Take us the foxes, the little foxes, that spoil the vines: for our vines have tender grapes.
 
-17. Until the day is cool, and the shadows flee away,    turn, my beloved,    and be like a roe or a young hart on the mountains of Bether.
+16 My beloved is mine, and I am his: he feedeth among the lilies.
 
+17 Until the day break, and the shadows flee away, turn, my beloved, and be thou like a roe or a young hart upon the mountains of Bether.
 
-## Chapter 3
 
-1. By night on my bed,    I sought him whom my soul loves.    I sought him, but I didn't find him.
+## Song of Solomon Chapter 3
 
-2. I will get up now, and go about the city;    in the streets and in the squares I will seek him whom my soul loves.    I sought him, but I didn't find him.
+1 By night on my bed I sought him whom my soul loveth: I sought him, but I found him not.
 
-3. The watchmen who go about the city found me;    "Have you seen him whom my soul loves?"
+2 I will rise now, and go about the city in the streets, and in the broad ways I will seek him whom my soul loveth: I sought him, but I found him not.
 
-4. I had scarcely passed from them,    when I found him whom my soul loves. I held him, and would not let him go,    until I had brought him into my mother's house,    into the chamber of her who conceived me.
+3 The watchmen that go about the city found me: to whom I said, Saw ye him whom my soul loveth?
 
-5. I adjure you, daughters of Jerusalem,    by the roes, or by the hinds of the field,    that you not stir up, nor awaken love,    until it so desires.
+4 It was but a little that I passed from them, but I found him whom my soul loveth: I held him, and would not let him go, until I had brought him into my mother's house, and into the chamber of her that conceived me.
 
-6. Who is this who comes up from the wilderness like pillars of       smoke,    perfumed with myrrh and frankincense,    with all spices of the merchant?
+5 I charge you, O ye daughters of Jerusalem, by the roes, and by the hinds of the field, that ye stir not up, nor awake my love, till he please.
 
-7. Behold, it is Solomon's carriage!    Sixty mighty men are around it,    of the mighty men of Israel.
+6 Who is this that cometh out of the wilderness like pillars of smoke, perfumed with myrrh and frankincense, with all powders of the merchant?
 
-8. They all handle the sword, and are expert in war.    Every man has his sword on his thigh,    because of fear in the night.
+7 Behold his bed, which is Solomon's; threescore valiant men are about it, of the valiant of Israel.
 
-9. King Solomon made himself a carriage    of the wood of Lebanon.
+8 They all hold swords, being expert in war: every man hath his sword upon his thigh because of fear in the night.
 
-10. He made its pillars of silver,    its bottom of gold, its seat of purple,    its midst being paved with love,    from the daughters of Jerusalem.
+9 King Solomon made himself a chariot of the wood of Lebanon.
 
-11. Go forth, you daughters of Zion, and see king Solomon,    with the crown with which his mother has crowned him,    in the day of his weddings,    in the day of the gladness of his heart.  Lover
+10 He made the pillars thereof of silver, the bottom thereof of gold, the covering of it of purple, the midst thereof being paved with love, for the daughters of Jerusalem.
 
+11 Go forth, O ye daughters of Zion, and behold king Solomon with the crown wherewith his mother crowned him in the day of his espousals, and in the day of the gladness of his heart.
 
-## Chapter 4
 
-1. Behold, you are beautiful, my love.    Behold, you are beautiful. Your eyes are doves behind your veil.    Your hair is as a flock of goats,    that descend from Mount Gilead.
+## Song of Solomon Chapter 4
 
-2. Your teeth are like a newly shorn flock,    which have come up from the washing,    where every one of them has twins.    None is bereaved among them.
+1 Behold, thou art fair, my love; behold, thou art fair; thou hast doves' eyes within thy locks: thy hair is as a flock of goats, that appear from mount Gilead.
 
-3. Your lips are like scarlet thread.    Your mouth is lovely.    Your temples are like a piece of a pomegranate behind your veil.
+2 Thy teeth are like a flock of sheep that are even shorn, which came up from the washing; whereof every one bear twins, and none is barren among them.
 
-4. Your neck is like David's tower built for an armory,    whereon a thousand shields hang,    all the shields of the mighty men.
+3 Thy lips are like a thread of scarlet, and thy speech is comely: thy temples are like a piece of a pomegranate within thy locks.
 
-5. Your two breasts are like two fawns    that are twins of a roe,    which feed among the lilies.
+4 Thy neck is like the tower of David builded for an armoury, whereon there hang a thousand bucklers, all shields of mighty men.
 
-6. Until the day is cool, and the shadows flee away,    I will go to the mountain of myrrh,    to the hill of frankincense.
+5 Thy two breasts are like two young roes that are twins, which feed among the lilies.
 
-7. You are all beautiful, my love.    There is no spot in you.
+6 Until the day break, and the shadows flee away, I will get me to the mountain of myrrh, and to the hill of frankincense.
 
-8. Come with me from Lebanon, my bride,    with me from Lebanon.    Look from the top of Amana,    from the top of Senir and Hermon,    from the lions' dens,    from the mountains of the leopards.
+7 Thou art all fair, my love; there is no spot in thee.
 
-9. You have ravished my heart, my sister, my bride.    You have ravished my heart with one of your eyes,    with one chain of your neck.
+8 Come with me from Lebanon, my spouse, with me from Lebanon: look from the top of Amana, from the top of Shenir and Hermon, from the lions' dens, from the mountains of the leopards.
 
-10. How beautiful is your love, my sister, my bride!    How much better is your love than wine!    The fragrance of your perfumes than all manner of spices!
+9 Thou hast ravished my heart, my sister, my spouse; thou hast ravished my heart with one of thine eyes, with one chain of thy neck.
 
-11. Your lips, my bride, drip like the honeycomb.    Honey and milk are under your tongue.    The smell of your garments is like the smell of Lebanon.
+10 How fair is thy love, my sister, my spouse! how much better is thy love than wine! and the smell of thine ointments than all spices!
 
-12. A locked up garden is my sister, my bride;    a locked up spring,    a sealed fountain.
+11 Thy lips, O my spouse, drop as the honeycomb: honey and milk are under thy tongue; and the smell of thy garments is like the smell of Lebanon.
 
-13. Your shoots are an orchard of pomegranates, with precious fruits:    henna with spikenard plants,
+12 A garden inclosed is my sister, my spouse; a spring shut up, a fountain sealed.
 
-14. spikenard and saffron,    calamus and cinnamon, with every kind of incense tree;    myrrh and aloes, with all the best spices,
+13 Thy plants are an orchard of pomegranates, with pleasant fruits; camphire, with spikenard,
 
-15. a fountain of gardens,    a well of living waters,    flowing streams from Lebanon.  Beloved
+14 Spikenard and saffron; calamus and cinnamon, with all trees of frankincense; myrrh and aloes, with all the chief spices:
 
-16. Awake, north wind; and come, you south!    Blow on my garden, that its spices may flow out. Let my beloved come into his garden,    and taste his precious fruits.  Lover
+15 A fountain of gardens, a well of living waters, and streams from Lebanon.
 
+16 Awake, O north wind; and come, thou south; blow upon my garden, that the spices thereof may flow out. Let my beloved come into his garden, and eat his pleasant fruits.
 
-## Chapter 5
 
-1. I have come into my garden, my sister, my bride.    I have gathered my myrrh with my spice;    I have eaten my honeycomb with my honey;    I have drunk my wine with my milk.  Friends Eat, friends!    Drink, yes, drink abundantly, beloved.  Beloved
+## Song of Solomon Chapter 5
 
-2. I was asleep, but my heart was awake.    It is the voice of my beloved who knocks:    "Open to me, my sister, my love, my dove, my undefiled;    for my head is filled with dew,    and my hair with the dampness of the night."
+1 I am come into my garden, my sister, my spouse: I have gathered my myrrh with my spice; I have eaten my honeycomb with my honey; I have drunk my wine with my milk: eat, O friends; drink, yea, drink abundantly, O beloved.
 
-3. I have taken off my robe. Indeed, must I put it on?    I have washed my feet. Indeed, must I soil them?
+2 I sleep, but my heart waketh: it is the voice of my beloved that knocketh, saying, Open to me, my sister, my love, my dove, my undefiled: for my head is filled with dew, and my locks with the drops of the night.
 
-4. My beloved thrust his hand in through the latch opening.    My heart pounded for him.
+3 I have put off my coat; how shall I put it on? I have washed my feet; how shall I defile them?
 
-5. I rose up to open for my beloved.    My hands dripped with myrrh,    my fingers with liquid myrrh,    on the handles of the lock.
+4 My beloved put in his hand by the hole of the door, and my bowels were moved for him.
 
-6. I opened to my beloved;    but my beloved left; and had gone away. My heart went out when he spoke.    I looked for him, but I didn't find him.    I called him, but he didn't answer.
+5 I rose up to open to my beloved; and my hands dropped with myrrh, and my fingers with sweet smelling myrrh, upon the handles of the lock.
 
-7. The watchmen who go about the city found me.    They beat me.    They bruised me.    The keepers of the walls took my cloak away from me.
+6 I opened to my beloved; but my beloved had withdrawn himself, and was gone: my soul failed when he spake: I sought him, but I could not find him; I called him, but he gave me no answer.
 
-8. I adjure you, daughters of Jerusalem,    If you find my beloved,    that you tell him that I am faint with love.  Friends
+7 The watchmen that went about the city found me, they smote me, they wounded me; the keepers of the walls took away my veil from me.
 
-9. How is your beloved better than another beloved,    you fairest among women? How is your beloved better than another beloved, that you do so adjure us?  Beloved
+8 I charge you, O daughters of Jerusalem, if ye find my beloved, that ye tell him, that I am sick of love.
 
-10. My beloved is white and ruddy.    The best among ten thousand.
+9 What is thy beloved more than another beloved, O thou fairest among women? what is thy beloved more than another beloved, that thou dost so charge us?
 
-11. His head is like the purest gold.    His hair is bushy, black as a raven.
+10 My beloved is white and ruddy, the chiefest among ten thousand.
 
-12. His eyes are like doves beside the water brooks,    washed with milk, mounted like jewels.
+11 His head is as the most fine gold, his locks are bushy, and black as a raven.
 
-13. His cheeks are like a bed of spices with towers of perfumes.    His lips are like lilies, dropping liquid myrrh.
+12 His eyes are as the eyes of doves by the rivers of waters, washed with milk, and fitly set.
 
-14. His hands are like rings of gold set with beryl.    His body is like ivory work overlaid with sapphires.
+13 His cheeks are as a bed of spices, as sweet flowers: his lips like lilies, dropping sweet smelling myrrh.
 
-15. His legs are like pillars of marble set on sockets of fine gold.    His appearance is like Lebanon, excellent as the cedars.
+14 His hands are as gold rings set with the beryl: his belly is as bright ivory overlaid with sapphires.
 
-16. His mouth is sweetness;    yes, he is altogether lovely. This is my beloved, and this is my friend,    daughters of Jerusalem.  Friends
+15 His legs are as pillars of marble, set upon sockets of fine gold: his countenance is as Lebanon, excellent as the cedars.
 
+16 His mouth is most sweet: yea, he is altogether lovely. This is my beloved, and this is my friend, O daughters of Jerusalem.
 
-## Chapter 6
 
-1. Where has your beloved gone, you fairest among women?    Where has your beloved turned, that we may seek him with you?  Beloved
+## Song of Solomon Chapter 6
 
-2. My beloved has gone down to his garden,    to the beds of spices,    to feed in the gardens, and to gather lilies.
+1 Whither is thy beloved gone, O thou fairest among women? whither is thy beloved turned aside? that we may seek him with thee.
 
-3. I am my beloved's, and my beloved is mine.    He browses among the lilies,
+2 My beloved is gone down into his garden, to the beds of spices, to feed in the gardens, and to gather lilies.
 
-4. You are beautiful, my love, as Tirzah,    lovely as Jerusalem,    awesome as an army with banners.
+3 I am my beloved's, and my beloved is mine: he feedeth among the lilies.
 
-5. Turn away your eyes from me,    for they have overcome me. Your hair is like a flock of goats,    that lie along the side of Gilead.
+4 Thou art beautiful, O my love, as Tirzah, comely as Jerusalem, terrible as an army with banners.
 
-6. Your teeth are like a flock of ewes,    which have come up from the washing;    of which every one has twins;    none is bereaved among them.
+5 Turn away thine eyes from me, for they have overcome me: thy hair is as a flock of goats that appear from Gilead.
 
-7. Your temples are like a piece of a pomegranate behind your veil.
+6 Thy teeth are as a flock of sheep which go up from the washing, whereof every one beareth twins, and there is not one barren among them.
 
-8. There are sixty queens, eighty concubines,    and virgins without number.
+7 As a piece of a pomegranate are thy temples within thy locks.
 
-9. My dove, my perfect one, is unique.    She is her mother's only daughter.    She is the favorite one of her who bore her. The daughters saw her, and called her blessed;    the queens and the concubines, and they praised her.
+8 There are threescore queens, and fourscore concubines, and virgins without number.
 
-10. Who is she who looks forth as the morning,    beautiful as the moon,    clear as the sun,    and awesome as an army with banners?
+9 My dove, my undefiled is but one; she is the only one of her mother, she is the choice one of her that bare her. The daughters saw her, and blessed her; yea, the queens and the concubines, and they praised her.
 
-11. I went down into the nut tree grove,    to see the green plants of the valley,    to see whether the vine budded,    and the pomegranates were in flower.
+10 Who is she that looketh forth as the morning, fair as the moon, clear as the sun, and terrible as an army with banners?
 
-12. Without realizing it,    my desire set me with my royal people's chariots.  Friends
+11 I went down into the garden of nuts to see the fruits of the valley, and to see whether the vine flourished and the pomegranates budded.
 
-13. Return, return, Shulammite!    Return, return, that we may gaze at you.  Lover Why do you desire to gaze at the Shulammite,    as at the dance of Mahanaim?
+12 Or ever I was aware, my soul made me like the chariots of Amminadib.
 
+13 Return, return, O Shulamite; return, return, that we may look upon thee. What will ye see in the Shulamite? As it were the company of two armies.
 
-## Chapter 7
 
-1. How beautiful are your feet in sandals, prince's daughter!    Your rounded thighs are like jewels,    the work of the hands of a skillful workman.
+## Song of Solomon Chapter 7
 
-2. Your body is like a round goblet,    no mixed wine is wanting. Your waist is like a heap of wheat,    set about with lilies.
+1 How beautiful are thy feet with shoes, O prince's daughter! the joints of thy thighs are like jewels, the work of the hands of a cunning workman.
 
-3. Your two breasts are like two fawns,    that are twins of a roe.
+2 Thy navel is like a round goblet, which wanteth not liquor: thy belly is like an heap of wheat set about with lilies.
 
-4. Your neck is like an ivory tower.    Your eyes are like the pools in Heshbon by the gate of Bathrabbim.    Your nose is like the tower of Lebanon which looks toward Damascus.
+3 Thy two breasts are like two young roes that are twins.
 
-5. Your head on you is like Carmel.    The hair of your head like purple.    The king is held captive in its tresses.
+4 Thy neck is as a tower of ivory; thine eyes like the fishpools in Heshbon, by the gate of Bathrabbim: thy nose is as the tower of Lebanon which looketh toward Damascus.
 
-6. How beautiful and how pleasant you are,    love, for delights!
+5 Thine head upon thee is like Carmel, and the hair of thine head like purple; the king is held in the galleries.
 
-7. This, your stature, is like a palm tree,    your breasts like its fruit.
+6 How fair and how pleasant art thou, O love, for delights!
 
-8. I said, "I will climb up into the palm tree.    I will take hold of its fruit." Let your breasts be like clusters of the vine,    the smell of your breath like apples,  Beloved
+7 This thy stature is like to a palm tree, and thy breasts to clusters of grapes.
 
-9. Your mouth like the best wine,    that goes down smoothly for my beloved,    gliding through the lips of those who are asleep.
+8 I said, I will go up to the palm tree, I will take hold of the boughs thereof: now also thy breasts shall be as clusters of the vine, and the smell of thy nose like apples;
 
-10. I am my beloved's.    His desire is toward me.
+9 And the roof of thy mouth like the best wine for my beloved, that goeth down sweetly, causing the lips of those that are asleep to speak.
 
-11. Come, my beloved, let us go forth into the field.    Let us lodge in the villages.
+10 I am my beloved's, and his desire is toward me.
 
-12. Let's go early up to the vineyards.    Let's see whether the vine has budded,    its blossom is open,    and the pomegranates are in flower.    There I will give you my love.
+11 Come, my beloved, let us go forth into the field; let us lodge in the villages.
 
-13. The mandrakes give forth fragrance.    At our doors are all kinds of precious fruits, new and old,    which I have stored up for you, my beloved.
+12 Let us get up early to the vineyards; let us see if the vine flourish, whether the tender grape appear, and the pomegranates bud forth: there will I give thee my loves.
 
+13 The mandrakes give a smell, and at our gates are all manner of pleasant fruits, new and old, which I have laid up for thee, O my beloved.
 
-## Chapter 8
 
-1. Oh that you were like my brother,    who sucked the breasts of my mother! If I found you outside, I would kiss you;    yes, and no one would despise me.
+## Song of Solomon Chapter 8
 
-2. I would lead you, bringing you into my mother's house,    who would instruct me. I would have you drink spiced wine,    of the juice of my pomegranate.
+1 O that thou wert as my brother, that sucked the breasts of my mother! when I should find thee without, I would kiss thee; yea, I should not be despised.
 
-3. His left hand would be under my head.    His right hand would embrace me.
+2 I would lead thee, and bring thee into my mother's house, who would instruct me: I would cause thee to drink of spiced wine of the juice of my pomegranate.
 
-4. I adjure you, daughters of Jerusalem,    that you not stir up, nor awaken love,    until it so desires.  Friends
+3 His left hand should be under my head, and his right hand should embrace me.
 
-5. Who is this who comes up from the wilderness,    leaning on her beloved?  Under the apple tree I aroused you.    There your mother conceived you.    There she was in labor and bore you.
+4 I charge you, O daughters of Jerusalem, that ye stir not up, nor awake my love, until he please.
 
-6. Set me as a seal on your heart,    as a seal on your arm;    for love is strong as death.    Jealousy is as cruel as Sheol.    Its flashes are flashes of fire,    a very flame of Yahweh.
+5 Who is this that cometh up from the wilderness, leaning upon her beloved? I raised thee up under the apple tree: there thy mother brought thee forth: there she brought thee forth that bare thee.
 
-7. Many waters can't quench love,    neither can floods drown it. If a man would give all the wealth of his house for love,    he would be utterly scorned.  Friends
+6 Set me as a seal upon thine heart, as a seal upon thine arm: for love is strong as death; jealousy is cruel as the grave: the coals thereof are coals of fire, which hath a most vehement flame.
 
-8. We have a little sister.    She has no breasts. What shall we do for our sister    in the day when she is to be spoken for?
+7 Many waters cannot quench love, neither can the floods drown it: if a man would give all the substance of his house for love, it would utterly be contemned.
 
-9. If she is a wall,    we will build on her a turret of silver. if she is a door,    we will enclose her with boards of cedar.  Beloved
+8 We have a little sister, and she hath no breasts: what shall we do for our sister in the day when she shall be spoken for?
 
-10. I am a wall, and my breasts like towers,    then I was in his eyes like one who found peace.
+9 If she be a wall, we will build upon her a palace of silver: and if she be a door, we will inclose her with boards of cedar.
 
-11. Solomon had a vineyard at Baal Hamon.    He leased out the vineyard to keepers.    Each was to bring a thousand shekels of silver for its fruit.
+10 I am a wall, and my breasts like towers: then was I in his eyes as one that found favour.
 
-12. My own vineyard is before me.    The thousand are for you, Solomon;    two hundred for those who tend its fruit.  Lover
+11 Solomon had a vineyard at Baalhamon; he let out the vineyard unto keepers; every one for the fruit thereof was to bring a thousand pieces of silver.
 
-13. You who dwell in the gardens, with friends in attendance,    let me hear your voice!  Beloved
+12 My vineyard, which is mine, is before me: thou, O Solomon, must have a thousand, and those that keep the fruit thereof two hundred.
 
-14. Come away, my beloved!    Be like a gazelle or a young stag on the mountains of spices!
+13 Thou that dwellest in the gardens, the companions hearken to thy voice: cause me to hear it.
 
+14 Make haste, my beloved, and be thou like to a roe or to a young hart upon the mountains of spices.
+
+
+## eof

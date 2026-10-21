@@ -1,54 +1,55 @@
+
 # Jude
 
-## Chapter 1
+1 Jude, the servant of Jesus Christ, and brother of James, to them that are sanctified by God the Father, and preserved in Jesus Christ, and called:
 
-1. Jude, a servant of Jesus Christ, and brother of James, to those who are called, sanctified by God the Father, and kept for Jesus Christ:
+2 Mercy unto you, and peace, and love, be multiplied.
 
-2. Mercy to you and peace and love be multiplied.
+3 Beloved, when I gave all diligence to write unto you of the common salvation, it was needful for me to write unto you, and exhort you that ye should earnestly contend for the faith which was once delivered unto the saints.
 
-3. Beloved, while I was very eager to write to you about our common salvation, I was constrained to write to you exhorting you to contend earnestly for the faith which was once for all delivered to the saints.
+4 For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ.
 
-4. For there are certain men who crept in secretly, even those who were long ago written about for this condemnation: ungodly men, turning the grace of our God into indecency, and denying our only Master, God, and Lord, Jesus Christ.
+5 I will therefore put you in remembrance, though ye once knew this, how that the Lord, having saved the people out of the land of Egypt, afterward destroyed them that believed not.
 
-5. Now I desire to remind you, though you already know this, that the Lord, having saved a people out of the land of Egypt, afterward destroyed those who didn't believe.
+6 And the angels which kept not their first estate, but left their own habitation, he hath reserved in everlasting chains under darkness unto the judgment of the great day.
 
-6. Angels who didn't keep their first domain, but deserted their own dwelling place, he has kept in everlasting bonds under darkness for the judgment of the great day.
+7 Even as Sodom and Gomorrha, and the cities about them in like manner, giving themselves over to fornication, and going after strange flesh, are set forth for an example, suffering the vengeance of eternal fire.
 
-7. Even as Sodom and Gomorrah, and the cities around them, having, in the same way as these, given themselves over to sexual immorality and gone after strange flesh, are set forth as an example, suffering the punishment of eternal fire.
+8 Likewise also these filthy dreamers defile the flesh, despise dominion, and speak evil of dignities.
 
-8. Yet in like manner these also in their dreaming defile the flesh, despise authority, and slander celestial beings.
+9 Yet Michael the archangel, when contending with the devil he disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke thee.
 
-9. But Michael, the archangel, when contending with the devil and arguing about the body of Moses, dared not bring against him an abusive condemnation, but said, "May the Lord rebuke you!"
+10 But these speak evil of those things which they know not: but what they know naturally, as brute beasts, in those things they corrupt themselves.
 
-10. But these speak evil of whatever things they don't know. What they understand naturally, like the creatures without reason, they are destroyed in these things.
+11 Woe unto them! for they have gone in the way of Cain, and ran greedily after the error of Balaam for reward, and perished in the gainsaying of Core.
 
-11. Woe to them! For they went in the way of Cain, and ran riotously in the error of Balaam for hire, and perished in Korah's rebellion.
+12 These are spots in your feasts of charity, when they feast with you, feeding themselves without fear: clouds they are without water, carried about of winds; trees whose fruit withereth, without fruit, twice dead, plucked up by the roots;
 
-12. These are hidden rocky reefs in your love feasts when they feast with you, shepherds who without fear feed themselves; clouds without water, carried along by winds; autumn leaves without fruit, twice dead, plucked up by the roots;
+13 Raging waves of the sea, foaming out their own shame; wandering stars, to whom is reserved the blackness of darkness for ever.
 
-13. wild waves of the sea, foaming out their own shame; wandering stars, for whom the blackness of darkness has been reserved forever.
+14 And Enoch also, the seventh from Adam, prophesied of these, saying, Behold, the Lord cometh with ten thousands of his saints,
 
-14. About these also Enoch, the seventh from Adam, prophesied, saying, "Behold, the Lord came with ten thousands of his holy ones,
+15 To execute judgment upon all, and to convince all that are ungodly among them of all their ungodly deeds which they have ungodly committed, and of all their hard speeches which ungodly sinners have spoken against him.
 
-15. to execute judgment on all, and to convict all the ungodly of all their works of ungodliness which they have done in an ungodly way, and of all the hard things which ungodly sinners have spoken against him."
+16 These are murmurers, complainers, walking after their own lusts; and their mouth speaketh great swelling words, having men's persons in admiration because of advantage.
 
-16. These are murmurers and complainers, walking after their lusts (and their mouth speaks proud things), showing respect of persons to gain advantage.
+17 But, beloved, remember ye the words which were spoken before of the apostles of our Lord Jesus Christ;
 
-17. But you, beloved, remember the words which have been spoken before by the apostles of our Lord Jesus Christ.
+18 How that they told you there should be mockers in the last time, who should walk after their own ungodly lusts.
 
-18. They said to you that "In the last time there will be mockers, walking after their own ungodly lusts."
+19 These be they who separate themselves, sensual, having not the Spirit.
 
-19. These are they who cause divisions, and are sensual, not having the Spirit.
+20 But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Ghost,
 
-20. But you, beloved, keep building up yourselves on your most holy faith, praying in the Holy Spirit.
+21 Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life.
 
-21. Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ to eternal life.
+22 And of some have compassion, making a difference:
 
-22. On some have compassion, making a distinction,
+23 And others save with fear, pulling them out of the fire; hating even the garment spotted by the flesh.
 
-23. and some save, snatching them out of the fire with fear, hating even the clothing stained by the flesh.
+24 Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy,
 
-24. Now to him who is able to keep them from stumbling, and to present you faultless before the presence of his glory in great joy,
+25 To the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen.
 
-25. to God our Savior, who alone is wise, be glory and majesty, dominion and power, both now and forever. Amen.
 
+## eof

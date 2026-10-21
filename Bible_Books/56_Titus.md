@@ -1,102 +1,105 @@
+
 # Titus
 
-## Chapter 1
+## Titus Chapter 1
 
-1. Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's chosen ones, and the knowledge of the truth which is according to godliness,
+1 Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's elect, and the acknowledging of the truth which is after godliness;
 
-2. in hope of eternal life, which God, who can't lie, promised before time began;
+2 In hope of eternal life, which God, that cannot lie, promised before the world began;
 
-3. but in his own time revealed his word in the message with which I was entrusted according to the commandment of God our Savior;
+3 But hath in due times manifested his word through preaching, which is committed unto me according to the commandment of God our Saviour;
 
-4. to Titus, my true child according to a common faith: Grace, mercy, and peace from God the Father and the Lord Jesus Christ our Savior.
+4 To Titus, mine own son after the common faith: Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Saviour.
 
-5. I left you in Crete for this reason, that you would set in order the things that were lacking, and appoint elders in every city, as I directed you;
+5 For this cause left I thee in Crete, that thou shouldest set in order the things that are wanting, and ordain elders in every city, as I had appointed thee:
 
-6. if anyone is blameless, the husband of one wife, having children who believe, who are not accused of loose or unruly behavior.
+6 If any be blameless, the husband of one wife, having faithful children not accused of riot or unruly.
 
-7. For the overseer must be blameless, as God's steward; not self-pleasing, not easily angered, not given to wine, not violent, not greedy for dishonest gain;
+7 For a bishop must be blameless, as the steward of God; not selfwilled, not soon angry, not given to wine, no striker, not given to filthy lucre;
 
-8. but given to hospitality, as a lover of good, sober minded, fair, holy, self-controlled;
+8 But a lover of hospitality, a lover of good men, sober, just, holy, temperate;
 
-9. holding to the faithful word which is according to the teaching, that he may be able to exhort in the sound doctrine, and to convict those who contradict him.
+9 Holding fast the faithful word as he hath been taught, that he may be able by sound doctrine both to exhort and to convince the gainsayers.
 
-10. For there are also many unruly men, vain talkers and deceivers, especially those of the circumcision,
+10 For there are many unruly and vain talkers and deceivers, specially they of the circumcision:
 
-11. whose mouths must be stopped; men who overthrow whole houses, teaching things which they ought not, for dishonest gain's sake.
+11 Whose mouths must be stopped, who subvert whole houses, teaching things which they ought not, for filthy lucre's sake.
 
-12. One of them, a prophet of their own, said, "Cretans are always liars, evil beasts, and idle gluttons."
+12 One of themselves, even a prophet of their own, said, the Cretians are alway liars, evil beasts, slow bellies.
 
-13. This testimony is true. For this cause, reprove them sharply, that they may be sound in the faith,
+13 This witness is true. Wherefore rebuke them sharply, that they may be sound in the faith;
 
-14. not paying attention to Jewish fables and commandments of men who turn away from the truth.
+14 Not giving heed to Jewish fables, and commandments of men, that turn from the truth.
 
-15. To the pure, all things are pure; but to those who are defiled and unbelieving, nothing is pure; but both their mind and their conscience are defiled.
+15 Unto the pure all things are pure: but unto them that are defiled and unbelieving is nothing pure; but even their mind and conscience is defiled.
 
-16. They profess that they know God, but by their works they deny him, being abominable, disobedient, and unfit for any good work.
-
-
-## Chapter 2
-
-1. But say the things which fit sound doctrine,
-
-2. that older men should be temperate, sensible, sober minded, sound in faith, in love, and in patience:
-
-3. and that older women likewise be reverent in behavior, not slanderers nor enslaved to much wine, teachers of that which is good;
-
-4. that they may train the young women to love their husbands, to love their children,
-
-5. to be sober minded, chaste, workers at home, kind, being in subjection to their own husbands, that God's word may not be blasphemed.
-
-6. Likewise, exhort the younger men to be sober minded;
-
-7. in all things showing yourself an example of good works; in your teaching showing integrity, seriousness, incorruptibility,
-
-8. and soundness of speech that can't be condemned; that he who opposes you may be ashamed, having no evil thing to say about us.
-
-9. Exhort servants to be in subjection to their own masters, and to be well-pleasing in all things; not contradicting;
-
-10. not stealing, but showing all good fidelity; that they may adorn the doctrine of God, our Savior, in all things.
-
-11. For the grace of God has appeared, bringing salvation to all men,
-
-12. instructing us to the intent that, denying ungodliness and worldly lusts, we would live soberly, righteously, and godly in this present world;
-
-13. looking for the blessed hope and appearing of the glory of our great God and Savior, Jesus Christ;
-
-14. who gave himself for us, that he might redeem us from all iniquity, and purify for himself a people for his own possession, zealous for good works.
-
-15. Say these things and exhort and reprove with all authority. Let no man despise you.
+16 They profess that they know God; but in works they deny him, being abominable, and disobedient, and unto every good work reprobate.
 
 
-## Chapter 3
+## Titus Chapter 2
 
-1. Remind them to be in subjection to rulers and to authorities, to be obedient, to be ready for every good work,
+1 But speak thou the things which become sound doctrine:
 
-2. to speak evil of no one, not to be contentious, to be gentle, showing all humility toward all men.
+2 That the aged men be sober, grave, temperate, sound in faith, in charity, in patience.
 
-3. For we were also once foolish, disobedient, deceived, serving various lusts and pleasures, living in malice and envy, hateful, and hating one another.
+3 The aged women likewise, that they be in behaviour as becometh holiness, not false accusers, not given to much wine, teachers of good things;
 
-4. But when the kindness of God our Savior and his love toward mankind appeared,
+4 That they may teach the young women to be sober, to love their husbands, to love their children,
 
-5. not by works of righteousness, which we did ourselves, but according to his mercy, he saved us, through the washing of regeneration and renewing by the Holy Spirit,
+5 To be discreet, chaste, keepers at home, good, obedient to their own husbands, that the word of God be not blasphemed.
 
-6. whom he poured out on us richly, through Jesus Christ our Savior;
+6 Young men likewise exhort to be sober minded.
 
-7. that, being justified by his grace, we might be made heirs according to the hope of eternal life.
+7 In all things shewing thyself a pattern of good works: in doctrine shewing uncorruptness, gravity, sincerity,
 
-8. This saying is faithful, and concerning these things I desire that you affirm confidently, so that those who have believed God may be careful to maintain good works. These things are good and profitable to men;
+8 Sound speech, that cannot be condemned; that he that is of the contrary part may be ashamed, having no evil thing to say of you.
 
-9. but shun foolish questionings, genealogies, strife, and disputes about the law; for they are unprofitable and vain.
+9 Exhort servants to be obedient unto their own masters, and to please them well in all things; not answering again;
 
-10. Avoid a factious man after a first and second warning;
+10 Not purloining, but shewing all good fidelity; that they may adorn the doctrine of God our Saviour in all things.
 
-11. knowing that such a one is perverted, and sins, being self-condemned.
+11 For the grace of God that bringeth salvation hath appeared to all men,
 
-12. When I send Artemas to you, or Tychicus, be diligent to come to me to Nicopolis, for I have determined to winter there.
+12 Teaching us that, denying ungodliness and worldly lusts, we should live soberly, righteously, and godly, in this present world;
 
-13. Send Zenas, the lawyer, and Apollos on their journey speedily, that nothing may be lacking for them.
+13 Looking for that blessed hope, and the glorious appearing of the great God and our Saviour Jesus Christ;
 
-14. Let our people also learn to maintain good works for necessary uses, that they may not be unfruitful.
+14 Who gave himself for us, that he might redeem us from all iniquity, and purify unto himself a peculiar people, zealous of good works.
 
-15. All who are with me greet you. Greet those who love us in faith. Grace be with you all. Amen.
+15 These things speak, and exhort, and rebuke with all authority. Let no man despise thee.
 
+
+## Titus Chapter 3
+
+1 Put them in mind to be subject to principalities and powers, to obey magistrates, to be ready to every good work,
+
+2 To speak evil of no man, to be no brawlers, but gentle, shewing all meekness unto all men.
+
+3 For we ourselves also were sometimes foolish, disobedient, deceived, serving divers lusts and pleasures, living in malice and envy, hateful, and hating one another.
+
+4 But after that the kindness and love of God our Saviour toward man appeared,
+
+5 Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost;
+
+6 Which he shed on us abundantly through Jesus Christ our Saviour;
+
+7 That being justified by his grace, we should be made heirs according to the hope of eternal life.
+
+8 This is a faithful saying, and these things I will that thou affirm constantly, that they which have believed in God might be careful to maintain good works. These things are good and profitable unto men.
+
+9 But avoid foolish questions, and genealogies, and contentions, and strivings about the law; for they are unprofitable and vain.
+
+10 A man that is an heretick after the first and second admonition reject;
+
+11 Knowing that he that is such is subverted, and sinneth, being condemned of himself.
+
+12 When I shall send Artemas unto thee, or Tychicus, be diligent to come unto me to Nicopolis: for I have determined there to winter.
+
+13 Bring Zenas the lawyer and Apollos on their journey diligently, that nothing be wanting unto them.
+
+14 And let our's also learn to maintain good works for necessary uses, that they be not unfruitful.
+
+15 All that are with me salute thee. Greet them that love us in the faith. Grace be with you all. Amen.
+
+
+## eof

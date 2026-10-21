@@ -61,8 +61,9 @@ function parse(text) {
   return blocks;
 }
 function blockHtml(b, i) {
+  if (b.type === 'h2' && /^eof$/i.test(b.text)) return '';
   if (b.type === 'p') {
-    const v = /^(\d+)[.)]\s+(.*)$/s.exec(b.text);
+    const v = /^(\d+)[.)]?\s+(.*)$/s.exec(b.text);
     return `<p data-i="${i}">${v ? `<span class="vn">${v[1]}</span>${inline(v[2])}` : inline(b.text)}</p>`;
   }
   return `<${b.type} data-i="${i}">${inline(b.text)}</${b.type}>`;
@@ -165,7 +166,7 @@ function renderResults(d) {
       pos = b;
     }
     t += esc(r.t.slice(pos));
-    const v = /^(\d+)[.)]\s/.exec(r.t);
+    const v = /^(\d+)[.)]?\s/.exec(r.t);
     html += `<button class="hit" data-i="${i}"><div class="ref">${esc(r.c || '')}${v ? ':' + v[1] : ''}</div>${t}</button>`;
   });
   box.innerHTML = html;
@@ -201,8 +202,8 @@ function showTab(t) {
 
 // ---------- Notes (highlight a passage → private markdown note; saved to data/notes.json) ----------
 const newId = () => Date.now().toString(36) + Math.random().toString(36).slice(2, 7);
-const chapterOf = i => { for (let k = i; k >= 0; k--) if (state.blocks[k].type === 'h2') return state.blocks[k].text.replace(/^Chapter\s+/i, ''); return '?'; };
-const verseOf = b => (/^(\d+)[.)]\s/.exec(b.text) || [])[1] || '';
+const chapterOf = i => { for (let k = i; k >= 0; k--) if (state.blocks[k].type === 'h2') return state.blocks[k].text.replace(/^.*\bChapter\s+/i, ''); return '?'; };
+const verseOf = b => (/^(\d+)[.)]?\s/.exec(b.text) || [])[1] || '';
 const textPs = () => [...$('doc').querySelectorAll('p[data-i]')];
 const offsetIn = (p, node, off) => { const r = document.createRange(); r.setStart(p, 0); r.setEnd(node, off); return r.toString().length; };
 let pendingAnchor = null, draft = null, editing = null, selTimer;
@@ -393,14 +394,14 @@ function markBookmarks() {
   $('doc').querySelectorAll('p[data-i]').forEach(p => p.classList.toggle('bm', set.has(state.blocks[+p.dataset.i].line)));
 }
 function toggleBookmark(p) {
-  const i = +p.dataset.i, blk = state.blocks[i], v = /^(\d+)[.)]\s+(.*)$/s.exec(blk.text);
+  const i = +p.dataset.i, blk = state.blocks[i], v = /^(\d+)[.)]?\s+(.*)$/s.exec(blk.text);
   if (!v) return;
   const at = state.bm.findIndex(m => m.book === state.cur && m.line === blk.line);
   if (at >= 0) state.bm.splice(at, 1);
   else {
     let ch = '';
     for (let k = i; k >= 0; k--) if (state.blocks[k].type === 'h2') { ch = state.blocks[k].text; break; }
-    const ref = (ch.replace(/^Chapter\s+/i, '') || '?') + ':' + v[1];
+    const ref = (ch.replace(/^.*\bChapter\s+/i, '') || '?') + ':' + v[1];
     state.bm.push({ book: state.cur, line: blk.line, label: `${state.books[state.cur].name} ${ref}`, text: v[2].slice(0, 160), created: Date.now() });
     sortBm();
   }
@@ -453,7 +454,7 @@ function findVerseLine(text, ch, v) {
   const lines = text.split(/\r?\n/);
   const c = lines.findIndex(l => new RegExp(`^##\\s+.*\\b${ch}\\s*$`).test(l));
   if (c < 0) return null;
-  for (let n = c + 1; n < lines.length && !/^##\s/.test(lines[n]); n++) if (lines[n].startsWith(v + '. ')) return n;
+  for (let n = c + 1; n < lines.length && !/^##\s/.test(lines[n]); n++) if (new RegExp('^' + v + '[.)]?\\s').test(lines[n])) return n;
   return c;
 }
 $('dictBody').addEventListener('click', async e => {

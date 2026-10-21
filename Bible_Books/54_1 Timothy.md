@@ -1,245 +1,248 @@
+
 # 1 Timothy
 
-## Chapter 1
+## 1 Timothy Chapter 1
 
-1. Paul, an apostle of Christ Jesus according to the commandment of God our Savior, and Christ Jesus our hope;
+1 Paul, an apostle of Jesus Christ by the commandment of God our Saviour, and Lord Jesus Christ, which is our hope;
 
-2. to Timothy, my true child in faith: Grace, mercy, and peace, from God our Father and Christ Jesus our Lord.
+2 Unto Timothy, my own son in the faith: Grace, mercy, and peace, from God our Father and Jesus Christ our Lord.
 
-3. As I urged you when I was going into Macedonia, stay at Ephesus that you might command certain men not to teach a different doctrine,
+3 As I besought thee to abide still at Ephesus, when I went into Macedonia, that thou mightest charge some that they teach no other doctrine,
 
-4. neither to pay attention to myths and endless genealogies, which cause disputes, rather than God's stewardship, which is in faith--
+4 Neither give heed to fables and endless genealogies, which minister questions, rather than godly edifying which is in faith: so do.
 
-5. but the goal of this command is love, out of a pure heart and a good conscience and unfeigned faith;
+5 Now the end of the commandment is charity out of a pure heart, and of a good conscience, and of faith unfeigned:
 
-6. from which things some, having missed the mark, have turned aside to vain talking;
+6 From which some having swerved have turned aside unto vain jangling;
 
-7. desiring to be teachers of the law, though they understand neither what they say, nor about what they strongly affirm.
+7 Desiring to be teachers of the law; understanding neither what they say, nor whereof they affirm.
 
-8. But we know that the law is good, if a man uses it lawfully,
+8 But we know that the law is good, if a man use it lawfully;
 
-9. as knowing this, that law is not made for a righteous man, but for the lawless and insubordinate, for the ungodly and sinners, for the unholy and profane, for murderers of fathers and murderers of mothers, for manslayers,
+9 Knowing this, that the law is not made for a righteous man, but for the lawless and disobedient, for the ungodly and for sinners, for unholy and profane, for murderers of fathers and murderers of mothers, for manslayers,
 
-10. for the sexually immoral, for homosexuals, for slave-traders, for liars, for perjurers, and for any other thing contrary to the sound doctrine;
+10 For whoremongers, for them that defile themselves with mankind, for menstealers, for liars, for perjured persons, and if there be any other thing that is contrary to sound doctrine;
 
-11. according to the Good News of the glory of the blessed God, which was committed to my trust.
+11 According to the glorious gospel of the blessed God, which was committed to my trust.
 
-12. And I thank him who enabled me, Christ Jesus our Lord, because he counted me faithful, appointing me to service;
+12 And I thank Christ Jesus our Lord, who hath enabled me, for that he counted me faithful, putting me into the ministry;
 
-13. although I was before a blasphemer, a persecutor, and insolent. However, I obtained mercy, because I did it ignorantly in unbelief.
+13 Who was before a blasphemer, and a persecutor, and injurious: but I obtained mercy, because I did it ignorantly in unbelief.
 
-14. The grace of our Lord abounded exceedingly with faith and love which is in Christ Jesus.
+14 And the grace of our Lord was exceeding abundant with faith and love which is in Christ Jesus.
 
-15. The saying is faithful and worthy of all acceptance, that Christ Jesus came into the world to save sinners; of whom I am chief.
+15 This is a faithful saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief.
 
-16. However, for this cause I obtained mercy, that in me first, Jesus Christ might display all his patience, for an example of those who were going to believe in him for eternal life.
+16 Howbeit for this cause I obtained mercy, that in me first Jesus Christ might shew forth all longsuffering, for a pattern to them which should hereafter believe on him to life everlasting.
 
-17. Now to the King eternal, immortal, invisible, to God who alone is wise, be honor and glory forever and ever. Amen.
+17 Now unto the King eternal, immortal, invisible, the only wise God, be honour and glory for ever and ever. Amen.
 
-18. This instruction I commit to you, my child Timothy, according to the prophecies which led the way to you, that by them you may wage the good warfare;
+18 This charge I commit unto thee, son Timothy, according to the prophecies which went before on thee, that thou by them mightest war a good warfare;
 
-19. holding faith and a good conscience; which some having thrust away made a shipwreck concerning the faith;
+19 Holding faith, and a good conscience; which some having put away concerning faith have made shipwreck:
 
-20. of whom is Hymenaeus and Alexander; whom I delivered to Satan, that they might be taught not to blaspheme.
+20 Of whom is Hymenaeus and Alexander; whom I have delivered unto Satan, that they may learn not to blaspheme.
 
 
-## Chapter 2
+## 1 Timothy Chapter 2
 
-1. I exhort therefore, first of all, that petitions, prayers, intercessions, and givings of thanks, be made for all men:
+1 I exhort therefore, that, first of all, supplications, prayers, intercessions, and giving of thanks, be made for all men;
 
-2. for kings and all who are in high places; that we may lead a tranquil and quiet life in all godliness and reverence.
+2 For kings, and for all that are in authority; that we may lead a quiet and peaceable life in all godliness and honesty.
 
-3. For this is good and acceptable in the sight of God our Savior;
+3 For this is good and acceptable in the sight of God our Saviour;
 
-4. who desires all people to be saved and come to full knowledge of the truth.
+4 Who will have all men to be saved, and to come unto the knowledge of the truth.
 
-5. For there is one God, and one mediator between God and men, the man Christ Jesus,
+5 For there is one God, and one mediator between God and men, the man Christ Jesus;
 
-6. who gave himself as a ransom for all; the testimony in its own times;
+6 Who gave himself a ransom for all, to be testified in due time.
 
-7. to which I was appointed a preacher and an apostle (I am telling the truth in Christ, not lying), a teacher of the Gentiles in faith and truth.
+7 Whereunto I am ordained a preacher, and an apostle, (I speak the truth in Christ, and lie not;) a teacher of the Gentiles in faith and verity.
 
-8. I desire therefore that the men in every place pray, lifting up holy hands without anger and doubting.
+8 I will therefore that men pray every where, lifting up holy hands, without wrath and doubting.
 
-9. In the same way, that women also adorn themselves in decent clothing, with modesty and propriety; not just with braided hair, gold, pearls, or expensive clothing;
+9 In like manner also, that women adorn themselves in modest apparel, with shamefacedness and sobriety; not with broided hair, or gold, or pearls, or costly array;
 
-10. but (which becomes women professing godliness) with good works.
+10 But (which becometh women professing godliness) with good works.
 
-11. Let a woman learn in quietness with all subjection.
+11 Let the woman learn in silence with all subjection.
 
-12. But I don't permit a woman to teach, nor to exercise authority over a man, but to be in quietness.
+12 But I suffer not a woman to teach, nor to usurp authority over the man, but to be in silence.
 
-13. For Adam was first formed, then Eve.
+13 For Adam was first formed, then Eve.
 
-14. Adam wasn't deceived, but the woman, being deceived, has fallen into disobedience;
+14 And Adam was not deceived, but the woman being deceived was in the transgression.
 
-15. but she will be saved through her childbearing, if they continue in faith, love, and sanctification with sobriety.
+15 Notwithstanding she shall be saved in childbearing, if they continue in faith and charity and holiness with sobriety.
 
 
-## Chapter 3
+## 1 Timothy Chapter 3
 
-1. This is a faithful saying: if a man seeks the office of an overseer, he desires a good work.
+1 This is a true saying, if a man desire the office of a bishop, he desireth a good work.
 
-2. The overseer therefore must be without reproach, the husband of one wife, temperate, sensible, modest, hospitable, good at teaching;
+2 A bishop then must be blameless, the husband of one wife, vigilant, sober, of good behaviour, given to hospitality, apt to teach;
 
-3. not a drinker, not violent, not greedy for money, but gentle, not quarrelsome, not covetous;
+3 Not given to wine, no striker, not greedy of filthy lucre; but patient, not a brawler, not covetous;
 
-4. one who rules his own house well, having children in subjection with all reverence;
+4 One that ruleth well his own house, having his children in subjection with all gravity;
 
-5. (but if a man doesn't know how to rule his own house, how will he take care of the assembly of God?)
+5 (For if a man know not how to rule his own house, how shall he take care of the church of God?)
 
-6. not a new convert, lest being puffed up he fall into the same condemnation as the devil.
+6 Not a novice, lest being lifted up with pride he fall into the condemnation of the devil.
 
-7. Moreover he must have good testimony from those who are outside, to avoid falling into reproach and the snare of the devil.
+7 Moreover he must have a good report of them which are without; lest he fall into reproach and the snare of the devil.
 
-8. Servants, in the same way, must be reverent, not double-tongued, not addicted to much wine, not greedy for money;
+8 Likewise must the deacons be grave, not doubletongued, not given to much wine, not greedy of filthy lucre;
 
-9. holding the mystery of the faith in a pure conscience.
+9 Holding the mystery of the faith in a pure conscience.
 
-10. Let them also first be tested; then let them serve if they are blameless.
+10 And let these also first be proved; then let them use the office of a deacon, being found blameless.
 
-11. Their wives in the same way must be reverent, not slanderers, temperate, faithful in all things.
+11 Even so must their wives be grave, not slanderers, sober, faithful in all things.
 
-12. Let servants be husbands of one wife, ruling their children and their own houses well.
+12 Let the deacons be the husbands of one wife, ruling their children and their own houses well.
 
-13. For those who have served well gain for themselves a good standing, and great boldness in the faith which is in Christ Jesus.
+13 For they that have used the office of a deacon well purchase to themselves a good degree, and great boldness in the faith which is in Christ Jesus.
 
-14. These things I write to you, hoping to come to you shortly;
+14 These things write I unto thee, hoping to come unto thee shortly:
 
-15. but if I wait long, that you may know how men ought to behave themselves in the house of God, which is the assembly of the living God, the pillar and ground of the truth.
+15 But if I tarry long, that thou mayest know how thou oughtest to behave thyself in the house of God, which is the church of the living God, the pillar and ground of the truth.
 
-16. Without controversy, the mystery of godliness is great: God was revealed in the flesh,    justified in the spirit,    seen by angels,    preached among the nations,    believed on in the world,    and received up in glory.
+16 And without controversy great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.
 
 
-## Chapter 4
+## 1 Timothy Chapter 4
 
-1. But the Spirit says expressly that in later times some will fall away from the faith, paying attention to seducing spirits and doctrines of demons,
+1 Now the Spirit speaketh expressly, that in the latter times some shall depart from the faith, giving heed to seducing spirits, and doctrines of devils;
 
-2. through the hypocrisy of men who speak lies, branded in their own conscience as with a hot iron;
+2 Speaking lies in hypocrisy; having their conscience seared with a hot iron;
 
-3. forbidding marriage and commanding to abstain from foods which God created to be received with thanksgiving by those who believe and know the truth.
+3 Forbidding to marry, and commanding to abstain from meats, which God hath created to be received with thanksgiving of them which believe and know the truth.
 
-4. For every creature of God is good, and nothing is to be rejected, if it is received with thanksgiving.
+4 For every creature of God is good, and nothing to be refused, if it be received with thanksgiving:
 
-5. For it is sanctified through the word of God and prayer.
+5 For it is sanctified by the word of God and prayer.
 
-6. If you instruct the brothers of these things, you will be a good servant of Christ Jesus, nourished in the words of the faith, and of the good doctrine which you have followed.
+6 If thou put the brethren in remembrance of these things, thou shalt be a good minister of Jesus Christ, nourished up in the words of faith and of good doctrine, whereunto thou hast attained.
 
-7. But refuse profane and old wives' fables. Exercise yourself toward godliness.
+7 But refuse profane and old wives' fables, and exercise thyself rather unto godliness.
 
-8. For bodily exercise has some value, but godliness has value in all things, having the promise of the life which is now, and of that which is to come.
+8 For bodily exercise profiteth little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.
 
-9. This saying is faithful and worthy of all acceptance.
+9 This is a faithful saying and worthy of all acceptation.
 
-10. For to this end we both labor and suffer reproach, because we have set our trust in the living God, who is the Savior of all men, especially of those who believe.
+10 For therefore we both labour and suffer reproach, because we trust in the living God, who is the Saviour of all men, specially of those that believe.
 
-11. Command and teach these things.
+11 These things command and teach.
 
-12. Let no man despise your youth; but be an example to those who believe, in word, in your way of life, in love, in spirit, in faith, and in purity.
+12 Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.
 
-13. Until I come, pay attention to reading, to exhortation, and to teaching.
+13 Till I come, give attendance to reading, to exhortation, to doctrine.
 
-14. Don't neglect the gift that is in you, which was given to you by prophecy, with the laying on of the hands of the elders.
+14 Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery.
 
-15. Be diligent in these things. Give yourself wholly to them, that your progress may be revealed to all.
+15 Meditate upon these things; give thyself wholly to them; that thy profiting may appear to all.
 
-16. Pay attention to yourself, and to your teaching. Continue in these things, for in doing this you will save both yourself and those who hear you.
+16 Take heed unto thyself, and unto the doctrine; continue in them: for in doing this thou shalt both save thyself, and them that hear thee.
 
 
-## Chapter 5
+## 1 Timothy Chapter 5
 
-1. Don't rebuke an older man, but exhort him as a father; the younger men as brothers;
+1 Rebuke not an elder, but intreat him as a father; and the younger men as brethren;
 
-2. the elder women as mothers; the younger as sisters, in all purity.
+2 The elder women as mothers; the younger as sisters, with all purity.
 
-3. Honor widows who are widows indeed.
+3 Honour widows that are widows indeed.
 
-4. But if any widow has children or grandchildren, let them learn first to show piety towards their own family, and to repay their parents, for this is acceptable in the sight of God.
+4 But if any widow have children or nephews, let them learn first to shew piety at home, and to requite their parents: for that is good and acceptable before God.
 
-5. Now she who is a widow indeed, and desolate, has her hope set on God, and continues in petitions and prayers night and day.
+5 Now she that is a widow indeed, and desolate, trusteth in God, and continueth in supplications and prayers night and day.
 
-6. But she who gives herself to pleasure is dead while she lives.
+6 But she that liveth in pleasure is dead while she liveth.
 
-7. Also command these things, that they may be without reproach.
+7 And these things give in charge, that they may be blameless.
 
-8. But if anyone doesn't provide for his own, and especially his own household, he has denied the faith, and is worse than an unbeliever.
+8 But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.
 
-9. Let no one be enrolled as a widow under sixty years old, having been the wife of one man,
+9 Let not a widow be taken into the number under threescore years old, having been the wife of one man.
 
-10. being approved by good works, if she has brought up children, if she has been hospitable to strangers, if she has washed the saints' feet, if she has relieved the afflicted, and if she has diligently followed every good work.
+10 Well reported of for good works; if she have brought up children, if she have lodged strangers, if she have washed the saints' feet, if she have relieved the afflicted, if she have diligently followed every good work.
 
-11. But refuse younger widows, for when they have grown wanton against Christ, they desire to marry;
+11 But the younger widows refuse: for when they have begun to wax wanton against Christ, they will marry;
 
-12. having condemnation, because they have rejected their first pledge.
+12 Having damnation, because they have cast off their first faith.
 
-13. Besides, they also learn to be idle, going about from house to house. Not only idle, but also gossips and busybodies, saying things which they ought not.
+13 And withal they learn to be idle, wandering about from house to house; and not only idle, but tattlers also and busybodies, speaking things which they ought not.
 
-14. I desire therefore that the younger widows marry, bear children, rule the household, and give no occasion to the adversary for insulting.
+14 I will therefore that the younger women marry, bear children, guide the house, give none occasion to the adversary to speak reproachfully.
 
-15. For already some have turned aside after Satan.
+15 For some are already turned aside after Satan.
 
-16. If any man or woman who believes has widows, let them relieve them, and don't let the assembly be burdened; that it might relieve those who are widows indeed.
+16 If any man or woman that believeth have widows, let them relieve them, and let not the church be charged; that it may relieve them that are widows indeed.
 
-17. Let the elders who rule well be counted worthy of double honor, especially those who labor in the word and in teaching.
+17 Let the elders that rule well be counted worthy of double honour, especially they who labour in the word and doctrine.
 
-18. For the Scripture says, "You shall not muzzle the ox when it treads out the grain." And, "The laborer is worthy of his wages."
+18 For the scripture saith, thou shalt not muzzle the ox that treadeth out the corn. And, The labourer is worthy of his reward.
 
-19. Don't receive an accusation against an elder, except at the word of two or three witnesses.
+19 Against an elder receive not an accusation, but before two or three witnesses.
 
-20. Those who sin, reprove in the sight of all, that the rest also may be in fear.
+20 Them that sin rebuke before all, that others also may fear.
 
-21. I command you in the sight of God, and Christ Jesus, and the chosen angels, that you observe these things without prejudice, doing nothing by partiality.
+21 I charge thee before God, and the Lord Jesus Christ, and the elect angels, that thou observe these things without preferring one before another, doing nothing by partiality.
 
-22. Lay hands hastily on no one, neither be a participant in other men's sins. Keep yourself pure.
+22 Lay hands suddenly on no man, neither be partaker of other men's sins: keep thyself pure.
 
-23. Be no longer a drinker of water only, but use a little wine for your stomach's sake and your frequent infirmities.
+23 Drink no longer water, but use a little wine for thy stomach's sake and thine often infirmities.
 
-24. Some men's sins are evident, preceding them to judgment, and some also follow later.
+24 Some men's sins are open beforehand, going before to judgment; and some men they follow after.
 
-25. In the same way also there are good works that are obvious, and those that are otherwise can't be hidden.
+25 Likewise also the good works of some are manifest beforehand; and they that are otherwise cannot be hid.
 
 
-## Chapter 6
+## 1 Timothy Chapter 6
 
-1. Let as many as are bondservants under the yoke count their own masters worthy of all honor, that the name of God and the doctrine not be blasphemed.
+1 Let as many servants as are under the yoke count their own masters worthy of all honour, that the name of God and his doctrine be not blasphemed.
 
-2. Those who have believing masters, let them not despise them, because they are brothers, but rather let them serve them, because those who partake of the benefit are believing and beloved. Teach and exhort these things.
+2 And they that have believing masters, let them not despise them, because they are brethren; but rather do them service, because they are faithful and beloved, partakers of the benefit. These things teach and exhort.
 
-3. If anyone teaches a different doctrine, and doesn't consent to sound words, the words of our Lord Jesus Christ, and to the doctrine which is according to godliness,
+3 If any man teach otherwise, and consent not to wholesome words, even the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;
 
-4. he is conceited, knowing nothing, but obsessed with arguments, disputes, and word battles, from which come envy, strife, insulting, evil suspicions,
+4 He is proud, knowing nothing, but doting about questions and strifes of words, whereof cometh envy, strife, railings, evil surmisings,
 
-5. constant friction of people of corrupt minds and destitute of the truth, who suppose that godliness is a means of gain. Withdraw yourself from such.
+5 Perverse disputings of men of corrupt minds, and destitute of the truth, supposing that gain is godliness: from such withdraw thyself.
 
-6. But godliness with contentment is great gain.
+6 But godliness with contentment is great gain.
 
-7. For we brought nothing into the world, and we certainly can't carry anything out.
+7 For we brought nothing into this world, and it is certain we can carry nothing out.
 
-8. But having food and clothing, we will be content with that.
+8 And having food and raiment let us be therewith content.
 
-9. But those who are determined to be rich fall into a temptation and a snare and many foolish and harmful lusts, such as drown men in ruin and destruction.
+9 But they that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition.
 
-10. For the love of money is a root of all kinds of evil. Some have been led astray from the faith in their greed, and have pierced themselves through with many sorrows.
+10 For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.
 
-11. But you, man of God, flee these things, and follow after righteousness, godliness, faith, love, patience, and gentleness.
+11 But thou, O man of God, flee these things; and follow after righteousness, godliness, faith, love, patience, meekness.
 
-12. Fight the good fight of faith. Lay hold of the eternal life to which you were called, and you confessed the good confession in the sight of many witnesses.
+12 Fight the good fight of faith, lay hold on eternal life, whereunto thou art also called, and hast professed a good profession before many witnesses.
 
-13. I command you before God, who gives life to all things, and before Christ Jesus, who before Pontius Pilate testified the good confession,
+13 I give thee charge in the sight of God, who quickeneth all things, and before Christ Jesus, who before Pontius Pilate witnessed a good confession;
 
-14. that you keep the commandment without spot, blameless, until the appearing of our Lord Jesus Christ;
+14 That thou keep this commandment without spot, unrebukable, until the appearing of our Lord Jesus Christ:
 
-15. which in its own times he will show, who is the blessed and only Ruler, the King of kings, and Lord of lords;
+15 Which in his times he shall shew, who is the blessed and only Potentate, the King of kings, and Lord of lords;
 
-16. who alone has immortality, dwelling in unapproachable light; whom no man has seen, nor can see: to whom be honor and eternal power. Amen.
+16 Who only hath immortality, dwelling in the light which no man can approach unto; whom no man hath seen, nor can see: to whom be honour and power everlasting. Amen.
 
-17. Charge those who are rich in this present world that they not be haughty, nor have their hope set on the uncertainty of riches, but on the living God, who richly provides us with everything to enjoy;
+17 Charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy;
 
-18. that they do good, that they be rich in good works, that they be ready to distribute, willing to communicate;
+18 That they do good, that they be rich in good works, ready to distribute, willing to communicate;
 
-19. laying up in store for themselves a good foundation against the time to come, that they may lay hold of eternal life.
+19 Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.
 
-20. Timothy, guard that which is committed to you, turning away from the empty chatter and oppositions of the knowledge which is falsely so called;
+20 O Timothy, keep that which is committed to thy trust, avoiding profane and vain babblings, and oppositions of science falsely so called:
 
-21. which some professing have erred concerning the faith. Grace be with you. Amen.
+21 Which some professing have erred concerning the faith. Grace be with thee. Amen.
 
+
+## eof

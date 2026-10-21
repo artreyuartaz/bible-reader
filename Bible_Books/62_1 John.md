@@ -1,226 +1,229 @@
+
 # 1 John
 
-## Chapter 1
+## 1 John Chapter 1
 
-1. That which was from the beginning, that which we have heard, that which we have seen with our eyes, that which we saw, and our hands touched, concerning the Word of life
+1 That which was from the beginning, which we have heard, which we have seen with our eyes, which we have looked upon, and our hands have handled, of the Word of life;
 
-2. (and the life was revealed, and we have seen, and testify, and declare to you the life, the eternal life, which was with the Father, and was revealed to us);
+2 (For the life was manifested, and we have seen it, and bear witness, and shew unto you that eternal life, which was with the Father, and was manifested unto us;)
 
-3. that which we have seen and heard we declare to you, that you also may have fellowship with us. Yes, and our fellowship is with the Father, and with his Son, Jesus Christ.
+3 That which we have seen and heard declare we unto you, that ye also may have fellowship with us: and truly our fellowship is with the Father, and with his Son Jesus Christ.
 
-4. And we write these things to you, that our joy may be fulfilled.
+4 And these things write we unto you, that your joy may be full.
 
-5. This is the message which we have heard from him and announce to you, that God is light, and in him is no darkness at all.
+5 This then is the message which we have heard of him, and declare unto you, that God is light, and in him is no darkness at all.
 
-6. If we say that we have fellowship with him and walk in the darkness, we lie, and don't tell the truth.
+6 If we say that we have fellowship with him, and walk in darkness, we lie, and do not the truth:
 
-7. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus Christ, his Son, cleanses us from all sin.
+7 But if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.
 
-8. If we say that we have no sin, we deceive ourselves, and the truth is not in us.
+8 If we say that we have no sin, we deceive ourselves, and the truth is not in us.
 
-9. If we confess our sins, he is faithful and righteous to forgive us the sins, and to cleanse us from all unrighteousness.
+9 If we confess our sins, he is faithful and just to forgive us our sins, and to cleanse us from all unrighteousness.
 
-10. If we say that we haven't sinned, we make him a liar, and his word is not in us.
+10 If we say that we have not sinned, we make him a liar, and his word is not in us.
 
 
-## Chapter 2
+## 1 John Chapter 2
 
-1. My little children, I write these things to you so that you may not sin. If anyone sins, we have a Counselor with the Father, Jesus Christ, the righteous.
+1 My little children, these things write I unto you, that ye sin not. And if any man sin, we have an advocate with the Father, Jesus Christ the righteous:
 
-2. And he is the atoning sacrifice for our sins, and not for ours only, but also for the whole world.
+2 And he is the propitiation for our sins: and not for ours only, but also for the sins of the whole world.
 
-3. This is how we know that we know him: if we keep his commandments.
+3 And hereby we do know that we know him, if we keep his commandments.
 
-4. One who says, "I know him," and doesn't keep his commandments, is a liar, and the truth isn't in him.
+4 He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.
 
-5. But whoever keeps his word, God's love has most certainly been perfected in him. This is how we know that we are in him:
+5 But whoso keepeth his word, in him verily is the love of God perfected: hereby know we that we are in him.
 
-6. he who says he remains in him ought himself also to walk just like he walked.
+6 He that saith he abideth in him ought himself also so to walk, even as he walked.
 
-7. Brothers, I write no new commandment to you, but an old commandment which you had from the beginning. The old commandment is the word which you heard from the beginning.
+7 Brethren, I write no new commandment unto you, but an old commandment which ye had from the beginning. The old commandment is the word which ye have heard from the beginning.
 
-8. Again, I write a new commandment to you, which is true in him and in you; because the darkness is passing away, and the true light already shines.
+8 Again, a new commandment I write unto you, which thing is true in him and in you: because the darkness is past, and the true light now shineth.
 
-9. He who says he is in the light and hates his brother, is in the darkness even until now.
+9 He that saith he is in the light, and hateth his brother, is in darkness even until now.
 
-10. He who loves his brother remains in the light, and there is no occasion for stumbling in him.
+10 He that loveth his brother abideth in the light, and there is none occasion of stumbling in him.
 
-11. But he who hates his brother is in the darkness, and walks in the darkness, and doesn't know where he is going, because the darkness has blinded his eyes.
+11 But he that hateth his brother is in darkness, and walketh in darkness, and knoweth not whither he goeth, because that darkness hath blinded his eyes.
 
-12. I write to you, little children, because your sins are forgiven you for his name's sake.
+12 I write unto you, little children, because your sins are forgiven you for his name's sake.
 
-13. I write to you, fathers, because you know him who is from the beginning.     I write to you, young men, because you have overcome the evil one.     I write to you, little children, because you know the Father.
+13 I write unto you, fathers, because ye have known him that is from the beginning. I write unto you, young men, because ye have overcome the wicked one. I write unto you, little children, because ye have known the Father.
 
-14. I have written to you, fathers, because you know him who is from the beginning.     I have written to you, young men, because you are strong, and the word of God remains in you, and you have overcome the evil one.
+14 I have written unto you, fathers, because ye have known him that is from the beginning. I have written unto you, young men, because ye are strong, and the word of God abideth in you, and ye have overcome the wicked one.
 
-15. Don't love the world, neither the things that are in the world. If anyone loves the world, the Father's love isn't in him.
+15 Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him.
 
-16. For all that is in the world, the lust of the flesh, the lust of the eyes, and the pride of life, isn't the Father's, but is the world's.
+16 For all that is in the world, the lust of the flesh, and the lust of the eyes, and the pride of life, is not of the Father, but is of the world.
 
-17. The world is passing away with its lusts, but he who does God's will remains forever.
+17 And the world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.
 
-18. Little children, these are the end times, and as you heard that the Antichrist is coming, even now many antichrists have arisen. By this we know that it is the final hour.
+18 Little children, it is the last time: and as ye have heard that antichrist shall come, even now are there many antichrists; whereby we know that it is the last time.
 
-19. They went out from us, but they didn't belong to us; for if they had belonged to us, they would have continued with us. But they left, that they might be revealed that none of them belong to us.
+19 They went out from us, but they were not of us; for if they had been of us, they would no doubt have continued with us: but they went out, that they might be made manifest that they were not all of us.
 
-20. You have an anointing from the Holy One, and you all have knowledge.
+20 But ye have an unction from the Holy One, and ye know all things.
 
-21. I have not written to you because you don't know the truth, but because you know it, and because no lie is of the truth.
+21 I have not written unto you because ye know not the truth, but because ye know it, and that no lie is of the truth.
 
-22. Who is the liar but he who denies that Jesus is the Christ? This is the Antichrist, he who denies the Father and the Son.
+22 Who is a liar but he that denieth that Jesus is the Christ? He is antichrist, that denieth the Father and the Son.
 
-23. Whoever denies the Son, the same doesn't have the Father. He who confesses the Son has the Father also.
+23 Whosoever denieth the Son, the same hath not the Father: he that acknowledgeth the Son hath the Father also.
 
-24. Therefore, as for you, let that remain in you which you heard from the beginning. If that which you heard from the beginning remains in you, you also will remain in the Son, and in the Father.
+24 Let that therefore abide in you, which ye have heard from the beginning. If that which ye have heard from the beginning shall remain in you, ye also shall continue in the Son, and in the Father.
 
-25. This is the promise which he promised us, the eternal life.
+25 And this is the promise that he hath promised us, even eternal life.
 
-26. These things I have written to you concerning those who would lead you astray.
+26 These things have I written unto you concerning them that seduce you.
 
-27. As for you, the anointing which you received from him remains in you, and you don't need for anyone to teach you. But as his anointing teaches you concerning all things, and is true, and is no lie, and even as it taught you, you will remain in him.
+27 But the anointing which ye have received of him abideth in you, and ye need not that any man teach you: but as the same anointing teacheth you of all things, and is truth, and is no lie, and even as it hath taught you, ye shall abide in him.
 
-28. Now, little children, remain in him, that when he appears, we may have boldness, and not be ashamed before him at his coming.
+28 And now, little children, abide in him; that, when he shall appear, we may have confidence, and not be ashamed before him at his coming.
 
-29. If you know that he is righteous, you know that everyone who practices righteousness is born of him.
+29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.
 
 
-## Chapter 3
+## 1 John Chapter 3
 
-1. Behold, how great a love the Father has bestowed on us, that we should be called children of God! For this cause the world doesn't know us, because it didn't know him.
+1 Behold, what manner of love the Father hath bestowed upon us, that we should be called the sons of God: therefore the world knoweth us not, because it knew him not.
 
-2. Beloved, now we are children of God, and it is not yet revealed what we will be. But we know that, when he is revealed, we will be like him; for we will see him just as he is.
+2 Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.
 
-3. Everyone who has this hope set on him purifies himself, even as he is pure.
+3 And every man that hath this hope in him purifieth himself, even as he is pure.
 
-4. Everyone who sins also commits lawlessness. Sin is lawlessness.
+4 Whosoever committeth sin transgresseth also the law: for sin is the transgression of the law.
 
-5. You know that he was revealed to take away our sins, and in him is no sin.
+5 And ye know that he was manifested to take away our sins; and in him is no sin.
 
-6. Whoever remains in him doesn't sin. Whoever sins hasn't seen him, neither knows him.
+6 Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither known him.
 
-7. Little children, let no one lead you astray. He who does righteousness is righteous, even as he is righteous.
+7 Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous.
 
-8. He who sins is of the devil, for the devil has been sinning from the beginning. To this end the Son of God was revealed, that he might destroy the works of the devil.
+8 He that committeth sin is of the devil; for the devil sinneth from the beginning. For this purpose the Son of God was manifested, that he might destroy the works of the devil.
 
-9. Whoever is born of God doesn't commit sin, because his seed remains in him; and he can't sin, because he is born of God.
+9 Whosoever is born of God doth not commit sin; for his seed remaineth in him: and he cannot sin, because he is born of God.
 
-10. In this the children of God are revealed, and the children of the devil. Whoever doesn't do righteousness is not of God, neither is he who doesn't love his brother.
+10 In this the children of God are manifest, and the children of the devil: whosoever doeth not righteousness is not of God, neither he that loveth not his brother.
 
-11. For this is the message which you heard from the beginning, that we should love one another;
+11 For this is the message that ye heard from the beginning, that we should love one another.
 
-12. unlike Cain, who was of the evil one, and killed his brother. Why did he kill him? Because his works were evil, and his brother's righteous.
+12 Not as Cain, who was of that wicked one, and slew his brother. And wherefore slew he him? Because his own works were evil, and his brother's righteous.
 
-13. Don't be surprised, my brothers, if the world hates you.
+13 Marvel not, my brethren, if the world hate you.
 
-14. We know that we have passed out of death into life, because we love the brothers. He who doesn't love his brother remains in death.
+14 We know that we have passed from death unto life, because we love the brethren. He that loveth not his brother abideth in death.
 
-15. Whoever hates his brother is a murderer, and you know that no murderer has eternal life remaining in him.
+15 Whosoever hateth his brother is a murderer: and ye know that no murderer hath eternal life abiding in him.
 
-16. By this we know love, because he laid down his life for us. And we ought to lay down our lives for the brothers.
+16 Hereby perceive we the love of God, because he laid down his life for us: and we ought to lay down our lives for the brethren.
 
-17. But whoever has the world's goods, and sees his brother in need, and closes his heart of compassion against him, how does the love of God remain in him?
+17 But whoso hath this world's good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?
 
-18. My little children, let's not love in word only, neither with the tongue only, but in deed and truth.
+18 My little children, let us not love in word, neither in tongue; but in deed and in truth.
 
-19. And by this we know that we are of the truth, and persuade our hearts before him,
+19 And hereby we know that we are of the truth, and shall assure our hearts before him.
 
-20. because if our heart condemns us, God is greater than our heart, and knows all things.
+20 For if our heart condemn us, God is greater than our heart, and knoweth all things.
 
-21. Beloved, if our hearts don't condemn us, we have boldness toward God;
+21 Beloved, if our heart condemn us not, then have we confidence toward God.
 
-22. and whatever we ask, we receive from him, because we keep his commandments and do the things that are pleasing in his sight.
+22 And whatsoever we ask, we receive of him, because we keep his commandments, and do those things that are pleasing in his sight.
 
-23. This is his commandment, that we should believe in the name of his Son, Jesus Christ, and love one another, even as he commanded.
+23 And this is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another, as he gave us commandment.
 
-24. He who keeps his commandments remains in him, and he in him. By this we know that he remains in us, by the Spirit which he gave us.
+24 And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.
 
 
-## Chapter 4
+## 1 John Chapter 4
 
-1. Beloved, don't believe every spirit, but test the spirits, whether they are of God, because many false prophets have gone out into the world.
+1 Beloved, believe not every spirit, but try the spirits whether they are of God: because many false prophets are gone out into the world.
 
-2. By this you know the Spirit of God: every spirit who confesses that Jesus Christ has come in the flesh is of God,
+2 Hereby know ye the Spirit of God: Every spirit that confesseth that Jesus Christ is come in the flesh is of God:
 
-3. and every spirit who doesn't confess that Jesus Christ has come in the flesh is not of God, and this is the spirit of the Antichrist, of whom you have heard that it comes. Now it is in the world already.
+3 And every spirit that confesseth not that Jesus Christ is come in the flesh is not of God: and this is that spirit of antichrist, whereof ye have heard that it should come; and even now already is it in the world.
 
-4. You are of God, little children, and have overcome them; because greater is he who is in you than he who is in the world.
+4 Ye are of God, little children, and have overcome them: because greater is he that is in you, than he that is in the world.
 
-5. They are of the world. Therefore they speak of the world, and the world hears them.
+5 They are of the world: therefore speak they of the world, and the world heareth them.
 
-6. We are of God. He who knows God listens to us. He who is not of God doesn't listen to us. By this we know the spirit of truth, and the spirit of error.
+6 We are of God: he that knoweth God heareth us; he that is not of God heareth not us. Hereby know we the spirit of truth, and the spirit of error.
 
-7. Beloved, let us love one another, for love is of God; and everyone who loves is born of God, and knows God.
+7 Beloved, let us love one another: for love is of God; and every one that loveth is born of God, and knoweth God.
 
-8. He who doesn't love doesn't know God, for God is love.
+8 He that loveth not knoweth not God; for God is love.
 
-9. By this God's love was revealed in us, that God has sent his one and only Son into the world that we might live through him.
+9 In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him.
 
-10. In this is love, not that we loved God, but that he loved us, and sent his Son as the atoning sacrifice for our sins.
+10 Herein is love, not that we loved God, but that he loved us, and sent his Son to be the propitiation for our sins.
 
-11. Beloved, if God loved us in this way, we also ought to love one another.
+11 Beloved, if God so loved us, we ought also to love one another.
 
-12. No one has seen God at any time. If we love one another, God remains in us, and his love has been perfected in us.
+12 No man hath seen God at any time. If we love one another, God dwelleth in us, and his love is perfected in us.
 
-13. By this we know that we remain in him and he in us, because he has given us of his Spirit.
+13 Hereby know we that we dwell in him, and he in us, because he hath given us of his Spirit.
 
-14. We have seen and testify that the Father has sent the Son as the Savior of the world.
+14 And we have seen and do testify that the Father sent the Son to be the Saviour of the world.
 
-15. Whoever confesses that Jesus is the Son of God, God remains in him, and he in God.
+15 Whosoever shall confess that Jesus is the Son of God, God dwelleth in him, and he in God.
 
-16. We know and have believed the love which God has for us. God is love, and he who remains in love remains in God, and God remains in him.
+16 And we have known and believed the love that God hath to us. God is love; and he that dwelleth in love dwelleth in God, and God in him.
 
-17. In this love has been made perfect among us, that we may have boldness in the day of judgment, because as he is, even so are we in this world.
+17 Herein is our love made perfect, that we may have boldness in the day of judgment: because as he is, so are we in this world.
 
-18. There is no fear in love; but perfect love casts out fear, because fear has punishment. He who fears is not made perfect in love.
+18 There is no fear in love; but perfect love casteth out fear: because fear hath torment. He that feareth is not made perfect in love.
 
-19. We love him, because he first loved us.
+19 We love him, because he first loved us.
 
-20. If a man says, "I love God," and hates his brother, he is a liar; for he who doesn't love his brother whom he has seen, how can he love God whom he has not seen?
+20 If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?
 
-21. This commandment we have from him, that he who loves God should also love his brother.
+21 And this commandment have we from him, That he who loveth God love his brother also.
 
 
-## Chapter 5
+## 1 John Chapter 5
 
-1. Whoever believes that Jesus is the Christ is born of God. Whoever loves the Father also loves the child who is born of him.
+1 Whosoever believeth that Jesus is the Christ is born of God: and every one that loveth him that begat loveth him also that is begotten of him.
 
-2. By this we know that we love the children of God, when we love God and keep his commandments.
+2 By this we know that we love the children of God, when we love God, and keep his commandments.
 
-3. For this is the love of God, that we keep his commandments. His commandments are not grievous.
+3 For this is the love of God, that we keep his commandments: and his commandments are not grievous.
 
-4. For whatever is born of God overcomes the world. This is the victory that has overcome the world: your faith.
+4 For whatsoever is born of God overcometh the world: and this is the victory that overcometh the world, even our faith.
 
-5. Who is he who overcomes the world, but he who believes that Jesus is the Son of God?
+5 Who is he that overcometh the world, but he that believeth that Jesus is the Son of God?
 
-6. This is he who came by water and blood, Jesus Christ; not with the water only, but with the water and the blood. It is the Spirit who testifies, because the Spirit is the truth.
+6 This is he that came by water and blood, even Jesus Christ; not by water only, but by water and blood. And it is the Spirit that beareth witness, because the Spirit is truth.
 
-7. For there are three who testify:
+7 For there are three that bear record in heaven, the Father, the Word, and the Holy Ghost: and these three are one.
 
-8. the Spirit, the water, and the blood; and the three agree as one.
+8 And there are three that bear witness in earth, the Spirit, and the water, and the blood: and these three agree in one.
 
-9. If we receive the witness of men, the witness of God is greater; for this is God's testimony which he has testified concerning his Son.
+9 If we receive the witness of men, the witness of God is greater: for this is the witness of God which he hath testified of his Son.
 
-10. He who believes in the Son of God has the testimony in himself. He who doesn't believe God has made him a liar, because he has not believed in the testimony that God has given concerning his Son.
+10 He that believeth on the Son of God hath the witness in himself: he that believeth not God hath made him a liar; because he believeth not the record that God gave of his Son.
 
-11. The testimony is this, that God gave to us eternal life, and this life is in his Son.
+11 And this is the record, that God hath given to us eternal life, and this life is in his Son.
 
-12. He who has the Son has the life. He who doesn't have God's Son doesn't have the life.
+12 He that hath the Son hath life; and he that hath not the Son of God hath not life.
 
-13. These things I have written to you who believe in the name of the Son of God, that you may know that you have eternal life, and that you may continue to believe in the name of the Son of God.
+13 These things have I written unto you that believe on the name of the Son of God; that ye may know that ye have eternal life, and that ye may believe on the name of the Son of God.
 
-14. This is the boldness which we have toward him, that, if we ask anything according to his will, he listens to us.
+14 And this is the confidence that we have in him, that, if we ask any thing according to his will, he heareth us:
 
-15. And if we know that he listens to us, whatever we ask, we know that we have the petitions which we have asked of him.
+15 And if we know that he hear us, whatsoever we ask, we know that we have the petitions that we desired of him.
 
-16. If anyone sees his brother sinning a sin not leading to death, he shall ask, and God will give him life for those who sin not leading to death. There is a sin leading to death. I don't say that he should make a request concerning this.
+16 If any man see his brother sin a sin which is not unto death, he shall ask, and he shall give him life for them that sin not unto death. There is a sin unto death: I do not say that he shall pray for it.
 
-17. All unrighteousness is sin, and there is a sin not leading to death.
+17 All unrighteousness is sin: and there is a sin not unto death.
 
-18. We know that whoever is born of God doesn't sin, but he who was born of God keeps himself, and the evil one doesn't touch him.
+18 We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not.
 
-19. We know that we are of God, and the whole world lies in the power of the evil one.
+19 And we know that we are of God, and the whole world lieth in wickedness.
 
-20. We know that the Son of God has come, and has given us an understanding, that we know him who is true, and we are in him who is true, in his Son Jesus Christ. This is the true God, and eternal life.
+20 And we know that the Son of God is come, and hath given us an understanding, that we may know him that is true, and we are in him that is true, even in his Son Jesus Christ. This is the true God, and eternal life.
 
-21. Little children, keep yourselves from idols.
+21 Little children, keep yourselves from idols. Amen.
 
+
+## eof

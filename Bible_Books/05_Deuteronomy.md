@@ -1,2021 +1,2024 @@
+
 # Deuteronomy
 
-## Chapter 1
+## Deuteronomy Chapter 1
 
-1. These are the words which Moses spoke to all Israel beyond the Jordan in the wilderness, in the Arabah over against Suph, between Paran, and Tophel, and Laban, and Hazeroth, and Dizahab.
+1 These be the words which Moses spake unto all Israel on this side Jordan in the wilderness, in the plain over against the Red sea, between Paran, and Tophel, and Laban, and Hazeroth, and Dizahab.
 
-2. It is eleven days' [journey] from Horeb by the way of Mount Seir to Kadesh Barnea.
+2 (There are eleven days' journey from Horeb by the way of mount Seir unto Kadeshbarnea.)
 
-3. It happened in the fortieth year, in the eleventh month, on the first day of the month, that Moses spoke to the children of Israel, according to all that Yahweh had given him in commandment to them;
+3 And it came to pass in the fortieth year, in the eleventh month, on the first day of the month, that Moses spake unto the children of Israel, according unto all that the Lord had given him in commandment unto them;
 
-4. after he had struck Sihon the king of the Amorites, who lived in Heshbon, and Og the king of Bashan, who lived in Ashtaroth, at Edrei.
+4 After he had slain Sihon the king of the Amorites, which dwelt in Heshbon, and Og the king of Bashan, which dwelt at Astaroth in Edrei:
 
-5. Beyond the Jordan, in the land of Moab, began Moses to declare this law, saying,
+5 On this side Jordan, in the land of Moab, began Moses to declare this law, saying,
 
-6. "Yahweh our God spoke to us in Horeb, saying, You have lived long enough in this mountain:
+6 The Lord our God spake unto us in Horeb, saying, Ye have dwelt long enough in this mount:
 
-7. turn, and take your journey, and go to the hill country of the Amorites, and to all [the places] near there, in the Arabah, in the hill country, and in the lowland, and in the South, and by the seashore, the land of the Canaanites, and Lebanon, as far as the great river, the river Euphrates.
+7 Turn you, and take your journey, and go to the mount of the Amorites, and unto all the places nigh thereunto, in the plain, in the hills, and in the vale, and in the south, and by the sea side, to the land of the Canaanites, and unto Lebanon, unto the great river, the river Euphrates.
 
-8. Behold, I have set the land before you: go in and possess the land which Yahweh swore to your fathers, to Abraham, to Isaac, and to Jacob, to give to them and to their seed after them."
+8 Behold, I have set the land before you: go in and possess the land which the Lord sware unto your fathers, Abraham, Isaac, and Jacob, to give unto them and to their seed after them.
 
-9. I spoke to you at that time, saying, "I am not able to bear you myself alone:
+9 And I spake unto you at that time, saying, I am not able to bear you myself alone:
 
-10. Yahweh your God has multiplied you, and behold, you are this day as the stars of the sky for multitude.
+10 The Lord your God hath multiplied you, and, behold, ye are this day as the stars of heaven for multitude.
 
-11. Yahweh, the God of your fathers, make you a thousand times as many as you are, and bless you, as he has promised you!
+11 (The Lord God of your fathers make you a thousand times so many more as ye are, and bless you, as he hath promised you!)
 
-12. How can I myself alone bear your encumbrance, and your burden, and your strife?
+12 How can I myself alone bear your cumbrance, and your burden, and your strife?
 
-13. Take wise men of understanding and well known according to your tribes, and I will make them heads over you."
+13 Take you wise men, and understanding, and known among your tribes, and I will make them rulers over you.
 
-14. You answered me, and said, "The thing which you have spoken is good [for us] to do."
+14 And ye answered me, and said, The thing which thou hast spoken is good for us to do.
 
-15. So I took the heads of your tribes, wise men, and known, and made them heads over you, captains of thousands, and captains of hundreds, and captains of fifties, and captains of tens, and officers, according to your tribes.
+15 So I took the chief of your tribes, wise men, and known, and made them heads over you, captains over thousands, and captains over hundreds, and captains over fifties, and captains over tens, and officers among your tribes.
 
-16. I commanded your judges at that time, saying, Hear [the causes] between your brothers, and judge righteously between a man and his brother, and the foreigner who is living with him.
+16 And I charged your judges at that time, saying, Hear the causes between your brethren, and judge righteously between every man and his brother, and the stranger that is with him.
 
-17. You shall not show partiality in judgment; you shall hear the small and the great alike; you shall not be afraid of the face of man; for the judgment is God's: and the cause that is too hard for you, you shall bring to me, and I will hear it.
+17 Ye shall not respect persons in judgment; but ye shall hear the small as well as the great; ye shall not be afraid of the face of man; for the judgment is God's: and the cause that is too hard for you, bring it unto me, and I will hear it.
 
-18. I commanded you at that time all the things which you should do.
+18 And I commanded you at that time all the things which ye should do.
 
-19. We traveled from Horeb, and went through all that great and terrible wilderness which you saw, by the way to the hill country of the Amorites, as Yahweh our God commanded us; and we came to Kadesh Barnea.
+19 And when we departed from Horeb, we went through all that great and terrible wilderness, which ye saw by the way of the mountain of the Amorites, as the Lord our God commanded us; and we came to Kadeshbarnea.
 
-20. I said to you, "You have come to the hill country of the Amorites, which Yahweh our God gives to us.
+20 And I said unto you, Ye are come unto the mountain of the Amorites, which the Lord our God doth give unto us.
 
-21. Behold, Yahweh your God has set the land before you: go up, take possession, as Yahweh, the God of your fathers, has spoken to you; don't be afraid, neither be dismayed."
+21 Behold, the Lord thy God hath set the land before thee: go up and possess it, as the Lord God of thy fathers hath said unto thee; fear not, neither be discouraged.
 
-22. You came near to me everyone of you, and said, "Let us send men before us, that they may search the land for us, and bring us word again of the way by which we must go up, and the cities to which we shall come."
+22 And ye came near unto me every one of you, and said, We will send men before us, and they shall search us out the land, and bring us word again by what way we must go up, and into what cities we shall come.
 
-23. The thing pleased me well; and I took twelve men of you, one man for every tribe:
+23 And the saying pleased me well: and I took twelve men of you, one of a tribe:
 
-24. and they turned and went up into the hill country, and came to the valley of Eshcol, and spied it out.
+24 And they turned and went up into the mountain, and came unto the valley of Eshcol, and searched it out.
 
-25. They took of the fruit of the land in their hands, and brought it down to us, and brought us word again, and said, "It is a good land which Yahweh our God gives to us."
+25 And they took of the fruit of the land in their hands, and brought it down unto us, and brought us word again, and said, It is a good land which the Lord our God doth give us.
 
-26. Yet you wouldn't go up, but rebelled against the commandment of Yahweh your God:
+26 Notwithstanding ye would not go up, but rebelled against the commandment of the Lord your God:
 
-27. and you murmured in your tents, and said, "Because Yahweh hated us, he has brought us forth out of the land of Egypt, to deliver us into the hand of the Amorites, to destroy us.
+27 And ye murmured in your tents, and said, Because the Lord hated us, he hath brought us forth out of the land of Egypt, to deliver us into the hand of the Amorites, to destroy us.
 
-28. Where are we going up? our brothers have made our heart to melt, saying, 'The people are greater and taller than we; the cities are great and fortified up to the sky; and moreover we have seen the sons of the Anakim there.'"
+28 Whither shall we go up? our brethren have discouraged our heart, saying, The people is greater and taller than we; the cities are great and walled up to heaven; and moreover we have seen the sons of the Anakims there.
 
-29. Then I said to you, "Don't dread, neither be afraid of them.
+29 Then I said unto you, Dread not, neither be afraid of them.
 
-30. Yahweh your God who goes before you, he will fight for you, according to all that he did for you in Egypt before your eyes,
+30 The Lord your God which goeth before you, he shall fight for you, according to all that he did for you in Egypt before your eyes;
 
-31. and in the wilderness, where you have seen how that Yahweh your God bore you, as a man does bear his son, in all the way that you went, until you came to this place."
+31 And in the wilderness, where thou hast seen how that the Lord thy God bare thee, as a man doth bear his son, in all the way that ye went, until ye came into this place.
 
-32. Yet in this thing you didn't believe Yahweh your God,
+32 Yet in this thing ye did not believe the Lord your God,
 
-33. who went before you in the way, to seek you out a place to pitch your tents in, in fire by night, to show you by what way you should go, and in the cloud by day.
+33 Who went in the way before you, to search you out a place to pitch your tents in, in fire by night, to shew you by what way ye should go, and in a cloud by day.
 
-34. Yahweh heard the voice of your words, and was angry, and swore, saying,
+34 And the Lord heard the voice of your words, and was wroth, and sware, saying,
 
-35. "Surely there shall not one of these men of this evil generation see the good land, which I swore to give to your fathers,
+35 Surely there shall not one of these men of this evil generation see that good land, which I sware to give unto your fathers.
 
-36. save Caleb the son of Jephunneh: he shall see it; and to him will I give the land that he has trodden on, and to his children, because he has wholly followed Yahweh."
+36 Save Caleb the son of Jephunneh; he shall see it, and to him will I give the land that he hath trodden upon, and to his children, because he hath wholly followed the Lord.
 
-37. Also Yahweh was angry with me for your sakes, saying, "You also shall not go in there:
+37 Also the Lord was angry with me for your sakes, saying, Thou also shalt not go in thither.
 
-38. Joshua the son of Nun, who stands before you, he shall go in there: encourage you him; for he shall cause Israel to inherit it.
+38 But Joshua the son of Nun, which standeth before thee, he shall go in thither: encourage him: for he shall cause Israel to inherit it.
 
-39. Moreover your little ones, whom you said should be a prey, and your children, who this day have no knowledge of good or evil, they shall go in there, and to them will I give it, and they shall possess it.
+39 Moreover your little ones, which ye said should be a prey, and your children, which in that day had no knowledge between good and evil, they shall go in thither, and unto them will I give it, and they shall possess it.
 
-40. But as for you, turn, and take your journey into the wilderness by the way to the Red Sea."
+40 But as for you, turn you, and take your journey into the wilderness by the way of the Red sea.
 
-41. Then you answered and said to me, "We have sinned against Yahweh, we will go up and fight, according to all that Yahweh our God commanded us." You girded on every man his weapons of war, and were forward to go up into the hill country.
+41 Then ye answered and said unto me, We have sinned against the Lord, we will go up and fight, according to all that the Lord our God commanded us. And when ye had girded on every man his weapons of war, ye were ready to go up into the hill.
 
-42. Yahweh said to me, "Tell them, 'Don't go up, neither fight; for I am not among you; lest you be struck before your enemies.'"
+42 And the Lord said unto me, Say unto them. Go not up, neither fight; for I am not among you; lest ye be smitten before your enemies.
 
-43. So I spoke to you, and you didn't listen; but you rebelled against the commandment of Yahweh, and were presumptuous, and went up into the hill country.
+43 So I spake unto you; and ye would not hear, but rebelled against the commandment of the Lord, and went presumptuously up into the hill.
 
-44. The Amorites, who lived in that hill country, came out against you, and chased you, as bees do, and beat you down in Seir, even to Hormah.
+44 And the Amorites, which dwelt in that mountain, came out against you, and chased you, as bees do, and destroyed you in Seir, even unto Hormah.
 
-45. You returned and wept before Yahweh; but Yahweh didn't listen to your voice, nor gave ear to you.
+45 And ye returned and wept before the Lord; but the Lord would not hearken to your voice, nor give ear unto you.
 
-46. So you abode in Kadesh many days, according to the days that you abode [there].
+46 So ye abode in Kadesh many days, according unto the days that ye abode there.
 
 
-## Chapter 2
+## Deuteronomy Chapter 2
 
-1. Then we turned, and took our journey into the wilderness by the way to the Red Sea, as Yahweh spoke to me; and we encircled Mount Seir many days.
+1 Then we turned, and took our journey into the wilderness by the way of the Red sea, as the Lord spake unto me: and we compassed mount Seir many days.
 
-2. Yahweh spoke to me, saying,
+2 And the Lord spake unto me, saying,
 
-3. "You have encircled this mountain long enough. Turn northward.
+3 Ye have compassed this mountain long enough: turn you northward.
 
-4. Command the people, saying, 'You are to pass through the border of your brothers the children of Esau, who dwell in Seir; and they will be afraid of you: take good heed to yourselves therefore;
+4 And command thou the people, saying, Ye are to pass through the coast of your brethren the children of Esau, which dwell in Seir; and they shall be afraid of you: take ye good heed unto yourselves therefore:
 
-5. don't contend with them; for I will not give you of their land, no, not so much as for the sole of the foot to tread on; because I have given Mount Seir to Esau for a possession.
+5 Meddle not with them; for I will not give you of their land, no, not so much as a foot breadth; because I have given mount Seir unto Esau for a possession.
 
-6. You shall purchase food of them for money, that you may eat; and you shall also buy water of them for money, that you may drink.'"
+6 Ye shall buy meat of them for money, that ye may eat; and ye shall also buy water of them for money, that ye may drink.
 
-7. For Yahweh your God has blessed you in all the work of your hand; he has known your walking through this great wilderness: these forty years Yahweh your God has been with you; you have lacked nothing.
+7 For the Lord thy God hath blessed thee in all the works of thy hand: he knoweth thy walking through this great wilderness: these forty years the Lord thy God hath been with thee; thou hast lacked nothing.
 
-8. So we passed by from our brothers the children of Esau, who dwell in Seir, from the way of the Arabah from Elath and from Ezion Geber. We turned and passed by the way of the wilderness of Moab.
+8 And when we passed by from our brethren the children of Esau, which dwelt in Seir, through the way of the plain from Elath, and from Eziongaber, we turned and passed by the way of the wilderness of Moab.
 
-9. Yahweh said to me, "Don't bother Moab, neither contend with them in battle; for I will not give you of his land for a possession; because I have given Ar to the children of Lot for a possession."
+9 And the Lord said unto me, Distress not the Moabites, neither contend with them in battle: for I will not give thee of their land for a possession; because I have given Ar unto the children of Lot for a possession.
 
-10. (The Emim lived therein before, a people great, and many, and tall, as the Anakim:
+10 The Emims dwelt therein in times past, a people great, and many, and tall, as the Anakims;
 
-11. these also are accounted Rephaim, as the Anakim; but the Moabites call them Emim.
+11 Which also were accounted giants, as the Anakims; but the Moabites called them Emims.
 
-12. The Horites also lived in Seir before, but the children of Esau succeeded them; and they destroyed them from before them, and lived in their place; as Israel did to the land of his possession, which Yahweh gave to them.)
+12 The Horims also dwelt in Seir beforetime; but the children of Esau succeeded them, when they had destroyed them from before them, and dwelt in their stead; as Israel did unto the land of his possession, which the Lord gave unto them.
 
-13. "Now rise up, and cross over the brook Zered." We went over the brook Zered.
+13 Now rise up, said I, and get you over the brook Zered. And we went over the brook Zered.
 
-14. The days in which we came from Kadesh Barnea, until we were come over the brook Zered, were thirty-eight years; until all the generation of the men of war were consumed from the midst of the camp, as Yahweh swore to them.
+14 And the space in which we came from Kadeshbarnea, until we were come over the brook Zered, was thirty and eight years; until all the generation of the men of war were wasted out from among the host, as the Lord sware unto them.
 
-15. Moreover the hand of Yahweh was against them, to destroy them from the midst of the camp, until they were consumed.
+15 For indeed the hand of the Lord was against them, to destroy them from among the host, until they were consumed.
 
-16. So it happened, when all the men of war were consumed and dead from among the people,
+16 So it came to pass, when all the men of war were consumed and dead from among the people,
 
-17. that Yahweh spoke to me, saying,
+17 That the Lord spake unto me, saying,
 
-18. "You are this day to pass over Ar, the border of Moab:
+18 Thou art to pass over through Ar, the coast of Moab, this day:
 
-19. and when you come near over against the children of Ammon, don't bother them, nor contend with them; for I will not give you of the land of the children of Ammon for a possession; because I have given it to the children of Lot for a possession."
+19 And when thou comest nigh over against the children of Ammon, distress them not, nor meddle with them: for I will not give thee of the land of the children of Ammon any possession; because I have given it unto the children of Lot for a possession.
 
-20. (That also is accounted a land of Rephaim: Rephaim lived therein before; but the Ammonites call them Zamzummim,
+20 (That also was accounted a land of giants: giants dwelt therein in old time; and the Ammonites call them Zamzummims;
 
-21. a people great, and many, and tall, as the Anakim; but Yahweh destroyed them before them; and they succeeded them, and lived in their place;
+21 A people great, and many, and tall, as the Anakims; but the Lord destroyed them before them; and they succeeded them, and dwelt in their stead:
 
-22. as he did for the children of Esau, who dwell in Seir, when he destroyed the Horites from before them; and they succeeded them, and lived in their place even to this day:
+22 As he did to the children of Esau, which dwelt in Seir, when he destroyed the Horims from before them; and they succeeded them, and dwelt in their stead even unto this day:
 
-23. and the Avvim, who lived in villages as far as Gaza, the Caphtorim, who came forth out of Caphtor, destroyed them, and lived in their place.)
+23 And the Avims which dwelt in Hazerim, even unto Azzah, the Caphtorims, which came forth out of Caphtor, destroyed them, and dwelt in their stead.)
 
-24. "Rise up, take your journey, and pass over the valley of the Arnon: behold, I have given into your hand Sihon the Amorite, king of Heshbon, and his land; begin to possess it, and contend with him in battle.
+24 Rise ye up, take your journey, and pass over the river Arnon: behold, I have given into thine hand Sihon the Amorite, king of Heshbon, and his land: begin to possess it, and contend with him in battle.
 
-25. This day will I begin to put the dread of you and the fear of you on the peoples who are under the whole sky, who shall hear the report of you, and shall tremble, and be in anguish because of you."
+25 This day will I begin to put the dread of thee and the fear of thee upon the nations that are under the whole heaven, who shall hear report of thee, and shall tremble, and be in anguish because of thee.
 
-26. I sent messengers out of the wilderness of Kedemoth to Sihon king of Heshbon with words of peace, saying,
+26 And I sent messengers out of the wilderness of Kedemoth unto Sihon king of Heshbon with words of peace, saying,
 
-27. "Let me pass through your land: I will go along by the highway, I will turn neither to the right hand nor to the left.
+27 Let me pass through thy land: I will go along by the high way, I will neither turn unto the right hand nor to the left.
 
-28. You shall sell me food for money, that I may eat; and give me water for money, that I may drink: only let me pass through on my feet,
+28 Thou shalt sell me meat for money, that I may eat; and give me water for money, that I may drink: only I will pass through on my feet;
 
-29. as the children of Esau who dwell in Seir, and the Moabites who dwell in Ar, did to me; until I shall pass over the Jordan into the land which Yahweh our God gives us."
+29 (As the children of Esau which dwell in Seir, and the Moabites which dwell in Ar, did unto me;) until I shall pass over Jordan into the land which the Lord our God giveth us.
 
-30. But Sihon king of Heshbon would not let us pass by him; for Yahweh your God hardened his spirit, and made his heart obstinate, that he might deliver him into your hand, as at this day.
+30 But Sihon king of Heshbon would not let us pass by him: for the Lord thy God hardened his spirit, and made his heart obstinate, that he might deliver him into thy hand, as appeareth this day.
 
-31. Yahweh said to me, "Behold, I have begun to deliver up Sihon and his land before you: begin to possess, that you may inherit his land."
+31 And the Lord said unto me, Behold, I have begun to give Sihon and his land before thee: begin to possess, that thou mayest inherit his land.
 
-32. Then Sihon came out against us, he and all his people, to battle at Jahaz.
+32 Then Sihon came out against us, he and all his people, to fight at Jahaz.
 
-33. Yahweh our God delivered him up before us; and we struck him, and his sons, and all his people.
+33 And the Lord our God delivered him before us; and we smote him, and his sons, and all his people.
 
-34. We took all his cities at that time, and utterly destroyed every inhabited city, with the women and the little ones; we left none remaining:
+34 And we took all his cities at that time, and utterly destroyed the men, and the women, and the little ones, of every city, we left none to remain:
 
-35. only the livestock we took for a prey to ourselves, with the spoil of the cities which we had taken.
+35 Only the cattle we took for a prey unto ourselves, and the spoil of the cities which we took.
 
-36. From Aroer, which is on the edge of the valley of the Arnon, and [from] the city that is in the valley, even to Gilead, there was not a city too high for us; Yahweh our God delivered up all before us:
+36 From Aroer, which is by the brink of the river of Arnon, and from the city that is by the river, even unto Gilead, there was not one city too strong for us: the Lord our God delivered all unto us:
 
-37. only to the land of the children of Ammon you didn't come near; all the side of the river Jabbok, and the cities of the hill country, and wherever Yahweh our God forbade us.
+37 Only unto the land of the children of Ammon thou camest not, nor unto any place of the river Jabbok, nor unto the cities in the mountains, nor unto whatsoever the Lord our God forbad us.
 
 
-## Chapter 3
+## Deuteronomy Chapter 3
 
-1. Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.
+1 Then we turned, and went up the way to Bashan: and Og the king of Bashan came out against us, he and all his people, to battle at Edrei.
 
-2. Yahweh said to me, "Don't fear him; for I have delivered him, and all his people, and his land, into your hand; and you shall do to him as you did to Sihon king of the Amorites, who lived at Heshbon."
+2 And the Lord said unto me, Fear him not: for I will deliver him, and all his people, and his land, into thy hand; and thou shalt do unto him as thou didst unto Sihon king of the Amorites, which dwelt at Heshbon.
 
-3. So Yahweh our God delivered into our hand Og also, the king of Bashan, and all his people: and we struck him until none was left to him remaining.
+3 So the Lord our God delivered into our hands Og also, the king of Bashan, and all his people: and we smote him until none was left to him remaining.
 
-4. We took all his cities at that time; there was not a city which we didn't take from them; sixty cities, all the region of Argob, the kingdom of Og in Bashan.
+4 And we took all his cities at that time, there was not a city which we took not from them, threescore cities, all the region of Argob, the kingdom of Og in Bashan.
 
-5. All these were cities fortified with high walls, gates, and bars; besides the unwalled towns a great many.
+5 All these cities were fenced with high walls, gates, and bars; beside unwalled towns a great many.
 
-6. We utterly destroyed them, as we did to Sihon king of Heshbon, utterly destroying every inhabited city, with the women and the little ones.
+6 And we utterly destroyed them, as we did unto Sihon king of Heshbon, utterly destroying the men, women, and children, of every city.
 
-7. But all the livestock, and the spoil of the cities, we took for a prey to ourselves.
+7 But all the cattle, and the spoil of the cities, we took for a prey to ourselves.
 
-8. We took the land at that time out of the hand of the two kings of the Amorites who were beyond the Jordan, from the valley of the Arnon to Mount Hermon;
+8 And we took at that time out of the hand of the two kings of the Amorites the land that was on this side Jordan, from the river of Arnon unto mount Hermon;
 
-9. ([which] Hermon the Sidonians call Sirion, and the Amorites call it Senir;)
+9 (Which Hermon the Sidonians call Sirion; and the Amorites call it Shenir;)
 
-10. all the cities of the plain, and all Gilead, and all Bashan, to Salecah and Edrei, cities of the kingdom of Og in Bashan.
+10 All the cities of the plain, and all Gilead, and all Bashan, unto Salchah and Edrei, cities of the kingdom of Og in Bashan.
 
-11. (For only Og king of Bashan remained of the remnant of the Rephaim; behold, his bedstead was a bedstead of iron; isn't it in Rabbah of the children of Ammon? nine cubits was its length, and four cubits its breadth, after the cubit of a man.)
+11 For only Og king of Bashan remained of the remnant of giants; behold his bedstead was a bedstead of iron; is it not in Rabbath of the children of Ammon? nine cubits was the length thereof, and four cubits the breadth of it, after the cubit of a man.
 
-12. This land we took in possession at that time: from Aroer, which is by the valley of the Arnon, and half the hill country of Gilead, and its cities, gave I to the Reubenites and to the Gadites:
+12 And this land, which we possessed at that time, from Aroer, which is by the river Arnon, and half mount Gilead, and the cities thereof, gave I unto the Reubenites and to the Gadites.
 
-13. and the rest of Gilead, and all Bashan, the kingdom of Og, gave I to the half-tribe of Manasseh; all the region of Argob, even all Bashan. (The same is called the land of Rephaim.
+13 And the rest of Gilead, and all Bashan, being the kingdom of Og, gave I unto the half tribe of Manasseh; all the region of Argob, with all Bashan, which was called the land of giants.
 
-14. Jair the son of Manasseh took all the region of Argob, to the border of the Geshurites and the Maacathites, and called them, even Bashan, after his own name, Havvoth Jair, to this day.)
+14 Jair the son of Manasseh took all the country of Argob unto the coasts of Geshuri and Maachathi; and called them after his own name, Bashanhavothjair, unto this day.
 
-15. I gave Gilead to Machir.
+15 And I gave Gilead unto Machir.
 
-16. To the Reubenites and to the Gadites I gave from Gilead even to the valley of the Arnon, the middle of the valley, and the border [of it], even to the river Jabbok, which is the border of the children of Ammon;
+16 And unto the Reubenites and unto the Gadites I gave from Gilead even unto the river Arnon half the valley, and the border even unto the river Jabbok, which is the border of the children of Ammon;
 
-17. the Arabah also, and the Jordan and the border [of it], from Chinnereth even to the sea of the Arabah, the Salt Sea, under the slopes of Pisgah eastward.
+17 The plain also, and Jordan, and the coast thereof, from Chinnereth even unto the sea of the plain, even the salt sea, under Ashdothpisgah eastward.
 
-18. I commanded you at that time, saying, "Yahweh your God has given you this land to possess it: you shall pass over armed before your brothers the children of Israel, all the men of valor.
+18 And I commanded you at that time, saying, The Lord your God hath given you this land to possess it: ye shall pass over armed before your brethren the children of Israel, all that are meet for the war.
 
-19. But your wives, and your little ones, and your livestock, (I know that you have much livestock), shall abide in your cities which I have given you,
+19 But your wives, and your little ones, and your cattle, (for I know that ye have much cattle,) shall abide in your cities which I have given you;
 
-20. until Yahweh gives rest to your brothers, as to you, and they also possess the land which Yahweh your God gives them beyond the Jordan: then you shall return every man to his possession, which I have given you."
+20 Until the Lord have given rest unto your brethren, as well as unto you, and until they also possess the land which the Lord your God hath given them beyond Jordan: and then shall ye return every man unto his possession, which I have given you.
 
-21. I commanded Joshua at that time, saying, "Your eyes have seen all that Yahweh your God has done to these two kings: so shall Yahweh do to all the kingdoms where you go over.
+21 And I commanded Joshua at that time, saying, Thine eyes have seen all that the Lord your God hath done unto these two kings: so shall the Lord do unto all the kingdoms whither thou passest.
 
-22. You shall not fear them; for Yahweh your God, he it is who fights for you."
+22 Ye shall not fear them: for the Lord your God he shall fight for you.
 
-23. I begged Yahweh at that time, saying,
+23 And I besought the Lord at that time, saying,
 
-24. "Lord Yahweh, you have begun to show your servant your greatness, and your strong hand: for what god is there in heaven or in earth, that can do according to your works, and according to your mighty acts?
+24 O Lord God, thou hast begun to shew thy servant thy greatness, and thy mighty hand: for what God is there in heaven or in earth, that can do according to thy works, and according to thy might?
 
-25. Please let me go over and see the good land that is beyond the Jordan, that goodly mountain, and Lebanon."
+25 I pray thee, let me go over, and see the good land that is beyond Jordan, that goodly mountain, and Lebanon.
 
-26. But Yahweh was angry with me for your sakes, and didn't listen to me; and Yahweh said to me, "Let it suffice you; speak no more to me of this matter.
+26 But the Lord was wroth with me for your sakes, and would not hear me: and the Lord said unto me, Let it suffice thee; speak no more unto me of this matter.
 
-27. Go up to the top of Pisgah, and lift up your eyes westward, and northward, and southward, and eastward, and see with your eyes: for you shall not go over this Jordan.
+27 Get thee up into the top of Pisgah, and lift up thine eyes westward, and northward, and southward, and eastward, and behold it with thine eyes: for thou shalt not go over this Jordan.
 
-28. But commission Joshua, and encourage him, and strengthen him; for he shall go over before this people, and he shall cause them to inherit the land which you shall see."
+28 But charge Joshua, and encourage him, and strengthen him: for he shall go over before this people, and he shall cause them to inherit the land which thou shalt see.
 
-29. So we abode in the valley over against Beth Peor.
+29 So we abode in the valley over against Bethpeor.
 
 
-## Chapter 4
+## Deuteronomy Chapter 4
 
-1. Now, Israel, listen to the statutes and to the ordinances, which I teach you, to do them; that you may live, and go in and possess the land which Yahweh, the God of your fathers, gives you.
+1 Now therefore hearken, O Israel, unto the statutes and unto the judgments, which I teach you, for to do them, that ye may live, and go in and possess the land which the Lord God of your fathers giveth you.
 
-2. You shall not add to the word which I command you, neither shall you diminish from it, that you may keep the commandments of Yahweh your God which I command you.
+2 Ye shall not add unto the word which I command you, neither shall ye diminish ought from it, that ye may keep the commandments of the Lord your God which I command you.
 
-3. Your eyes have seen what Yahweh did because of Baal Peor; for all the men who followed Baal Peor, Yahweh your God has destroyed them from the midst of you.
+3 Your eyes have seen what the Lord did because of Baalpeor: for all the men that followed Baalpeor, the Lord thy God hath destroyed them from among you.
 
-4. But you who did cling to Yahweh your God are all alive this day.
+4 But ye that did cleave unto the Lord your God are alive every one of you this day.
 
-5. Behold, I have taught you statutes and ordinances, even as Yahweh my God commanded me, that you should do so in the midst of the land where you go in to possess it.
+5 Behold, I have taught you statutes and judgments, even as the Lord my God commanded me, that ye should do so in the land whither ye go to possess it.
 
-6. Keep therefore and do them; for this is your wisdom and your understanding in the sight of the peoples, who shall hear all these statutes, and say, "Surely this great nation is a wise and understanding people."
+6 Keep therefore and do them; for this is your wisdom and your understanding in the sight of the nations, which shall hear all these statutes, and say, Surely this great nation is a wise and understanding people.
 
-7. For what great nation is there, that has a god so near to them, as Yahweh our God is whenever we call on him?
+7 For what nation is there so great, who hath God so nigh unto them, as the Lord our God is in all things that we call upon him for?
 
-8. What great nation is there, that has statutes and ordinances so righteous as all this law, which I set before you this day?
+8 And what nation is there so great, that hath statutes and judgments so righteous as all this law, which I set before you this day?
 
-9. Only take heed to yourself, and keep your soul diligently, lest you forget the things which your eyes saw, and lest they depart from your heart all the days of your life; but make them known to your children and your children's children;
+9 Only take heed to thyself, and keep thy soul diligently, lest thou forget the things which thine eyes have seen, and lest they depart from thy heart all the days of thy life: but teach them thy sons, and thy sons' sons;
 
-10. the day that you stood before Yahweh your God in Horeb, when Yahweh said to me, "Assemble me the people, and I will make them hear my words, that they may learn to fear me all the days that they live on the earth, and that they may teach their children."
+10 Specially the day that thou stoodest before the Lord thy God in Horeb, when the Lord said unto me, Gather me the people together, and I will make them hear my words, that they may learn to fear me all the days that they shall live upon the earth, and that they may teach their children.
 
-11. You came near and stood under the mountain; and the mountain burned with fire to the heart of the sky, with darkness, cloud, and thick darkness.
+11 And ye came near and stood under the mountain; and the mountain burned with fire unto the midst of heaven, with darkness, clouds, and thick darkness.
 
-12. Yahweh spoke to you out of the midst of the fire: you heard the voice of words, but you saw no form; only [you heard] a voice.
+12 And the Lord spake unto you out of the midst of the fire: ye heard the voice of the words, but saw no similitude; only ye heard a voice.
 
-13. He declared to you his covenant, which he commanded you to perform, even the ten commandments; and he wrote them on two tables of stone.
+13 And he declared unto you his covenant, which he commanded you to perform, even ten commandments; and he wrote them upon two tables of stone.
 
-14. Yahweh commanded me at that time to teach you statutes and ordinances, that you might do them in the land where you go over to possess it.
+14 And the Lord commanded me at that time to teach you statutes and judgments, that ye might do them in the land whither ye go over to possess it.
 
-15. Take therefore good heed to yourselves; for you saw no manner of form on the day that Yahweh spoke to you in Horeb out of the midst of the fire.
+15 Take ye therefore good heed unto yourselves; for ye saw no manner of similitude on the day that the Lord spake unto you in Horeb out of the midst of the fire:
 
-16. Lest you corrupt yourselves, and make yourself an engraved image in the form of any figure, the likeness of male or female,
+16 Lest ye corrupt yourselves, and make you a graven image, the similitude of any figure, the likeness of male or female,
 
-17. the likeness of any animal that is on the earth, the likeness of any winged bird that flies in the sky,
+17 The likeness of any beast that is on the earth, the likeness of any winged fowl that flieth in the air,
 
-18. the likeness of anything that creeps on the ground, the likeness of any fish that is in the water under the earth;
+18 The likeness of any thing that creepeth on the ground, the likeness of any fish that is in the waters beneath the earth:
 
-19. and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you are drawn away and worship them, and serve them, which Yahweh your God has allotted to all the peoples under the whole sky.
+19 And lest thou lift up thine eyes unto heaven, and when thou seest the sun, and the moon, and the stars, even all the host of heaven, shouldest be driven to worship them, and serve them, which the Lord thy God hath divided unto all nations under the whole heaven.
 
-20. But Yahweh has taken you, and brought you forth out of the iron furnace, out of Egypt, to be to him a people of inheritance, as at this day.
+20 But the Lord hath taken you, and brought you forth out of the iron furnace, even out of Egypt, to be unto him a people of inheritance, as ye are this day.
 
-21. Furthermore Yahweh was angry with me for your sakes, and swore that I should not go over the Jordan, and that I should not go in to that good land, which Yahweh your God gives you for an inheritance:
+21 Furthermore the Lord was angry with me for your sakes, and sware that I should not go over Jordan, and that I should not go in unto that good land, which the Lord thy God giveth thee for an inheritance:
 
-22. but I must die in this land, I must not go over the Jordan; but you shall go over, and possess that good land.
+22 But I must die in this land, I must not go over Jordan: but ye shall go over, and possess that good land.
 
-23. Take heed to yourselves, lest you forget the covenant of Yahweh your God, which he made with you, and make you an engraved image in the form of anything which Yahweh your God has forbidden you.
+23 Take heed unto yourselves, lest ye forget the covenant of the Lord your God, which he made with you, and make you a graven image, or the likeness of any thing, which the Lord thy God hath forbidden thee.
 
-24. For Yahweh your God is a devouring fire, a jealous God.
+24 For the Lord thy God is a consuming fire, even a jealous God.
 
-25. When you shall father children, and children's children, and you shall have been long in the land, and shall corrupt yourselves, and make an engraved image in the form of anything, and shall do that which is evil in the sight of Yahweh your God, to provoke him to anger;
+25 When thou shalt beget children, and children's children, and ye shall have remained long in the land, and shall corrupt yourselves, and make a graven image, or the likeness of any thing, and shall do evil in the sight of the Lord thy God, to provoke him to anger:
 
-26. I call heaven and earth to witness against you this day, that you shall soon utterly perish from off the land whereunto you go over the Jordan to possess it; you shall not prolong your days on it, but shall utterly be destroyed.
+26 I call heaven and earth to witness against you this day, that ye shall soon utterly perish from off the land whereunto ye go over Jordan to possess it; ye shall not prolong your days upon it, but shall utterly be destroyed.
 
-27. Yahweh will scatter you among the peoples, and you shall be left few in number among the nations, where Yahweh shall lead you away.
+27 And the Lord shall scatter you among the nations, and ye shall be left few in number among the heathen, whither the Lord shall lead you.
 
-28. There you shall serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell.
+28 And there ye shall serve gods, the work of men's hands, wood and stone, which neither see, nor hear, nor eat, nor smell.
 
-29. But from there you shall seek Yahweh your God, and you shall find him, when you search after him with all your heart and with all your soul.
+29 But if from thence thou shalt seek the Lord thy God, thou shalt find him, if thou seek him with all thy heart and with all thy soul.
 
-30. When you are in oppression, and all these things are come on you, in the latter days you shall return to Yahweh your God, and listen to his voice:
+30 When thou art in tribulation, and all these things are come upon thee, even in the latter days, if thou turn to the Lord thy God, and shalt be obedient unto his voice;
 
-31. for Yahweh your God is a merciful God; he will not fail you, neither destroy you, nor forget the covenant of your fathers which he swore to them.
+31 (For the Lord thy God is a merciful God;) he will not forsake thee, neither destroy thee, nor forget the covenant of thy fathers which he sware unto them.
 
-32. For ask now of the days that are past, which were before you, since the day that God created man on the earth, and from the one end of the sky to the other, whether there has been [any such thing] as this great thing is, or has been heard like it?
+32 For ask now of the days that are past, which were before thee, since the day that God created man upon the earth, and ask from the one side of heaven unto the other, whether there hath been any such thing as this great thing is, or hath been heard like it?
 
-33. Did ever a people hear the voice of God speaking out of the midst of the fire, as you have heard, and live?
+33 Did ever people hear the voice of God speaking out of the midst of the fire, as thou hast heard, and live?
 
-34. Or has God tried to go and take him a nation from the midst of [another] nation, by trials, by signs, and by wonders, and by war, and by a mighty hand, and by an outstretched arm, and by great terrors, according to all that Yahweh your God did for you in Egypt before your eyes?
+34 Or hath God assayed to go and take him a nation from the midst of another nation, by temptations, by signs, and by wonders, and by war, and by a mighty hand, and by a stretched out arm, and by great terrors, according to all that the Lord your God did for you in Egypt before your eyes?
 
-35. It was shown to you so that you might know that Yahweh is God. There is no one else besides him.
+35 Unto thee it was shewed, that thou mightest know that the Lord he is God; there is none else beside him.
 
-36. Out of heaven he made you to hear his voice, that he might instruct you: and on earth he made you to see his great fire; and you heard his words out of the midst of the fire.
+36 Out of heaven he made thee to hear his voice, that he might instruct thee: and upon earth he shewed thee his great fire; and thou heardest his words out of the midst of the fire.
 
-37. Because he loved your fathers, therefore he chose their seed after them, and brought you out with his presence, with his great power, out of Egypt;
+37 And because he loved thy fathers, therefore he chose their seed after them, and brought thee out in his sight with his mighty power out of Egypt;
 
-38. to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as at this day.
+38 To drive out nations from before thee greater and mightier than thou art, to bring thee in, to give thee their land for an inheritance, as it is this day.
 
-39. Know therefore this day, and lay it to your heart, that Yahweh he is God in heaven above and on the earth beneath; there is none else.
+39 Know therefore this day, and consider it in thine heart, that the Lord he is God in heaven above, and upon the earth beneath: there is none else.
 
-40. You shall keep his statutes, and his commandments, which I command you this day, that it may go well with you, and with your children after you, and that you may prolong your days in the land, which Yahweh your God gives you, forever.
+40 Thou shalt keep therefore his statutes, and his commandments, which I command thee this day, that it may go well with thee, and with thy children after thee, and that thou mayest prolong thy days upon the earth, which the Lord thy God giveth thee, for ever.
 
-41. Then Moses set apart three cities beyond the Jordan toward the sunrise;
+41 Then Moses severed three cities on this side Jordan toward the sunrising;
 
-42. that the manslayer might flee there, who kills his neighbor unawares, and didn't hate him in time past; and that fleeing to one of these cities he might live:
+42 That the slayer might flee thither, which should kill his neighbour unawares, and hated him not in times past; and that fleeing unto one of these cities he might live:
 
-43. [namely], Bezer in the wilderness, in the plain country, for the Reubenites; and Ramoth in Gilead, for the Gadites; and Golan in Bashan, for the Manassites.
+43 Namely, Bezer in the wilderness, in the plain country, of the Reubenites; and Ramoth in Gilead, of the Gadites; and Golan in Bashan, of the Manassites.
 
-44. This is the law which Moses set before the children of Israel:
+44 And this is the law which Moses set before the children of Israel:
 
-45. these are the testimonies, and the statutes, and the ordinances, which Moses spoke to the children of Israel, when they came forth out of Egypt,
+45 These are the testimonies, and the statutes, and the judgments, which Moses spake unto the children of Israel, after they came forth out of Egypt.
 
-46. beyond the Jordan, in the valley over against Beth Peor, in the land of Sihon king of the Amorites, who lived at Heshbon, whom Moses and the children of Israel struck, when they came forth out of Egypt.
+46 On this side Jordan, in the valley over against Bethpeor, in the land of Sihon king of the Amorites, who dwelt at Heshbon, whom Moses and the children of Israel smote, after they were come forth out of Egypt:
 
-47. They took his land in possession, and the land of Og king of Bashan, the two kings of the Amorites, who were beyond the Jordan toward the sunrise;
+47 And they possessed his land, and the land of Og king of Bashan, two kings of the Amorites, which were on this side Jordan toward the sunrising;
 
-48. from Aroer, which is on the edge of the valley of the Arnon, even to Mount Sion (the same is Hermon),
+48 From Aroer, which is by the bank of the river Arnon, even unto mount Sion, which is Hermon,
 
-49. and all the Arabah beyond the Jordan eastward, even to the sea of the Arabah, under the slopes of Pisgah.
+49 And all the plain on this side Jordan eastward, even unto the sea of the plain, under the springs of Pisgah.
 
 
-## Chapter 5
+## Deuteronomy Chapter 5
 
-1. Moses called to all Israel, and said to them, Hear, Israel, the statutes and the ordinances which I speak in your ears this day, that you may learn them, and observe to do them.
+1 And Moses called all Israel, and said unto them, Hear, O Israel, the statutes and judgments which I speak in your ears this day, that ye may learn them, and keep, and do them.
 
-2. Yahweh our God made a covenant with us in Horeb.
+2 The Lord our God made a covenant with us in Horeb.
 
-3. Yahweh didn't make this covenant with our fathers, but with us, even us, who are all of us here alive this day.
+3 The Lord made not this covenant with our fathers, but with us, even us, who are all of us here alive this day.
 
-4. Yahweh spoke with you face to face on the mountain out of the midst of the fire,
+4 The Lord talked with you face to face in the mount out of the midst of the fire,
 
-5. (I stood between Yahweh and you at that time, to show you the word of Yahweh: for you were afraid because of the fire, and didn't go up onto the mountain;) saying,
+5 (I stood between the Lord and you at that time, to shew you the word of the Lord: for ye were afraid by reason of the fire, and went not up into the mount;) saying,
 
-6. "I am Yahweh your God, who brought you out of the land of Egypt, out of the house of bondage.
+6 I am the Lord thy God, which brought thee out of the land of Egypt, from the house of bondage.
 
-7. "You shall have no other gods before me.
+7 Thou shalt have none other gods before me.
 
-8. "You shall not make an engraved image for yourself, [nor] any likeness [of anything] that is in heaven above, or that is in the earth beneath, or that is in the water under the earth:
+8 Thou shalt not make thee any graven image, or any likeness of any thing that is in heaven above, or that is in the earth beneath, or that is in the waters beneath the earth:
 
-9. you shall not bow down yourself to them, nor serve them; for I, Yahweh, your God, am a jealous God, visiting the iniquity of the fathers on the children, and on the third and on the fourth generation of those who hate me;
+9 Thou shalt not bow down thyself unto them, nor serve them: for I the Lord thy God am a jealous God, visiting the iniquity of the fathers upon the children unto the third and fourth generation of them that hate me,
 
-10. and showing loving kindness to thousands of those who love me and keep my commandments.
+10 And shewing mercy unto thousands of them that love me and keep my commandments.
 
-11. "You shall not take the name of Yahweh your God in vain: for Yahweh will not hold him guiltless who takes his name in vain.
+11 Thou shalt not take the name of the Lord thy God in vain: for the Lord will not hold him guiltless that taketh his name in vain.
 
-12. "Observe the Sabbath day, to keep it holy, as Yahweh your God commanded you.
+12 Keep the sabbath day to sanctify it, as the Lord thy God hath commanded thee.
 
-13. You shall labor six days, and do all your work;
+13 Six days thou shalt labour, and do all thy work:
 
-14. but the seventh day is a Sabbath to Yahweh your God, in which you shall not do any work, you, nor your son, nor your daughter, nor your male servant, nor your female servant, nor your ox, nor your donkey, nor any of your livestock, nor your stranger who is within your gates; that your male servant and your female servant may rest as well as you.
+14 But the seventh day is the sabbath of the Lord thy God: in it thou shalt not do any work, thou, nor thy son, nor thy daughter, nor thy manservant, nor thy maidservant, nor thine ox, nor thine ass, nor any of thy cattle, nor thy stranger that is within thy gates; that thy manservant and thy maidservant may rest as well as thou.
 
-15. You shall remember that you were a servant in the land of Egypt, and Yahweh your God brought you out of there by a mighty hand and by an outstretched arm: therefore Yahweh your God commanded you to keep the Sabbath day.
+15 And remember that thou wast a servant in the land of Egypt, and that the Lord thy God brought thee out thence through a mighty hand and by a stretched out arm: therefore the Lord thy God commanded thee to keep the sabbath day.
 
-16. "Honor your father and your mother, as Yahweh your God commanded you; that your days may be long, and that it may go well with you, in the land which Yahweh your God gives you.
+16 Honour thy father and thy mother, as the Lord thy God hath commanded thee; that thy days may be prolonged, and that it may go well with thee, in the land which the Lord thy God giveth thee.
 
-17. "You shall not murder.
+17 Thou shalt not kill.
 
-18. "Neither shall you commit adultery.
+18 Neither shalt thou commit adultery.
 
-19. "Neither shall you steal.
+19 Neither shalt thou steal.
 
-20. "Neither shall you give false testimony against your neighbor.
+20 Neither shalt thou bear false witness against thy neighbour.
 
-21. "Neither shall you covet your neighbor's wife; neither shall you desire your neighbor's house, his field, or his male servant, or his female servant, his ox, or his donkey, or anything that is your neighbor's."
+21 Neither shalt thou desire thy neighbour's wife, neither shalt thou covet thy neighbour's house, his field, or his manservant, or his maidservant, his ox, or his ass, or any thing that is thy neighbour's.
 
-22. These words Yahweh spoke to all your assembly on the mountain out of the midst of the fire, of the cloud, and of the thick darkness, with a great voice: and he added no more. He wrote them on two tables of stone, and gave them to me.
+22 These words the Lord spake unto all your assembly in the mount out of the midst of the fire, of the cloud, and of the thick darkness, with a great voice: and he added no more. And he wrote them in two tables of stone, and delivered them unto me.
 
-23. It happened, when you heard the voice out of the midst of the darkness, while the mountain was burning with fire, that you came near to me, even all the heads of your tribes, and your elders;
+23 And it came to pass, when ye heard the voice out of the midst of the darkness, (for the mountain did burn with fire,) that ye came near unto me, even all the heads of your tribes, and your elders;
 
-24. and you said, "Behold, Yahweh our God has shown us his glory and his greatness, and we have heard his voice out of the midst of the fire: we have seen this day that God does speak with man, and he lives.
+24 And ye said, Behold, the Lord our God hath shewed us his glory and his greatness, and we have heard his voice out of the midst of the fire: we have seen this day that God doth talk with man, and he liveth.
 
-25. Now therefore why should we die? For this great fire will consume us: if we hear the voice of Yahweh our God any more, then we shall die.
+25 Now therefore why should we die? for this great fire will consume us: if we hear the voice of the Lord our God any more, then we shall die.
 
-26. For who is there of all flesh, that has heard the voice of the living God speaking out of the midst of the fire, as we have, and lived?
+26 For who is there of all flesh, that hath heard the voice of the living God speaking out of the midst of the fire, as we have, and lived?
 
-27. Go near, and hear all that Yahweh our God shall say: and tell us all that Yahweh our God shall tell you; and we will hear it, and do it."
+27 Go thou near, and hear all that the Lord our God shall say: and speak thou unto us all that the Lord our God shall speak unto thee; and we will hear it, and do it.
 
-28. Yahweh heard the voice of your words, when you spoke to me; and Yahweh said to me, "I have heard the voice of the words of this people, which they have spoken to you: they have well said all that they have spoken.
+28 And the Lord heard the voice of your words, when ye spake unto me; and the Lord said unto me, I have heard the voice of the words of this people, which they have spoken unto thee: they have well said all that they have spoken.
 
-29. Oh that there were such a heart in them, that they would fear me, and keep all my commandments always, that it might be well with them, and with their children forever!
+29 O that there were such an heart in them, that they would fear me, and keep all my commandments always, that it might be well with them, and with their children for ever!
 
-30. "Go tell them, Return to your tents.
+30 Go say to them, Get you into your tents again.
 
-31. But as for you, stand here by me, and I will tell you all the commandment, and the statutes, and the ordinances, which you shall teach them, that they may do them in the land which I give them to possess it."
+31 But as for thee, stand thou here by me, and I will speak unto thee all the commandments, and the statutes, and the judgments, which thou shalt teach them, that they may do them in the land which I give them to possess it.
 
-32. You shall observe to do therefore as Yahweh your God has commanded you: you shall not turn aside to the right hand or to the left.
+32 Ye shall observe to do therefore as the Lord your God hath commanded you: ye shall not turn aside to the right hand or to the left.
 
-33. You shall walk in all the way which Yahweh your God has commanded you, that you may live, and that it may be well with you, and that you may prolong your days in the land which you shall possess.
+33 Ye shall walk in all the ways which the Lord your God hath commanded you, that ye may live, and that it may be well with you, and that ye may prolong your days in the land which ye shall possess.
 
 
-## Chapter 6
+## Deuteronomy Chapter 6
 
-1. Now this is the commandment, the statutes, and the ordinances, which Yahweh your God commanded to teach you, that you might do them in the land where you go over to possess it;
+1 Now these are the commandments, the statutes, and the judgments, which the Lord your God commanded to teach you, that ye might do them in the land whither ye go to possess it:
 
-2. that you might fear Yahweh your God, to keep all his statutes and his commandments, which I command you, you, and your son, and your son's son, all the days of your life; and that your days may be prolonged.
+2 That thou mightest fear the Lord thy God, to keep all his statutes and his commandments, which I command thee, thou, and thy son, and thy son's son, all the days of thy life; and that thy days may be prolonged.
 
-3. Hear therefore, Israel, and observe to do it; that it may be well with you, and that you may increase mightily, as Yahweh, the God of your fathers, has promised to you, in a land flowing with milk and honey.
+3 Hear therefore, O Israel, and observe to do it; that it may be well with thee, and that ye may increase mightily, as the Lord God of thy fathers hath promised thee, in the land that floweth with milk and honey.
 
-4. Hear, Israel: Yahweh is our God; Yahweh is one:
+4 Hear, O Israel: The Lord our God is one Lord:
 
-5. and you shall love Yahweh your God with all your heart, and with all your soul, and with all your might.
+5 And thou shalt love the Lord thy God with all thine heart, and with all thy soul, and with all thy might.
 
-6. These words, which I command you this day, shall be on your heart;
+6 And these words, which I command thee this day, shall be in thine heart:
 
-7. and you shall teach them diligently to your children, and shall talk of them when you sit in your house, and when you walk by the way, and when you lie down, and when you rise up.
+7 And thou shalt teach them diligently unto thy children, and shalt talk of them when thou sittest in thine house, and when thou walkest by the way, and when thou liest down, and when thou risest up.
 
-8. You shall bind them for a sign on your hand, and they shall be for symbols between your eyes.
+8 And thou shalt bind them for a sign upon thine hand, and they shall be as frontlets between thine eyes.
 
-9. You shall write them on the door posts of your house, and on your gates.
+9 And thou shalt write them upon the posts of thy house, and on thy gates.
 
-10. It shall be, when Yahweh your God shall bring you into the land which he swore to your fathers, to Abraham, to Isaac, and to Jacob, to give you, great and goodly cities, which you didn't build,
+10 And it shall be, when the Lord thy God shall have brought thee into the land which he sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give thee great and goodly cities, which thou buildedst not,
 
-11. and houses full of all good things, which you didn't fill, and cisterns dug out, which you didn't dig, vineyards and olive trees, which you didn't plant, and you shall eat and be full;
+11 And houses full of all good things, which thou filledst not, and wells digged, which thou diggedst not, vineyards and olive trees, which thou plantedst not; when thou shalt have eaten and be full;
 
-12. then beware lest you forget Yahweh, who brought you forth out of the land of Egypt, out of the house of bondage.
+12 Then beware lest thou forget the Lord, which brought thee forth out of the land of Egypt, from the house of bondage.
 
-13. You shall fear Yahweh your God; and you shall serve him, and shall swear by his name.
+13 Thou shalt fear the Lord thy God, and serve him, and shalt swear by his name.
 
-14. You shall not go after other gods, of the gods of the peoples who are around you;
+14 Ye shall not go after other gods, of the gods of the people which are round about you;
 
-15. for Yahweh your God in the midst of you is a jealous God; lest the anger of Yahweh your God be kindled against you, and he destroy you from off the face of the earth.
+15 (For the Lord thy God is a jealous God among you) lest the anger of the Lord thy God be kindled against thee, and destroy thee from off the face of the earth.
 
-16. You shall not tempt Yahweh your God, as you tempted him in Massah.
+16 Ye shall not tempt the Lord your God, as ye tempted him in Massah.
 
-17. You shall diligently keep the commandments of Yahweh your God, and his testimonies, and his statutes, which he has commanded you.
+17 Ye shall diligently keep the commandments of the Lord your God, and his testimonies, and his statutes, which he hath commanded thee.
 
-18. You shall do that which is right and good in the sight of Yahweh; that it may be well with you, and that you may go in and possess the good land which Yahweh swore to your fathers,
+18 And thou shalt do that which is right and good in the sight of the Lord: that it may be well with thee, and that thou mayest go in and possess the good land which the Lord sware unto thy fathers.
 
-19. to thrust out all your enemies from before you, as Yahweh has spoken.
+19 To cast out all thine enemies from before thee, as the Lord hath spoken.
 
-20. When your son asks you in time to come, saying, "What do the testimonies, the statutes, and the ordinances, which Yahweh our God has commanded you mean?"
+20 And when thy son asketh thee in time to come, saying, What mean the testimonies, and the statutes, and the judgments, which the Lord our God hath commanded you?
 
-21. then you shall tell your son, "We were Pharaoh's bondservants in Egypt: and Yahweh brought us out of Egypt with a mighty hand;
+21 Then thou shalt say unto thy son, We were Pharaoh's bondmen in Egypt; and the Lord brought us out of Egypt with a mighty hand:
 
-22. and Yahweh showed great and awesome signs and wonders on Egypt, on Pharaoh, and on all his house, before our eyes;
+22 And the Lord shewed signs and wonders, great and sore, upon Egypt, upon Pharaoh, and upon all his household, before our eyes:
 
-23. and he brought us out from there, that he might bring us in, to give us the land which he swore to our fathers.
+23 And he brought us out from thence, that he might bring us in, to give us the land which he sware unto our fathers.
 
-24. Yahweh commanded us to do all these statutes, to fear Yahweh our God, for our good always, that he might preserve us alive, as at this day.
+24 And the Lord commanded us to do all these statutes, to fear the Lord our God, for our good always, that he might preserve us alive, as it is at this day.
 
-25. It shall be righteousness to us, if we observe to do all this commandment before Yahweh our God, as he has commanded us."
+25 And it shall be our righteousness, if we observe to do all these commandments before the Lord our God, as he hath commanded us.
 
 
-## Chapter 7
+## Deuteronomy Chapter 7
 
-1. When Yahweh your God shall bring you into the land where you go to possess it, and shall cast out many nations before you, the Hittite, and the Girgashite, and the Amorite, and the Canaanite, and the Perizzite, and the Hivite, and the Jebusite, seven nations greater and mightier than you;
+1 When the Lord thy God shall bring thee into the land whither thou goest to possess it, and hath cast out many nations before thee, the Hittites, and the Girgashites, and the Amorites, and the Canaanites, and the Perizzites, and the Hivites, and the Jebusites, seven nations greater and mightier than thou;
 
-2. and when Yahweh your God shall deliver them up before you, and you shall strike them; then you shall utterly destroy them: you shall make no covenant with them, nor show mercy to them;
+2 And when the Lord thy God shall deliver them before thee; thou shalt smite them, and utterly destroy them; thou shalt make no covenant with them, nor shew mercy unto them:
 
-3. neither shall you make marriages with them; your daughter you shall not give to his son, nor shall you take his daughter for your son.
+3 Neither shalt thou make marriages with them; thy daughter thou shalt not give unto his son, nor his daughter shalt thou take unto thy son.
 
-4. For he will turn away your son from following me, that they may serve other gods: so the anger of Yahweh would be kindled against you, and he would destroy you quickly.
+4 For they will turn away thy son from following me, that they may serve other gods: so will the anger of the Lord be kindled against you, and destroy thee suddenly.
 
-5. But you shall deal with them like this: you shall break down their altars, and dash their pillars in pieces, and cut down their Asherim, and burn their engraved images with fire.
+5 But thus shall ye deal with them; ye shall destroy their altars, and break down their images, and cut down their groves, and burn their graven images with fire.
 
-6. For you are a holy people to Yahweh your God: Yahweh your God has chosen you to be a people for his own possession, above all peoples who are on the face of the earth.
+6 For thou art an holy people unto the Lord thy God: the Lord thy God hath chosen thee to be a special people unto himself, above all people that are upon the face of the earth.
 
-7. Yahweh didn't set his love on you, nor choose you, because you were more in number than any people; for you were the fewest of all peoples:
+7 The Lord did not set his love upon you, nor choose you, because ye were more in number than any people; for ye were the fewest of all people:
 
-8. but because Yahweh loves you, and because he would keep the oath which he swore to your fathers, has Yahweh brought you out with a mighty hand, and redeemed you out of the house of bondage, from the hand of Pharaoh king of Egypt.
+8 But because the Lord loved you, and because he would keep the oath which he had sworn unto your fathers, hath the Lord brought you out with a mighty hand, and redeemed you out of the house of bondmen, from the hand of Pharaoh king of Egypt.
 
-9. Know therefore that Yahweh your God, he is God, the faithful God, who keeps covenant and loving kindness with them who love him and keep his commandments to a thousand generations,
+9 Know therefore that the Lord thy God, he is God, the faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations;
 
-10. and repays those who hate him to their face, to destroy them: he will not be slack to him who hates him, he will repay him to his face.
+10 And repayeth them that hate him to their face, to destroy them: he will not be slack to him that hateth him, he will repay him to his face.
 
-11. You shall therefore keep the commandment, and the statutes, and the ordinances, which I command you this day, to do them.
+11 Thou shalt therefore keep the commandments, and the statutes, and the judgments, which I command thee this day, to do them.
 
-12. It shall happen, because you listen to these ordinances, and keep and do them, that Yahweh your God will keep with you the covenant and the loving kindness which he swore to your fathers:
+12 Wherefore it shall come to pass, if ye hearken to these judgments, and keep, and do them, that the Lord thy God shall keep unto thee the covenant and the mercy which he sware unto thy fathers:
 
-13. and he will love you, and bless you, and multiply you; he will also bless the fruit of your body and the fruit of your ground, your grain and your new wine and your oil, the increase of your livestock and the young of your flock, in the land which he swore to your fathers to give you.
+13 And he will love thee, and bless thee, and multiply thee: he will also bless the fruit of thy womb, and the fruit of thy land, thy corn, and thy wine, and thine oil, the increase of thy kine, and the flocks of thy sheep, in the land which he sware unto thy fathers to give thee.
 
-14. You shall be blessed above all peoples: there shall not be male or female barren among you, or among your livestock.
+14 Thou shalt be blessed above all people: there shall not be male or female barren among you, or among your cattle.
 
-15. Yahweh will take away from you all sickness; and none of the evil diseases of Egypt, which you know, he will put on you, but will lay them on all those who hate you.
+15 And the Lord will take away from thee all sickness, and will put none of the evil diseases of Egypt, which thou knowest, upon thee; but will lay them upon all them that hate thee.
 
-16. You shall consume all the peoples whom Yahweh your God shall deliver to you; your eye shall not pity them: neither shall you serve their gods; for that will be a snare to you.
+16 And thou shalt consume all the people which the Lord thy God shall deliver thee; thine eye shall have no pity upon them: neither shalt thou serve their gods; for that will be a snare unto thee.
 
-17. If you shall say in your heart, "These nations are more than I; how can I dispossess them?"
+17 If thou shalt say in thine heart, These nations are more than I; how can I dispossess them?
 
-18. you shall not be afraid of them: you shall well remember what Yahweh your God did to Pharaoh, and to all Egypt;
+18 Thou shalt not be afraid of them: but shalt well remember what the Lord thy God did unto Pharaoh, and unto all Egypt;
 
-19. the great trials which your eyes saw, and the signs, and the wonders, and the mighty hand, and the outstretched arm, by which Yahweh your God brought you out: so shall Yahweh your God do to all the peoples of whom you are afraid.
+19 The great temptations which thine eyes saw, and the signs, and the wonders, and the mighty hand, and the stretched out arm, whereby the Lord thy God brought thee out: so shall the Lord thy God do unto all the people of whom thou art afraid.
 
-20. Moreover Yahweh your God will send the hornet among them, until those who are left, and hide themselves, perish from before you.
+20 Moreover the Lord thy God will send the hornet among them, until they that are left, and hide themselves from thee, be destroyed.
 
-21. You shall not be scared of them; for Yahweh your God is in the midst of you, a great and awesome God.
+21 Thou shalt not be affrighted at them: for the Lord thy God is among you, a mighty God and terrible.
 
-22. Yahweh your God will cast out those nations before you by little and little: you may not consume them at once, lest the animals of the field increase on you.
+22 And the Lord thy God will put out those nations before thee by little and little: thou mayest not consume them at once, lest the beasts of the field increase upon thee.
 
-23. But Yahweh your God will deliver them up before you, and will confuse them with a great confusion, until they be destroyed.
+23 But the Lord thy God shall deliver them unto thee, and shall destroy them with a mighty destruction, until they be destroyed.
 
-24. He will deliver their kings into your hand, and you shall make their name to perish from under the sky: there shall no man be able to stand before you, until you have destroyed them.
+24 And he shall deliver their kings into thine hand, and thou shalt destroy their name from under heaven: there shall no man be able to stand before thee, until thou have destroyed them.
 
-25. You shall burn the engraved images of their gods with fire. You shall not covet the silver or the gold that is on them, nor take it for yourself, lest you be snared in it; for it is an abomination to Yahweh your God.
+25 The graven images of their gods shall ye burn with fire: thou shalt not desire the silver or gold that is on them, nor take it unto thee, lest thou be snared therin: for it is an abomination to the Lord thy God.
 
-26. You shall not bring an abomination into your house, and become a devoted thing like it. You shall utterly detest it, and you shall utterly abhor it; for it is a devoted thing.
+26 Neither shalt thou bring an abomination into thine house, lest thou be a cursed thing like it: but thou shalt utterly detest it, and thou shalt utterly abhor it; for it is a cursed thing.
 
 
-## Chapter 8
+## Deuteronomy Chapter 8
 
-1. You shall observe to do all the commandment which I command you this day, that you may live, and multiply, and go in and possess the land which Yahweh swore to your fathers.
+1 All the commandments which I command thee this day shall ye observe to do, that ye may live, and multiply, and go in and possess the land which the Lord sware unto your fathers.
 
-2. You shall remember all the way which Yahweh your God has led you these forty years in the wilderness, that he might humble you, to prove you, to know what was in your heart, whether you would keep his commandments, or not.
+2 And thou shalt remember all the way which the Lord thy God led thee these forty years in the wilderness, to humble thee, and to prove thee, to know what was in thine heart, whether thou wouldest keep his commandments, or no.
 
-3. He humbled you, and allowed you to hunger, and fed you with manna, which you didn't know, neither did your fathers know; that he might make you know that man does not live by bread only, but by everything that proceeds out of the mouth of Yahweh does man live.
+3 And he humbled thee, and suffered thee to hunger, and fed thee with manna, which thou knewest not, neither did thy fathers know; that he might make thee know that man doth not live by bread only, but by every word that proceedeth out of the mouth of the Lord doth man live.
 
-4. Your clothing didn't grow old on you, neither did your foot swell, these forty years.
+4 Thy raiment waxed not old upon thee, neither did thy foot swell, these forty years.
 
-5. You shall consider in your heart that as a man chastens his son, so Yahweh your God chastens you.
+5 Thou shalt also consider in thine heart, that, as a man chasteneth his son, so the Lord thy God chasteneth thee.
 
-6. You shall keep the commandments of Yahweh your God, to walk in his ways, and to fear him.
+6 Therefore thou shalt keep the commandments of the Lord thy God, to walk in his ways, and to fear him.
 
-7. For Yahweh your God brings you into a good land, a land of brooks of water, of springs, and underground water flowing into valleys and hills;
+7 For the Lord thy God bringeth thee into a good land, a land of brooks of water, of fountains and depths that spring out of valleys and hills;
 
-8. a land of wheat and barley, and vines and fig trees and pomegranates; a land of olive trees and honey;
+8 A land of wheat, and barley, and vines, and fig trees, and pomegranates; a land of oil olive, and honey;
 
-9. a land in which you shall eat bread without scarceness, you shall not lack anything in it; a land whose stones are iron, and out of whose hills you may dig copper.
+9 A land wherein thou shalt eat bread without scarceness, thou shalt not lack any thing in it; a land whose stones are iron, and out of whose hills thou mayest dig brass.
 
-10. You shall eat and be full, and you shall bless Yahweh your God for the good land which he has given you.
+10 When thou hast eaten and art full, then thou shalt bless the Lord thy God for the good land which he hath given thee.
 
-11. Beware lest you forget Yahweh your God, in not keeping his commandments, and his ordinances, and his statutes, which I command you this day:
+11 Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes, which I command thee this day:
 
-12. lest, when you have eaten and are full, and have built goodly houses, and lived therein;
+12 Lest when thou hast eaten and art full, and hast built goodly houses, and dwelt therein;
 
-13. and when your herds and your flocks multiply, and your silver and your gold is multiplied, and all that you have is multiplied;
+13 And when thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;
 
-14. then your heart be lifted up, and you forget Yahweh your God, who brought you forth out of the land of Egypt, out of the house of bondage;
+14 Then thine heart be lifted up, and thou forget the Lord thy God, which brought thee forth out of the land of Egypt, from the house of bondage;
 
-15. who led you through the great and terrible wilderness, [in which were] fiery serpents and scorpions, and thirsty ground where there was no water; who brought you forth water out of the rock of flint;
+15 Who led thee through that great and terrible wilderness, wherein were fiery serpents, and scorpions, and drought, where there was no water; who brought thee forth water out of the rock of flint;
 
-16. who fed you in the wilderness with manna, which your fathers didn't know; that he might humble you, and that he might prove you, to do you good at your latter end:
+16 Who fed thee in the wilderness with manna, which thy fathers knew not, that he might humble thee, and that he might prove thee, to do thee good at thy latter end;
 
-17. and [lest] you say in your heart, "My power and the might of my hand has gotten me this wealth."
+17 And thou say in thine heart, My power and the might of mine hand hath gotten me this wealth.
 
-18. But you shall remember Yahweh your God, for it is he who gives you power to get wealth; that he may establish his covenant which he swore to your fathers, as at this day.
+18 But thou shalt remember the Lord thy God: for it is he that giveth thee power to get wealth, that he may establish his covenant which he sware unto thy fathers, as it is this day.
 
-19. It shall be, if you shall forget Yahweh your God, and walk after other gods, and serve them, and worship them, I testify against you this day that you shall surely perish.
+19 And it shall be, if thou do at all forget the Lord thy God, and walk after other gods, and serve them, and worship them, I testify against you this day that ye shall surely perish.
 
-20. As the nations that Yahweh makes to perish before you, so you shall perish; because you wouldn't listen to the voice of Yahweh your God.
+20 As the nations which the Lord destroyeth before your face, so shall ye perish; because ye would not be obedient unto the voice of the Lord your God.
 
 
-## Chapter 9
+## Deuteronomy Chapter 9
 
-1. Hear, Israel: you are to pass over the Jordan this day, to go in to dispossess nations greater and mightier than yourself, cities great and fortified up to the sky,
+1 Hear, O Israel: Thou art to pass over Jordan this day, to go in to possess nations greater and mightier than thyself, cities great and fenced up to heaven,
 
-2. a people great and tall, the sons of the Anakim, whom you know, and of whom you have heard say, "Who can stand before the sons of Anak?"
+2 A people great and tall, the children of the Anakims, whom thou knowest, and of whom thou hast heard say, Who can stand before the children of Anak!
 
-3. Know therefore this day, that Yahweh your God is he who goes over before you as a devouring fire; he will destroy them, and he will bring them down before you: so you shall drive them out, and make them to perish quickly, as Yahweh has spoken to you.
+3 Understand therefore this day, that the Lord thy God is he which goeth over before thee; as a consuming fire he shall destroy them, and he shall bring them down before thy face: so shalt thou drive them out, and destroy them quickly, as the Lord hath said unto thee.
 
-4. Don't say in your heart, after Yahweh your God has thrust them out from before you, saying, "For my righteousness Yahweh has brought me in to possess this land;" because Yahweh driwes them out before you because of the wickedness of these nations.
+4 Speak not thou in thine heart, after that the Lord thy God hath cast them out from before thee, saying, For my righteousness the Lord hath brought me in to possess this land: but for the wickedness of these nations the Lord doth drive them out from before thee.
 
-5. Not for your righteousness, or for the uprightness of your heart, do you go in to possess their land; but for the wickedness of these nations Yahweh your God does drive them out from before you, and that he may establish the word which Yahweh swore to your fathers, to Abraham, to Isaac, and to Jacob.
+5 Not for thy righteousness, or for the uprightness of thine heart, dost thou go to possess their land: but for the wickedness of these nations the Lord thy God doth drive them out from before thee, and that he may perform the word which the Lord sware unto thy fathers, Abraham, Isaac, and Jacob.
 
-6. Know therefore, that Yahweh your God doesn't give you this good land to possess it for your righteousness; for you are a stiff-necked people.
+6 Understand therefore, that the Lord thy God giveth thee not this good land to possess it for thy righteousness; for thou art a stiffnecked people.
 
-7. Remember, don't forget, how you provoked Yahweh your God to wrath in the wilderness: from the day that you went forth out of the land of Egypt, until you came to this place, you have been rebellious against Yahweh.
+7 Remember, and forget not, how thou provokedst the Lord thy God to wrath in the wilderness: from the day that thou didst depart out of the land of Egypt, until ye came unto this place, ye have been rebellious against the Lord.
 
-8. Also in Horeb you provoked Yahweh to wrath, and Yahweh was angry with you to destroy you.
+8 Also in Horeb ye provoked the Lord to wrath, so that the Lord was angry with you to have destroyed you.
 
-9. When I was gone up onto the mountain to receive the tables of stone, even the tables of the covenant which Yahweh made with you, then I stayed on the mountain forty days and forty nights; I did neither eat bread nor drink water.
+9 When I was gone up into the mount to receive the tables of stone, even the tables of the covenant which the Lord made with you, then I abode in the mount forty days and forty nights, I neither did eat bread nor drink water:
 
-10. Yahweh delivered to me the two tables of stone written with the finger of God; and on them [was written] according to all the words, which Yahweh spoke with you on the mountain out of the midst of the fire in the day of the assembly.
+10 And the Lord delivered unto me two tables of stone written with the finger of God; and on them was written according to all the words, which the Lord spake with you in the mount out of the midst of the fire in the day of the assembly.
 
-11. It came to pass at the end of forty days and forty nights, that Yahweh gave me the two tables of stone, even the tables of the covenant.
+11 And it came to pass at the end of forty days and forty nights, that the Lord gave me the two tables of stone, even the tables of the covenant.
 
-12. Yahweh said to me, "Arise, get down quickly from hence; for your people whom you have brought forth out of Egypt have corrupted themselves; they have quickly turned aside out of the way which I commanded them; they have made them a molten image."
+12 And the Lord said unto me, Arise, get thee down quickly from hence; for thy people which thou hast brought forth out of Egypt have corrupted themselves; they are quickly turned aside out of the way which I commanded them; they have made them a molten image.
 
-13. Furthermore Yahweh spoke to me, saying, "I have seen this people, and behold, it is a stiff-necked people:
+13 Furthermore the Lord spake unto me, saying, I have seen this people, and, behold, it is a stiffnecked people:
 
-14. let me alone, that I may destroy them, and blot out their name from under the sky; and I will make of you a nation mightier and greater than they."
+14 Let me alone, that I may destroy them, and blot out their name from under heaven: and I will make of thee a nation mightier and greater than they.
 
-15. So I turned and came down from the mountain, and the mountain was burning with fire: and the two tables of the covenant were in my two hands.
+15 So I turned and came down from the mount, and the mount burned with fire: and the two tables of the covenant were in my two hands.
 
-16. I looked, and behold, you had sinned against Yahweh your God; you had made yourselves a molten calf: you had turned aside quickly out of the way which Yahweh had commanded you.
+16 And I looked, and, behold, ye had sinned against the Lord your God, and had made you a molten calf: ye had turned aside quickly out of the way which the Lord had commanded you.
 
-17. I took hold of the two tables, and cast them out of my two hands, and broke them before your eyes.
+17 And I took the two tables, and cast them out of my two hands, and brake them before your eyes.
 
-18. I fell down before Yahweh, as at the first, forty days and forty nights; I did neither eat bread nor drink water; because of all your sin which you sinned, in doing that which was evil in the sight of Yahweh, to provoke him to anger.
+18 And I fell down before the Lord, as at the first, forty days and forty nights: I did neither eat bread, nor drink water, because of all your sins which ye sinned, in doing wickedly in the sight of the Lord, to provoke him to anger.
 
-19. For I was afraid of the anger and hot displeasure, with which Yahweh was angry against you to destroy you. But Yahweh listened to me that time also.
+19 For I was afraid of the anger and hot displeasure, wherewith the Lord was wroth against you to destroy you. But the Lord hearkened unto me at that time also.
 
-20. Yahweh was very angry with Aaron to destroy him: and I prayed for Aaron also at the same time.
+20 And the Lord was very angry with Aaron to have destroyed him: and I prayed for Aaron also the same time.
 
-21. I took your sin, the calf which you had made, and burnt it with fire, and stamped it, grinding it very small, until it was as fine as dust: and I cast its dust into the brook that descended out of the mountain.
+21 And I took your sin, the calf which ye had made, and burnt it with fire, and stamped it, and ground it very small, even until it was as small as dust: and I cast the dust thereof into the brook that descended out of the mount.
 
-22. At Taberah, and at Massah, and at Kibroth Hattaavah, you provoked Yahweh to wrath.
+22 And at Taberah, and at Massah, and at Kibrothhattaavah, ye provoked the Lord to wrath.
 
-23. When Yahweh sent you from Kadesh Barnea, saying, "Go up and possess the land which I have given you;" then you rebelled against the commandment of Yahweh your God, and you didn't believe him, nor listen to his voice.
+23 Likewise when the Lord sent you from Kadeshbarnea, saying, Go up and possess the land which I have given you; then ye rebelled against the commandment of the Lord your God, and ye believed him not, nor hearkened to his voice.
 
-24. You have been rebellious against Yahweh from the day that I knew you.
+24 Ye have been rebellious against the Lord from the day that I knew you.
 
-25. So I fell down before Yahweh the forty days and forty nights that I fell down, because Yahweh had said he would destroy you.
+25 Thus I fell down before the Lord forty days and forty nights, as I fell down at the first; because the Lord had said he would destroy you.
 
-26. I prayed to Yahweh, and said, "Lord Yahweh, don't destroy your people and your inheritance, that you have redeemed through your greatness, that you have brought forth out of Egypt with a mighty hand.
+26 I prayed therefore unto the Lord, and said, O Lord God, destroy not thy people and thine inheritance, which thou hast redeemed through thy greatness, which thou hast brought forth out of Egypt with a mighty hand.
 
-27. Remember your servants, Abraham, Isaac, and Jacob; don't look to the stubbornness of this people, nor to their wickedness, nor to their sin,
+27 Remember thy servants, Abraham, Isaac, and Jacob; look not unto the stubbornness of this people, nor to their wickedness, nor to their sin:
 
-28. lest the land whence you brought us out say, 'Because Yahweh was not able to bring them into the land which he promised to them, and because he hated them, he has brought them out to kill them in the wilderness.'
+28 Lest the land whence thou broughtest us out say, Because the Lord was not able to bring them into the land which he promised them, and because he hated them, he hath brought them out to slay them in the wilderness.
 
-29. Yet they are your people and your inheritance, which you brought out by your great power and by your outstretched arm."
+29 Yet they are thy people and thine inheritance, which thou broughtest out by thy mighty power and by thy stretched out arm.
 
 
-## Chapter 10
+## Deuteronomy Chapter 10
 
-1. At that time Yahweh said to me, "Cut two tables of stone like the first, and come up to me onto the mountain, and make an ark of wood.
+1 At that time the Lord said unto me, Hew thee two tables of stone like unto the first, and come up unto me into the mount, and make thee an ark of wood.
 
-2. I will write on the tables the words that were on the first tables which you broke, and you shall put them in the ark."
+2 And I will write on the tables the words that were in the first tables which thou brakest, and thou shalt put them in the ark.
 
-3. So I made an ark of acacia wood, and cut two tables of stone like the first, and went up onto the mountain, having the two tables in my hand.
+3 And I made an ark of shittim wood, and hewed two tables of stone like unto the first, and went up into the mount, having the two tables in mine hand.
 
-4. He wrote on the tables, according to the first writing, the ten commandments, which Yahweh spoke to you on the mountain out of the midst of the fire in the day of the assembly: and Yahweh gave them to me.
+4 And he wrote on the tables, according to the first writing, the ten commandments, which the Lord spake unto you in the mount out of the midst of the fire in the day of the assembly: and the Lord gave them unto me.
 
-5. I turned and came down from the mountain, and put the tables in the ark which I had made; and there they are as Yahweh commanded me.
+5 And I turned myself and came down from the mount, and put the tables in the ark which I had made; and there they be, as the Lord commanded me.
 
-6. (The children of Israel traveled from Beeroth Bene Jaakan to Moserah. There Aaron died, and there he was buried; and Eleazar his son ministered in the priest's office in his place.
+6 And the children of Israel took their journey from Beeroth of the children of Jaakan to Mosera: there Aaron died, and there he was buried; and Eleazar his son ministered in the priest's office in his stead.
 
-7. From there they traveled to Gudgodah; and from Gudgodah to Jotbathah, a land of brooks of water.
+7 From thence they journeyed unto Gudgodah; and from Gudgodah to Jotbath, a land of rivers of waters.
 
-8. At that time Yahweh set apart the tribe of Levi, to bear the ark of the covenant of Yahweh, to stand before Yahweh to minister to him, and to bless in his name, to this day.
+8 At that time the Lord separated the tribe of Levi, to bear the ark of the covenant of the Lord, to stand before the Lord to minister unto him, and to bless in his name, unto this day.
 
-9. Therefore Levi has no portion nor inheritance with his brothers; Yahweh is his inheritance, according as Yahweh your God spoke to him.)
+9 Wherefore Levi hath no part nor inheritance with his brethren; the Lord is his inheritance, according as the Lord thy God promised him.
 
-10. I stayed on the mountain, as at the first time, forty days and forty nights: and Yahweh listened to me that time also; Yahweh would not destroy you.
+10 And I stayed in the mount, according to the first time, forty days and forty nights; and the Lord hearkened unto me at that time also, and the Lord would not destroy thee.
 
-11. Yahweh said to me, "Arise, take your journey before the people; and they shall go in and possess the land, which I swore to their fathers to give to them."
+11 And the Lord said unto me, Arise, take thy journey before the people, that they may go in and possess the land, which I sware unto their fathers to give unto them.
 
-12. Now, Israel, what does Yahweh your God require of you, but to fear Yahweh your God, to walk in all his ways, and to love him, and to serve Yahweh your God with all your heart and with all your soul,
+12 And now, Israel, what doth the Lord thy God require of thee, but to fear the Lord thy God, to walk in all his ways, and to love him, and to serve the Lord thy God with all thy heart and with all thy soul,
 
-13. to keep the commandments of Yahweh, and his statutes, which I command you this day for your good?
+13 To keep the commandments of the Lord, and his statutes, which I command thee this day for thy good?
 
-14. Behold, to Yahweh your God belongs heaven and the heaven of heavens, the earth, with all that is therein.
+14 Behold, the heaven and the heaven of heavens is the Lord's thy God, the earth also, with all that therein is.
 
-15. Only Yahweh had a delight in your fathers to love them, and he chose their seed after them, even you above all peoples, as at this day.
+15 Only the Lord had a delight in thy fathers to love them, and he chose their seed after them, even you above all people, as it is this day.
 
-16. Circumcise therefore the foreskin of your heart, and be no more stiff-necked.
+16 Circumcise therefore the foreskin of your heart, and be no more stiffnecked.
 
-17. For Yahweh your God, he is God of gods, and Lord of lords, the great God, the mighty, and the awesome, who doesn't respect persons, nor takes reward.
+17 For the Lord your God is God of gods, and Lord of lords, a great God, a mighty, and a terrible, which regardeth not persons, nor taketh reward:
 
-18. He does execute justice for the fatherless and widow, and loves the foreigner, in giving him food and clothing.
+18 He doth execute the judgment of the fatherless and widow, and loveth the stranger, in giving him food and raiment.
 
-19. Therefore love the foreigner; for you were foreigners in the land of Egypt.
+19 Love ye therefore the stranger: for ye were strangers in the land of Egypt.
 
-20. You shall fear Yahweh your God; you shall serve him; and you shall cling to him, and you shall swear by his name.
+20 Thou shalt fear the Lord thy God; him shalt thou serve, and to him shalt thou cleave, and swear by his name.
 
-21. He is your praise, and he is your God, who has done for you these great and awesome things, which your eyes have seen.
+21 He is thy praise, and he is thy God, that hath done for thee these great and terrible things, which thine eyes have seen.
 
-22. Your fathers went down into Egypt with seventy persons; and now Yahweh your God has made you as the stars of the sky for multitude.
+22 Thy fathers went down into Egypt with threescore and ten persons; and now the Lord thy God hath made thee as the stars of heaven for multitude.
 
 
-## Chapter 11
+## Deuteronomy Chapter 11
 
-1. Therefore you shall love Yahweh your God, and keep his instructions, and his statutes, and his ordinances, and his commandments, always.
+1 Therefore thou shalt love the Lord thy God, and keep his charge, and his statutes, and his judgments, and his commandments, alway.
 
-2. Know this day: for I don't speak with your children who have not known, and who have not seen the chastisement of Yahweh your God, his greatness, his mighty hand, and his outstretched arm,
+2 And know ye this day: for I speak not with your children which have not known, and which have not seen the chastisement of the Lord your God, his greatness, his mighty hand, and his stretched out arm,
 
-3. and his signs, and his works, which he did in the midst of Egypt to Pharaoh the king of Egypt, and to all his land;
+3 And his miracles, and his acts, which he did in the midst of Egypt unto Pharaoh the king of Egypt, and unto all his land;
 
-4. and what he did to the army of Egypt, to their horses, and to their chariots; how he made the water of the Red Sea to overflow them as they pursued after you, and how Yahweh has destroyed them to this day;
+4 And what he did unto the army of Egypt, unto their horses, and to their chariots; how he made the water of the Red sea to overflow them as they pursued after you, and how the Lord hath destroyed them unto this day;
 
-5. and what he did to you in the wilderness, until you came to this place;
+5 And what he did unto you in the wilderness, until ye came into this place;
 
-6. and what he did to Dathan and Abiram, the sons of Eliab, the son of Reuben; how the earth opened its mouth, and swallowed them up, and their households, and their tents, and every living thing that followed them, in the midst of all Israel:
+6 And what he did unto Dathan and Abiram, the sons of Eliab, the son of Reuben: how the earth opened her mouth, and swallowed them up, and their households, and their tents, and all the substance that was in their possession, in the midst of all Israel:
 
-7. but your eyes have seen all the great work of Yahweh which he did.
+7 But your eyes have seen all the great acts of the Lord which he did.
 
-8. Therefore you shall keep all the commandment which I command you this day, that you may be strong, and go in and possess the land, where you go over to possess it;
+8 Therefore shall ye keep all the commandments which I command you this day, that ye may be strong, and go in and possess the land, whither ye go to possess it;
 
-9. and that you may prolong your days in the land, which Yahweh swore to your fathers to give to them and to their seed, a land flowing with milk and honey.
+9 And that ye may prolong your days in the land, which the Lord sware unto your fathers to give unto them and to their seed, a land that floweth with milk and honey.
 
-10. For the land, where you go in to possess it, isn't as the land of Egypt, from whence you came out, where you sowed your seed, and watered it with your foot, as a garden of herbs;
+10 For the land, whither thou goest in to possess it, is not as the land of Egypt, from whence ye came out, where thou sowedst thy seed, and wateredst it with thy foot, as a garden of herbs:
 
-11. but the land, where you go over to possess it, is a land of hills and valleys, [and] drinks water of the rain of the sky,
+11 But the land, whither ye go to possess it, is a land of hills and valleys, and drinketh water of the rain of heaven:
 
-12. a land which Yahweh your God cares for: the eyes of Yahweh your God are always on it, from the beginning of the year even to the end of the year.
+12 A land which the Lord thy God careth for: the eyes of the Lord thy God are always upon it, from the beginning of the year even unto the end of the year.
 
-13. It shall happen, if you shall listen diligently to my commandments which I command you this day, to love Yahweh your God, and to serve him with all your heart and with all your soul,
+13 And it shall come to pass, if ye shall hearken diligently unto my commandments which I command you this day, to love the Lord your God, and to serve him with all your heart and with all your soul,
 
-14. that I will give the rain of your land in its season, the former rain and the latter rain, that you may gather in your grain, and your new wine, and your oil.
+14 That I will give you the rain of your land in his due season, the first rain and the latter rain, that thou mayest gather in thy corn, and thy wine, and thine oil.
 
-15. I will give grass in your fields for your livestock, and you shall eat and be full.
+15 And I will send grass in thy fields for thy cattle, that thou mayest eat and be full.
 
-16. Take heed to yourselves, lest your heart be deceived, and you turn aside, and serve other gods, and worship them;
+16 Take heed to yourselves, that your heart be not deceived, and ye turn aside, and serve other gods, and worship them;
 
-17. and the anger of Yahweh be kindled against you, and he shut up the sky, so that there shall be no rain, and the land shall not yield its fruit; and you perish quickly from off the good land which Yahweh gives you.
+17 And then the Lord's wrath be kindled against you, and he shut up the heaven, that there be no rain, and that the land yield not her fruit; and lest ye perish quickly from off the good land which the Lord giveth you.
 
-18. Therefore you shall lay up these my words in your heart and in your soul; and you shall bind them for a sign on your hand, and they shall be for symbols between your eyes.
+18 Therefore shall ye lay up these my words in your heart and in your soul, and bind them for a sign upon your hand, that they may be as frontlets between your eyes.
 
-19. You shall teach them your children, talking of them, when you sit in your house, and when you walk by the way, and when you lie down, and when you rise up.
+19 And ye shall teach them your children, speaking of them when thou sittest in thine house, and when thou walkest by the way, when thou liest down, and when thou risest up.
 
-20. You shall write them on the door posts of your house, and on your gates;
+20 And thou shalt write them upon the door posts of thine house, and upon thy gates:
 
-21. that your days may be multiplied, and the days of your children, in the land which Yahweh swore to your fathers to give them, as the days of the heavens above the earth.
+21 That your days may be multiplied, and the days of your children, in the land which the Lord sware unto your fathers to give them, as the days of heaven upon the earth.
 
-22. For if you shall diligently keep all this commandment which I command you, to do it, to love Yahweh your God, to walk in all his ways, and to cleave to him;
+22 For if ye shall diligently keep all these commandments which I command you, to do them, to love the Lord your God, to walk in all his ways, and to cleave unto him;
 
-23. then will Yahweh drive out all these nations from before you, and you shall dispossess nations greater and mightier than yourselves.
+23 Then will the Lord drive out all these nations from before you, and ye shall possess greater nations and mightier than yourselves.
 
-24. Every place whereon the sole of your foot shall tread shall be yours: from the wilderness, and Lebanon, from the river, the river Euphrates, even to the hinder sea shall be your border.
+24 Every place whereon the soles of your feet shall tread shall be yours: from the wilderness and Lebanon, from the river, the river Euphrates, even unto the uttermost sea shall your coast be.
 
-25. No man shall be able to stand before you: Yahweh your God shall lay the fear of you and the dread of you on all the land that you shall tread on, as he has spoken to you.
+25 There shall no man be able to stand before you: for the Lord your God shall lay the fear of you and the dread of you upon all the land that ye shall tread upon, as he hath said unto you.
 
-26. Behold, I set before you this day a blessing and a curse:
+26 Behold, I set before you this day a blessing and a curse;
 
-27. the blessing, if you shall listen to the commandments of Yahweh your God, which I command you this day;
+27 A blessing, if ye obey the commandments of the Lord your God, which I command you this day:
 
-28. and the curse, if you shall not listen to the commandments of Yahweh your God, but turn aside out of the way which I command you this day, to go after other gods, which you have not known.
+28 And a curse, if ye will not obey the commandments of the Lord your God, but turn aside out of the way which I command you this day, to go after other gods, which ye have not known.
 
-29. It shall happen, when Yahweh your God shall bring you into the land where you go to possess it, that you shall set the blessing on Mount Gerizim, and the curse on Mount Ebal.
+29 And it shall come to pass, when the Lord thy God hath brought thee in unto the land whither thou goest to possess it, that thou shalt put the blessing upon mount Gerizim, and the curse upon mount Ebal.
 
-30. Aren't they beyond the Jordan, behind the way of the going down of the sun, in the land of the Canaanites who dwell in the Arabah, over against Gilgal, beside the oaks of Moreh?
+30 Are they not on the other side Jordan, by the way where the sun goeth down, in the land of the Canaanites, which dwell in the champaign over against Gilgal, beside the plains of Moreh?
 
-31. For you are to pass over the Jordan to go in to possess the land which Yahweh your God gives you, and you shall possess it, and dwell therein.
+31 For ye shall pass over Jordan to go in to possess the land which the Lord your God giveth you, and ye shall possess it, and dwell therein.
 
-32. You shall observe to do all the statutes and the ordinances which I set before you this day.
+32 And ye shall observe to do all the statutes and judgments which I set before you this day.
 
 
-## Chapter 12
+## Deuteronomy Chapter 12
 
-1. These are the statutes and the ordinances which you shall observe to do in the land which Yahweh, the God of your fathers, has given you to possess it, all the days that you live on the earth.
+1 These are the statutes and judgments, which ye shall observe to do in the land, which the Lord God of thy fathers giveth thee to possess it, all the days that ye live upon the earth.
 
-2. You shall surely destroy all the places in which the nations that you shall dispossess served their gods, on the high mountains, and on the hills, and under every green tree:
+2 Ye shall utterly destroy all the places, wherein the nations which ye shall possess served their gods, upon the high mountains, and upon the hills, and under every green tree:
 
-3. and you shall break down their altars, and dash in pieces their pillars, and burn their Asherim with fire; and you shall cut down the engraved images of their gods; and you shall destroy their name out of that place.
+3 And ye shall overthrow their altars, and break their pillars, and burn their groves with fire; and ye shall hew down the graven images of their gods, and destroy the names of them out of that place.
 
-4. You shall not do so to Yahweh your God.
+4 Ye shall not do so unto the Lord your God.
 
-5. But to the place which Yahweh your God shall choose out of all your tribes, to put his name there, even to his habitation you shall seek, and there you shall come;
+5 But unto the place which the Lord your God shall choose out of all your tribes to put his name there, even unto his habitation shall ye seek, and thither thou shalt come:
 
-6. and there you shall bring your burnt offerings, and your sacrifices, and your tithes, and the wave offering of your hand, and your vows, and your freewill offerings, and the firstborn of your herd and of your flock:
+6 And thither ye shall bring your burnt offerings, and your sacrifices, and your tithes, and heave offerings of your hand, and your vows, and your freewill offerings, and the firstlings of your herds and of your flocks:
 
-7. and there you shall eat before Yahweh your God, and you shall rejoice in all that you put your hand to, you and your households, in which Yahweh your God has blessed you.
+7 And there ye shall eat before the Lord your God, and ye shall rejoice in all that ye put your hand unto, ye and your households, wherein the Lord thy God hath blessed thee.
 
-8. You shall not do after all the things that we do here this day, every man whatever is right in his own eyes;
+8 Ye shall not do after all the things that we do here this day, every man whatsoever is right in his own eyes.
 
-9. for you haven't yet come to the rest and to the inheritance, which Yahweh your God gives you.
+9 For ye are not as yet come to the rest and to the inheritance, which the Lord your God giveth you.
 
-10. But when you go over the Jordan, and dwell in the land which Yahweh your God causes you to inherit, and he gives you rest from all your enemies around you, so that you dwell in safety;
+10 But when ye go over Jordan, and dwell in the land which the Lord your God giveth you to inherit, and when he giveth you rest from all your enemies round about, so that ye dwell in safety;
 
-11. then it shall happen that to the place which Yahweh your God shall choose, to cause his name to dwell there, there you shall bring all that I command you: your burnt offerings, and your sacrifices, your tithes, and the wave offering of your hand, and all your choice vows which you vow to Yahweh.
+11 Then there shall be a place which the Lord your God shall choose to cause his name to dwell there; thither shall ye bring all that I command you; your burnt offerings, and your sacrifices, your tithes, and the heave offering of your hand, and all your choice vows which ye vow unto the Lord:
 
-12. You shall rejoice before Yahweh your God, you, and your sons, and your daughters, and your male servants, and your female servants, and the Levite who is within your gates, because he has no portion nor inheritance with you.
+12 And ye shall rejoice before the Lord your God, ye, and your sons, and your daughters, and your menservants, and your maidservants, and the Levite that is within your gates; forasmuch as he hath no part nor inheritance with you.
 
-13. Take heed to yourself that you don't offer your burnt offerings in every place that you see;
+13 Take heed to thyself that thou offer not thy burnt offerings in every place that thou seest:
 
-14. but in the place which Yahweh shall choose in one of your tribes, there you shall offer your burnt offerings, and there you shall do all that I command you.
+14 But in the place which the Lord shall choose in one of thy tribes, there thou shalt offer thy burnt offerings, and there thou shalt do all that I command thee.
 
-15. Notwithstanding, you may kill and eat flesh within all your gates, after all the desire of your soul, according to the blessing of Yahweh your God which he has given you: the unclean and the clean may eat of it, as of the gazelle, and as of the hart.
+15 Notwithstanding thou mayest kill and eat flesh in all thy gates, whatsoever thy soul lusteth after, according to the blessing of the Lord thy God which he hath given thee: the unclean and the clean may eat thereof, as of the roebuck, and as of the hart.
 
-16. Only you shall not eat the blood; you shall pour it out on the earth as water.
+16 Only ye shall not eat the blood; ye shall pour it upon the earth as water.
 
-17. You may not eat within your gates the tithe of your grain, or of your new wine, or of your oil, or the firstborn of your herd or of your flock, nor any of your vows which you vow, nor your freewill offerings, nor the wave offering of your hand;
+17 Thou mayest not eat within thy gates the tithe of thy corn, or of thy wine, or of thy oil, or the firstlings of thy herds or of thy flock, nor any of thy vows which thou vowest, nor thy freewill offerings, or heave offering of thine hand:
 
-18. but you shall eat them before Yahweh your God in the place which Yahweh your God shall choose, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite who is within your gates: and you shall rejoice before Yahweh your God in all that you put your hand to.
+18 But thou must eat them before the Lord thy God in the place which the Lord thy God shall choose, thou, and thy son, and thy daughter, and thy manservant, and thy maidservant, and the Levite that is within thy gates: and thou shalt rejoice before the Lord thy God in all that thou puttest thine hands unto.
 
-19. Take heed to yourself that you don't forsake the Levite as long as you live in your land.
+19 Take heed to thyself that thou forsake not the Levite as long as thou livest upon the earth.
 
-20. When Yahweh your God shall enlarge your border, as he has promised you, and you shall say, "I want to eat meat," because your soul desires to eat meat; you may eat meat, after all the desire of your soul.
+20 When the Lord thy God shall enlarge thy border, as he hath promised thee, and thou shalt say, I will eat flesh, because thy soul longeth to eat flesh; thou mayest eat flesh, whatsoever thy soul lusteth after.
 
-21. If the place which Yahweh your God shall choose, to put his name there, is too far from you, then you shall kill of your herd and of your flock, which Yahweh has given you, as I have commanded you; and you may eat within your gates, after all the desire of your soul.
+21 If the place which the Lord thy God hath chosen to put his name there be too far from thee, then thou shalt kill of thy herd and of thy flock, which the Lord hath given thee, as I have commanded thee, and thou shalt eat in thy gates whatsoever thy soul lusteth after.
 
-22. Even as the gazelle and as the hart is eaten, so you shall eat of it: the unclean and the clean may eat of it alike.
+22 Even as the roebuck and the hart is eaten, so thou shalt eat them: the unclean and the clean shall eat of them alike.
 
-23. Only be sure that you don't eat the blood: for the blood is the life; and you shall not eat the life with the flesh.
+23 Only be sure that thou eat not the blood: for the blood is the life; and thou mayest not eat the life with the flesh.
 
-24. You shall not eat it; you shall pour it out on the earth as water.
+24 Thou shalt not eat it; thou shalt pour it upon the earth as water.
 
-25. You shall not eat it; that it may go well with you, and with your children after you, when you shall do that which is right in the eyes of Yahweh.
+25 Thou shalt not eat it; that it may go well with thee, and with thy children after thee, when thou shalt do that which is right in the sight of the Lord.
 
-26. Only your holy things which you have, and your vows, you shall take, and go to the place which Yahweh shall choose:
+26 Only thy holy things which thou hast, and thy vows, thou shalt take, and go unto the place which the Lord shall choose:
 
-27. and you shall offer your burnt offerings, the flesh and the blood, on the altar of Yahweh your God; and the blood of your sacrifices shall be poured out on the altar of Yahweh your God; and you shall eat the flesh.
+27 And thou shalt offer thy burnt offerings, the flesh and the blood, upon the altar of the Lord thy God: and the blood of thy sacrifices shall be poured out upon the altar of the Lord thy God, and thou shalt eat the flesh.
 
-28. Observe and hear all these words which I command you, that it may go well with you, and with your children after you forever, when you do that which is good and right in the eyes of Yahweh your God.
+28 Observe and hear all these words which I command thee, that it may go well with thee, and with thy children after thee for ever, when thou doest that which is good and right in the sight of the Lord thy God.
 
-29. When Yahweh your God shall cut off the nations from before you, where you go in to dispossess them, and you dispossess them, and dwell in their land;
+29 When the Lord thy God shall cut off the nations from before thee, whither thou goest to possess them, and thou succeedest them, and dwellest in their land;
 
-30. take heed to yourself that you not be ensnared to follow them, after that they are destroyed from before you; and that you not inquire after their gods, saying, "How do these nations serve their gods? I will do likewise."
+30 Take heed to thyself that thou be not snared by following them, after that they be destroyed from before thee; and that thou enquire not after their gods, saying, How did these nations serve their gods? even so will I do likewise.
 
-31. You shall not do so to Yahweh your God: for every abomination to Yahweh, which he hates, have they done to their gods; for even their sons and their daughters do they burn in the fire to their gods.
+31 Thou shalt not do so unto the Lord thy God: for every abomination to the Lord, which he hateth, have they done unto their gods; for even their sons and their daughters they have burnt in the fire to their gods.
 
-32. Whatever thing I command you, that you shall observe to do: you shall not add thereto, nor diminish from it.
+32 What thing soever I command you, observe to do it: thou shalt not add thereto, nor diminish from it.
 
 
-## Chapter 13
+## Deuteronomy Chapter 13
 
-1. If there arise in the midst of you a prophet, or a dreamer of dreams, and he give you a sign or a wonder,
+1 If there arise among you a prophet, or a dreamer of dreams, and giveth thee a sign or a wonder,
 
-2. and the sign or the wonder come to pass, of which he spoke to you, saying, "Let us go after other gods" (which you have not known) "and let us serve them;"
+2 And the sign or the wonder come to pass, whereof he spake unto thee, saying, Let us go after other gods, which thou hast not known, and let us serve them;
 
-3. you shall not listen to the words of that prophet, or to that dreamer of dreams: for Yahweh your God proves you, to know whether you love Yahweh your God with all your heart and with all your soul.
+3 Thou shalt not hearken unto the words of that prophet, or that dreamer of dreams: for the Lord your God proveth you, to know whether ye love the Lord your God with all your heart and with all your soul.
 
-4. You shall walk after Yahweh your God, and fear him, and keep his commandments, and obey his voice, and you shall serve him, and cleave to him.
+4 Ye shall walk after the Lord your God, and fear him, and keep his commandments, and obey his voice, and ye shall serve him, and cleave unto him.
 
-5. That prophet, or that dreamer of dreams, shall be put to death, because he has spoken rebellion against Yahweh your God, who brought you out of the land of Egypt, and redeemed you out of the house of bondage, to draw you aside out of the way which Yahweh your God commanded you to walk in. So you shall put away the evil from the midst of you.
+5 And that prophet, or that dreamer of dreams, shall be put to death; because he hath spoken to turn you away from the Lord your God, which brought you out of the land of Egypt, and redeemed you out of the house of bondage, to thrust thee out of the way which the Lord thy God commanded thee to walk in. So shalt thou put the evil away from the midst of thee.
 
-6. If your brother, the son of your mother, or your son, or your daughter, or the wife of your bosom, or your friend, who is as your own soul, entice you secretly, saying, "Let us go and serve other gods," which you have not known, you, nor your fathers;
+6 If thy brother, the son of thy mother, or thy son, or thy daughter, or the wife of thy bosom, or thy friend, which is as thine own soul, entice thee secretly, saying, Let us go and serve other gods, which thou hast not known, thou, nor thy fathers;
 
-7. of the gods of the peoples who are around you, near to you, or far off from you, from the one end of the earth even to the other end of the earth;
+7 Namely, of the gods of the people which are round about you, nigh unto thee, or far off from thee, from the one end of the earth even unto the other end of the earth;
 
-8. you shall not consent to him, nor listen to him; neither shall your eye pity him, neither shall you spare, neither shall you conceal him:
+8 Thou shalt not consent unto him, nor hearken unto him; neither shall thine eye pity him, neither shalt thou spare, neither shalt thou conceal him:
 
-9. but you shall surely kill him; your hand shall be first on him to put him to death, and afterwards the hand of all the people.
+9 But thou shalt surely kill him; thine hand shall be first upon him to put him to death, and afterwards the hand of all the people.
 
-10. You shall stone him to death with stones, because he has sought to draw you away from Yahweh your God, who brought you out of the land of Egypt, out of the house of bondage.
+10 And thou shalt stone him with stones, that he die; because he hath sought to thrust thee away from the Lord thy God, which brought thee out of the land of Egypt, from the house of bondage.
 
-11. All Israel shall hear, and fear, and shall not do any more such wickedness as this is in the midst of you.
+11 And all Israel shall hear, and fear, and shall do no more any such wickedness as this is among you.
 
-12. If you shall hear tell concerning one of your cities, which Yahweh your God gives you to dwell there, saying,
+12 If thou shalt hear say in one of thy cities, which the Lord thy God hath given thee to dwell there, saying,
 
-13. Certain base fellows are gone out from the midst of you, and have drawn away the inhabitants of their city, saying, "Let us go and serve other gods," which you have not known;
+13 Certain men, the children of Belial, are gone out from among you, and have withdrawn the inhabitants of their city, saying, Let us go and serve other gods, which ye have not known;
 
-14. then you shall inquire, and make search, and ask diligently; and, behold, if it be truth, and the thing certain, that such abomination is done in the midst of you,
+14 Then shalt thou enquire, and make search, and ask diligently; and, behold, if it be truth, and the thing certain, that such abomination is wrought among you;
 
-15. you shall surely strike the inhabitants of that city with the edge of the sword, destroying it utterly, and all that is therein and its livestock, with the edge of the sword.
+15 Thou shalt surely smite the inhabitants of that city with the edge of the sword, destroying it utterly, and all that is therein, and the cattle thereof, with the edge of the sword.
 
-16. You shall gather all its spoil into the midst of its street, and shall burn with fire the city, and all its spoil every whit, to Yahweh your God: and it shall be a heap forever; it shall not be built again.
+16 And thou shalt gather all the spoil of it into the midst of the street thereof, and shalt burn with fire the city, and all the spoil thereof every whit, for the Lord thy God: and it shall be an heap for ever; it shall not be built again.
 
-17. There shall cleave nothing of the devoted thing to your hand; that Yahweh may turn from the fierceness of his anger, and show you mercy, and have compassion on you, and multiply you, as he has sworn to your fathers;
+17 And there shall cleave nought of the cursed thing to thine hand: that the Lord may turn from the fierceness of his anger, and shew thee mercy, and have compassion upon thee, and multiply thee, as he hath sworn unto thy fathers;
 
-18. when you shall listen to the voice of Yahweh your God, to keep all his commandments which I command you this day, to do that which is right in the eyes of Yahweh your God.
+18 When thou shalt hearken to the voice of the Lord thy God, to keep all his commandments which I command thee this day, to do that which is right in the eyes of the Lord thy God.
 
 
-## Chapter 14
+## Deuteronomy Chapter 14
 
-1. You are the children of Yahweh your God: you shall not cut yourselves, nor make any baldness between your eyes for the dead.
+1 Ye are the children of the Lord your God: ye shall not cut yourselves, nor make any baldness between your eyes for the dead.
 
-2. For you are a holy people to Yahweh your God, and Yahweh has chosen you to be a people for his own possession, above all peoples who are on the face of the earth.
+2 For thou art an holy people unto the Lord thy God, and the Lord hath chosen thee to be a peculiar people unto himself, above all the nations that are upon the earth.
 
-3. You shall not eat any abominable thing.
+3 Thou shalt not eat any abominable thing.
 
-4. These are the animals which you may eat: the ox, the sheep, and the goat,
+4 These are the beasts which ye shall eat: the ox, the sheep, and the goat,
 
-5. the hart, and the gazelle, and the roebuck, and the wild goat, and the ibex, and the antelope, and the chamois.
+5 The hart, and the roebuck, and the fallow deer, and the wild goat, and the pygarg, and the wild ox, and the chamois.
 
-6. Every animal that parts the hoof, and has the hoof cloven in two, [and] chews the cud, among the animals, that may you eat.
+6 And every beast that parteth the hoof, and cleaveth the cleft into two claws, and cheweth the cud among the beasts, that ye shall eat.
 
-7. Nevertheless these you shall not eat of them that chew the cud, or of those who have the hoof cloven: the camel, and the hare, and the rabbit; because they chew the cud but don't part the hoof, they are unclean to you.
+7 Nevertheless these ye shall not eat of them that chew the cud, or of them that divide the cloven hoof; as the camel, and the hare, and the coney: for they chew the cud, but divide not the hoof; therefore they are unclean unto you.
 
-8. The pig, because it has a split hoof but doesn't chew the cud, is unclean to you: of their flesh you shall not eat, and their carcasses you shall not touch.
+8 And the swine, because it divideth the hoof, yet cheweth not the cud, it is unclean unto you: ye shall not eat of their flesh, nor touch their dead carcase.
 
-9. These you may eat of all that are in the waters: whatever has fins and scales may you eat;
+9 These ye shall eat of all that are in the waters: all that have fins and scales shall ye eat:
 
-10. and whatever doesn't have fins and scales you shall not eat; it is unclean to you.
+10 And whatsoever hath not fins and scales ye may not eat; it is unclean unto you.
 
-11. Of all clean birds you may eat.
+11 Of all clean birds ye shall eat.
 
-12. But these are they of which you shall not eat: the eagle, and the vulture, and the osprey,
+12 But these are they of which ye shall not eat: the eagle, and the ossifrage, and the ospray,
 
-13. and the red kite, and the falcon, and the kite after its kind,
+13 And the glede, and the kite, and the vulture after his kind,
 
-14. and every raven after its kind,
+14 And every raven after his kind,
 
-15. and the ostrich, and the owl, and the seagull, and the hawk after its kind,
+15 And the owl, and the night hawk, and the cuckow, and the hawk after his kind,
 
-16. the little owl, and the great owl, and the horned owl,
+16 The little owl, and the great owl, and the swan,
 
-17. and the pelican, and the vulture, and the cormorant,
+17 And the pelican, and the gier eagle, and the cormorant,
 
-18. and the stork, and the heron after its kind, and the hoopoe, and the bat.
+18 And the stork, and the heron after her kind, and the lapwing, and the bat.
 
-19. All winged creeping things are unclean to you: they shall not be eaten.
+19 And every creeping thing that flieth is unclean unto you: they shall not be eaten.
 
-20. Of all clean birds you may eat.
+20 But of all clean fowls ye may eat.
 
-21. You shall not eat of anything that dies of itself: you may give it to the foreigner living among you who is within your gates, that he may eat it; or you may sell it to a foreigner: for you are a holy people to Yahweh your God. You shall not boil a young goat in its mother's milk.
+21 Ye shall not eat of anything that dieth of itself: thou shalt give it unto the stranger that is in thy gates, that he may eat it; or thou mayest sell it unto an alien: for thou art an holy people unto the Lord thy God. Thou shalt not seethe a kid in his mother's milk.
 
-22. You shall surely tithe all the increase of your seed, that which comes forth from the field year by year.
+22 Thou shalt truly tithe all the increase of thy seed, that the field bringeth forth year by year.
 
-23. You shall eat before Yahweh your God, in the place which he shall choose, to cause his name to dwell there, the tithe of your grain, of your new wine, and of your oil, and the firstborn of your herd and of your flock; that you may learn to fear Yahweh your God always.
+23 And thou shalt eat before the Lord thy God, in the place which he shall choose to place his name there, the tithe of thy corn, of thy wine, and of thine oil, and the firstlings of thy herds and of thy flocks; that thou mayest learn to fear the Lord thy God always.
 
-24. If the way is too long for you, so that you are not able to carry it, because the place is too far from you, which Yahweh your God shall choose, to set his name there, when Yahweh your God shall bless you;
+24 And if the way be too long for thee, so that thou art not able to carry it; or if the place be too far from thee, which the Lord thy God shall choose to set his name there, when the Lord thy God hath blessed thee:
 
-25. then you shall turn it into money, and bind up the money in your hand, and shall go to the place which Yahweh your God shall choose:
+25 Then shalt thou turn it into money, and bind up the money in thine hand, and shalt go unto the place which the Lord thy God shall choose:
 
-26. and you shall bestow the money for whatever your soul desires, for cattle, or for sheep, or for wine, or for strong drink, or for whatever your soul asks of you; and you shall eat there before Yahweh your God, and you shall rejoice, you and your household.
+26 And thou shalt bestow that money for whatsoever thy soul lusteth after, for oxen, or for sheep, or for wine, or for strong drink, or for whatsoever thy soul desireth: and thou shalt eat there before the Lord thy God, and thou shalt rejoice, thou, and thine household,
 
-27. The Levite who is within your gates, you shall not forsake him; for he has no portion nor inheritance with you.
+27 And the Levite that is within thy gates; thou shalt not forsake him; for he hath no part nor inheritance with thee.
 
-28. At the end of every three years you shall bring forth all the tithe of your increase in the same year, and shall lay it up within your gates:
+28 At the end of three years thou shalt bring forth all the tithe of thine increase the same year, and shalt lay it up within thy gates:
 
-29. and the Levite, because he has no portion nor inheritance with you, and the foreigner living among you, and the fatherless, and the widow, who are within your gates, shall come, and shall eat and be satisfied; that Yahweh your God may bless you in all the work of your hand which you do.
+29 And the Levite, (because he hath no part nor inheritance with thee,) and the stranger, and the fatherless, and the widow, which are within thy gates, shall come, and shall eat and be satisfied; that the Lord thy God may bless thee in all the work of thine hand which thou doest.
 
 
-## Chapter 15
+## Deuteronomy Chapter 15
 
-1. At the end of every seven years you shall make a release.
+1 At the end of every seven years thou shalt make a release.
 
-2. This is the manner of the release: every creditor shall release that which he has lent to his neighbor; he shall not exact it of his neighbor and his brother; because Yahweh's release has been proclaimed.
+2 And this is the manner of the release: Every creditor that lendeth ought unto his neighbour shall release it; he shall not exact it of his neighbour, or of his brother; because it is called the Lord's release.
 
-3. Of a foreigner you may exact it: but whatever of your is with your brother your hand shall release.
+3 Of a foreigner thou mayest exact it again: but that which is thine with thy brother thine hand shall release;
 
-4. However there shall be no poor with you; (for Yahweh will surely bless you in the land which Yahweh your God gives you for an inheritance to possess it;)
+4 Save when there shall be no poor among you; for the Lord shall greatly bless thee in the land which the Lord thy God giveth thee for an inheritance to possess it:
 
-5. if only you diligently listen to the voice of Yahweh your God, to observe to do all this commandment which I command you this day.
+5 Only if thou carefully hearken unto the voice of the Lord thy God, to observe to do all these commandments which I command thee this day.
 
-6. For Yahweh your God will bless you, as he promised you: and you shall lend to many nations, but you shall not borrow; and you shall rule over many nations, but they shall not rule over you.
+6 For the Lord thy God blesseth thee, as he promised thee: and thou shalt lend unto many nations, but thou shalt not borrow; and thou shalt reign over many nations, but they shall not reign over thee.
 
-7. If a poor man, one of your brothers, is with you within any of your gates in your land which Yahweh your God gives you, you shall not harden your heart, nor shut your hand from your poor brother;
+7 If there be among you a poor man of one of thy brethren within any of thy gates in thy land which the Lord thy God giveth thee, thou shalt not harden thine heart, nor shut thine hand from thy poor brother:
 
-8. but you shall surely open your hand to him, and shall surely lend him sufficient for his need [in that] which he wants.
+8 But thou shalt open thine hand wide unto him, and shalt surely lend him sufficient for his need, in that which he wanteth.
 
-9. Beware that there not be a base thought in your heart, saying, "The seventh year, the year of release, is at hand;" and your eye be evil against your poor brother, and you give him nothing; and he cry to Yahweh against you, and it be sin to you.
+9 Beware that there be not a thought in thy wicked heart, saying, The seventh year, the year of release, is at hand; and thine eye be evil against thy poor brother, and thou givest him nought; and he cry unto the Lord against thee, and it be sin unto thee.
 
-10. You shall surely give him, and your heart shall not be grieved when you give to him; because that for this thing Yahweh your God will bless you in all your work, and in all that you put your hand to.
+10 Thou shalt surely give him, and thine heart shall not be grieved when thou givest unto him: because that for this thing the Lord thy God shall bless thee in all thy works, and in all that thou puttest thine hand unto.
 
-11. For the poor will never cease out of the land: therefore I command you, saying, You shall surely open your hand to your brother, to your needy, and to your poor, in your land.
+11 For the poor shall never cease out of the land: therefore I command thee, saying, Thou shalt open thine hand wide unto thy brother, to thy poor, and to thy needy, in thy land.
 
-12. If your brother, a Hebrew man, or a Hebrew woman, is sold to you, and serves you six years; then in the seventh year you shall let him go free from you.
+12 And if thy brother, an Hebrew man, or an Hebrew woman, be sold unto thee, and serve thee six years; then in the seventh year thou shalt let him go free from thee.
 
-13. When you let him go free from you, you shall not let him go empty:
+13 And when thou sendest him out free from thee, thou shalt not let him go away empty:
 
-14. you shall furnish him liberally out of your flock, and out of your threshing floor, and out of your winepress; as Yahweh your God has blessed you, you shall give to him.
+14 Thou shalt furnish him liberally out of thy flock, and out of thy floor, and out of thy winepress: of that wherewith the Lord thy God hath blessed thee thou shalt give unto him.
 
-15. You shall remember that you were a bondservant in the land of Egypt, and Yahweh your God redeemed you: therefore I command you this thing today.
+15 And thou shalt remember that thou wast a bondman in the land of Egypt, and the Lord thy God redeemed thee: therefore I command thee this thing to day.
 
-16. It shall be, if he tells you, "I will not go out from you;" because he loves you and your house, because he is well with you;
+16 And it shall be, if he say unto thee, I will not go away from thee; because he loveth thee and thine house, because he is well with thee;
 
-17. then you shall take an awl, and thrust it through his ear to the door, and he shall be your servant forever. Also to your female servant you shall do likewise.
+17 Then thou shalt take an aul, and thrust it through his ear unto the door, and he shall be thy servant for ever. And also unto thy maidservant thou shalt do likewise.
 
-18. It shall not seem hard to you, when you let him go free from you; for to the double of the hire of a hireling has he served you six years: and Yahweh your God will bless you in all that you do.
+18 It shall not seem hard unto thee, when thou sendest him away free from thee; for he hath been worth a double hired servant to thee, in serving thee six years: and the Lord thy God shall bless thee in all that thou doest.
 
-19. All the firstborn males that are born of your herd and of your flock you shall sanctify to Yahweh your God: you shall do no work with the firstborn of your herd, nor shear the firstborn of your flock.
+19 All the firstling males that come of thy herd and of thy flock thou shalt sanctify unto the Lord thy God: thou shalt do no work with the firstling of thy bullock, nor shear the firstling of thy sheep.
 
-20. You shall eat it before Yahweh your God year by year in the place which Yahweh shall choose, you and your household.
+20 Thou shalt eat it before the Lord thy God year by year in the place which the Lord shall choose, thou and thy household.
 
-21. If it have any blemish, [as if it be] lame or blind, any ill blemish whatever, you shall not sacrifice it to Yahweh your God.
+21 And if there be any blemish therein, as if it be lame, or blind, or have any ill blemish, thou shalt not sacrifice it unto the Lord thy God.
 
-22. You shall eat it within your gates: the unclean and the clean [shall eat it] alike, as the gazelle, and as the hart.
+22 Thou shalt eat it within thy gates: the unclean and the clean person shall eat it alike, as the roebuck, and as the hart.
 
-23. Only you shall not eat its blood; you shall pour it out on the ground as water.
+23 Only thou shalt not eat the blood thereof; thou shalt pour it upon the ground as water.
 
 
-## Chapter 16
+## Deuteronomy Chapter 16
 
-1. Observe the month of Abib, and keep the Passover to Yahweh your God; for in the month of Abib Yahweh your God brought you forth out of Egypt by night.
+1 Observe the month of Abib, and keep the passover unto the Lord thy God: for in the month of Abib the Lord thy God brought thee forth out of Egypt by night.
 
-2. You shall sacrifice the Passover to Yahweh your God, of the flock and the herd, in the place which Yahweh shall choose, to cause his name to dwell there.
+2 Thou shalt therefore sacrifice the passover unto the Lord thy God, of the flock and the herd, in the place which the Lord shall choose to place his name there.
 
-3. You shall eat no leavened bread with it. You shall eat unleavened bread with it seven days, even the bread of affliction; for you came forth out of the land of Egypt in haste: that you may remember the day when you came forth out of the land of Egypt all the days of your life.
+3 Thou shalt eat no leavened bread with it; seven days shalt thou eat unleavened bread therewith, even the bread of affliction; for thou camest forth out of the land of Egypt in haste: that thou mayest remember the day when thou camest forth out of the land of Egypt all the days of thy life.
 
-4. There shall be no yeast seen with you in all your borders seven days; neither shall any of the flesh, which you sacrifice the first day at even, remain all night until the morning.
+4 And there shall be no leavened bread seen with thee in all thy coast seven days; neither shall there any thing of the flesh, which thou sacrificedst the first day at even, remain all night until the morning.
 
-5. You may not sacrifice the Passover within any of your gates, which Yahweh your God gives you;
+5 Thou mayest not sacrifice the passover within any of thy gates, which the Lord thy God giveth thee:
 
-6. but at the place which Yahweh your God shall choose, to cause his name to dwell in, there you shall sacrifice the Passover at even, at the going down of the sun, at the season that you came forth out of Egypt.
+6 But at the place which the Lord thy God shall choose to place his name in, there thou shalt sacrifice the passover at even, at the going down of the sun, at the season that thou camest forth out of Egypt.
 
-7. You shall roast and eat it in the place which Yahweh your God shall choose: and you shall turn in the morning, and go to your tents.
+7 And thou shalt roast and eat it in the place which the Lord thy God shall choose: and thou shalt turn in the morning, and go unto thy tents.
 
-8. Six days you shall eat unleavened bread; and on the seventh day shall be a solemn assembly to Yahweh your God; you shall do no work [therein].
+8 Six days thou shalt eat unleavened bread: and on the seventh day shall be a solemn assembly to the Lord thy God: thou shalt do no work therein.
 
-9. You shall count for yourselves seven weeks: from the time you begin to put the sickle to the standing grain you shall begin to number seven weeks.
+9 Seven weeks shalt thou number unto thee: begin to number the seven weeks from such time as thou beginnest to put the sickle to the corn.
 
-10. You shall keep the feast of weeks to Yahweh your God with a tribute of a freewill offering of your hand, which you shall give, according as Yahweh your God blesses you:
+10 And thou shalt keep the feast of weeks unto the Lord thy God with a tribute of a freewill offering of thine hand, which thou shalt give unto the Lord thy God, according as the Lord thy God hath blessed thee:
 
-11. and you shall rejoice before Yahweh your God, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite who is within your gates, and the foreigner, and the fatherless, and the widow, who are in the midst of you, in the place which Yahweh your God shall choose, to cause his name to dwell there.
+11 And thou shalt rejoice before the Lord thy God, thou, and thy son, and thy daughter, and thy manservant, and thy maidservant, and the Levite that is within thy gates, and the stranger, and the fatherless, and the widow, that are among you, in the place which the Lord thy God hath chosen to place his name there.
 
-12. You shall remember that you were a bondservant in Egypt: and you shall observe and do these statutes.
+12 And thou shalt remember that thou wast a bondman in Egypt: and thou shalt observe and do these statutes.
 
-13. You shall keep the feast of tents seven days, after that you have gathered in from your threshing floor and from your winepress:
+13 Thou shalt observe the feast of tabernacles seven days, after that thou hast gathered in thy corn and thy wine:
 
-14. and you shall rejoice in your feast, you, and your son, and your daughter, and your male servant, and your female servant, and the Levite, and the foreigner, and the fatherless, and the widow, who are within your gates.
+14 And thou shalt rejoice in thy feast, thou, and thy son, and thy daughter, and thy manservant, and thy maidservant, and the Levite, the stranger, and the fatherless, and the widow, that are within thy gates.
 
-15. You shall keep a feast to Yahweh your God seven days in the place which Yahweh shall choose; because Yahweh your God will bless you in all your increase, and in all the work of your hands, and you shall be altogether joyful.
+15 Seven days shalt thou keep a solemn feast unto the Lord thy God in the place which the Lord shall choose: because the Lord thy God shall bless thee in all thine increase, and in all the works of thine hands, therefore thou shalt surely rejoice.
 
-16. Three times in a year shall all your males appear before Yahweh your God in the place which he shall choose: in the feast of unleavened bread, and in the feast of weeks, and in the feast of tents; and they shall not appear before Yahweh empty:
+16 Three times in a year shall all thy males appear before the Lord thy God in the place which he shall choose; in the feast of unleavened bread, and in the feast of weeks, and in the feast of tabernacles: and they shall not appear before the Lord empty:
 
-17. every man shall give as he is able, according to the blessing of Yahweh your God which he has given you.
+17 Every man shall give as he is able, according to the blessing of the Lord thy God which he hath given thee.
 
-18. You shall make judges and officers in all your gates, which Yahweh your God gives you, according to your tribes; and they shall judge the people with righteous judgment.
+18 Judges and officers shalt thou make thee in all thy gates, which the Lord thy God giveth thee, throughout thy tribes: and they shall judge the people with just judgment.
 
-19. You shall not wrest justice: you shall not respect persons; neither shall you take a bribe; for a bribe does blind the eyes of the wise, and pervert the words of the righteous.
+19 Thou shalt not wrest judgment; thou shalt not respect persons, neither take a gift: for a gift doth blind the eyes of the wise, and pervert the words of the righteous.
 
-20. You shall follow that which is altogether just, that you may live, and inherit the land which Yahweh your God gives you.
+20 That which is altogether just shalt thou follow, that thou mayest live, and inherit the land which the Lord thy God giveth thee.
 
-21. You shall not plant for yourselves an Asherah of any kind of tree beside the altar of Yahweh your God, which you shall make for yourselves.
+21 Thou shalt not plant thee a grove of any trees near unto the altar of the Lord thy God, which thou shalt make thee.
 
-22. Neither shall you set yourself up a pillar; which Yahweh your God hates.
+22 Neither shalt thou set thee up any image; which the Lord thy God hateth.
 
 
-## Chapter 17
+## Deuteronomy Chapter 17
 
-1. You shall not sacrifice to Yahweh your God an ox, or a sheep, in which is a blemish, [or] anything evil; for that is an abomination to Yahweh your God.
+1 Thou shalt not sacrifice unto the Lord thy God any bullock, or sheep, wherein is blemish, or any evilfavouredness: for that is an abomination unto the Lord thy God.
 
-2. If there be found in the midst of you, within any of your gates which Yahweh your God gives you, man or woman, who does that which is evil in the sight of Yahweh your God, in transgressing his covenant,
+2 If there be found among you, within any of thy gates which the Lord thy God giveth thee, man or woman, that hath wrought wickedness in the sight of the Lord thy God, in transgressing his covenant,
 
-3. and has gone and served other gods, and worshiped them, or the sun, or the moon, or any of the army of the sky, which I have not commanded;
+3 And hath gone and served other gods, and worshipped them, either the sun, or moon, or any of the host of heaven, which I have not commanded;
 
-4. and it be told you, and you have heard of it, then you shall inquire diligently; and behold, if it be true, and the thing certain, that such abomination is done in Israel,
+4 And it be told thee, and thou hast heard of it, and enquired diligently, and, behold, it be true, and the thing certain, that such abomination is wrought in Israel:
 
-5. then you shall bring forth that man or that woman, who has done this evil thing, to your gates, even the man or the woman; and you shall stone them to death with stones.
+5 Then shalt thou bring forth that man or that woman, which have committed that wicked thing, unto thy gates, even that man or that woman, and shalt stone them with stones, till they die.
 
-6. At the mouth of two witnesses, or three witnesses, shall he who is to die be put to death; at the mouth of one witness he shall not be put to death.
+6 At the mouth of two witnesses, or three witnesses, shall he that is worthy of death be put to death; but at the mouth of one witness he shall not be put to death.
 
-7. The hand of the witnesses shall be first on him to put him to death, and afterward the hand of all the people. So you shall put away the evil from the midst of you.
+7 The hands of the witnesses shall be first upon him to put him to death, and afterward the hands of all the people. So thou shalt put the evil away from among you.
 
-8. If there arises a matter too hard for you in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within your gates; then you shall arise, and go up to the place which Yahweh your God shall choose;
+8 If there arise a matter too hard for thee in judgment, between blood and blood, between plea and plea, and between stroke and stroke, being matters of controversy within thy gates: then shalt thou arise, and get thee up into the place which the Lord thy God shall choose;
 
-9. and you shall come to the priests the Levites, and to the judge who shall be in those days: and you shall inquire; and they shall show you the sentence of judgment.
+9 And thou shalt come unto the priests the Levites, and unto the judge that shall be in those days, and enquire; and they shall shew thee the sentence of judgment:
 
-10. You shall do according to the tenor of the sentence which they shall show you from that place which Yahweh shall choose; and you shall observe to do according to all that they shall teach you:
+10 And thou shalt do according to the sentence, which they of that place which the Lord shall choose shall shew thee; and thou shalt observe to do according to all that they inform thee:
 
-11. according to the tenor of the law which they shall teach you, and according to the judgment which they shall tell you, you shall do; you shall not turn aside from the sentence which they shall show you, to the right hand, nor to the left.
+11 According to the sentence of the law which they shall teach thee, and according to the judgment which they shall tell thee, thou shalt do: thou shalt not decline from the sentence which they shall shew thee, to the right hand, nor to the left.
 
-12. The man who does presumptuously, in not listening to the priest who stands to minister there before Yahweh your God, or to the judge, even that man shall die: and you shall put away the evil from Israel.
+12 And the man that will do presumptuously, and will not hearken unto the priest that standeth to minister there before the Lord thy God, or unto the judge, even that man shall die: and thou shalt put away the evil from Israel.
 
-13. All the people shall hear, and fear, and do no more presumptuously.
+13 And all the people shall hear, and fear, and do no more presumptuously.
 
-14. When you are come to the land which Yahweh your God gives you, and shall possess it, and shall dwell therein, and shall say, "I will set a king over me, like all the nations that are around me;"
+14 When thou art come unto the land which the Lord thy God giveth thee, and shalt possess it, and shalt dwell therein, and shalt say, I will set a king over me, like as all the nations that are about me;
 
-15. you shall surely set him king over yourselves, whom Yahweh your God shall choose: one from among your brothers you shall set king over you; you may not put a foreigner over you, who is not your brother.
+15 Thou shalt in any wise set him king over thee, whom the Lord thy God shall choose: one from among thy brethren shalt thou set king over thee: thou mayest not set a stranger over thee, which is not thy brother.
 
-16. Only he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he may multiply horses; because Yahweh has said to you, "You shall not go back that way again."
+16 But he shall not multiply horses to himself, nor cause the people to return to Egypt, to the end that he should multiply horses: forasmuch as the Lord hath said unto you, Ye shall henceforth return no more that way.
 
-17. Neither shall he multiply wives to himself, that his heart not turn away: neither shall he greatly multiply to himself silver and gold.
+17 Neither shall he multiply wives to himself, that his heart turn not away: neither shall he greatly multiply to himself silver and gold.
 
-18. It shall be, when he sits on the throne of his kingdom, that he shall write him a copy of this law in a book, out of [that which is] before the priests the Levites:
+18 And it shall be, when he sitteth upon the throne of his kingdom, that he shall write him a copy of this law in a book out of that which is before the priests the Levites:
 
-19. and it shall be with him, and he shall read therein all the days of his life; that he may learn to fear Yahweh his God, to keep all the words of this law and these statutes, to do them;
+19 And it shall be with him, and he shall read therein all the days of his life: that he may learn to fear the Lord his God, to keep all the words of this law and these statutes, to do them:
 
-20. that his heart not be lifted up above his brothers, and that he not turn aside from the commandment, to the right hand, or to the left: to the end that he may prolong his days in his kingdom, he and his children, in the midst of Israel.
+20 That his heart be not lifted up above his brethren, and that he turn not aside from the commandment, to the right hand, or to the left: to the end that he may prolong his days in his kingdom, he, and his children, in the midst of Israel.
 
 
-## Chapter 18
+## Deuteronomy Chapter 18
 
-1. The priests the Levites, [even] all the tribe of Levi, shall have no portion nor inheritance with Israel: they shall eat the offerings of Yahweh made by fire, and his inheritance.
+1 The priests the Levites, and all the tribe of Levi, shall have no part nor inheritance with Israel: they shall eat the offerings of the Lord made by fire, and his inheritance.
 
-2. They shall have no inheritance among their brothers: Yahweh is their inheritance, as he has spoken to them.
+2 Therefore shall they have no inheritance among their brethren: the Lord is their inheritance, as he hath said unto them.
 
-3. This shall be the priests' due from the people, from those who offer a sacrifice, whether it be ox or sheep, that they shall give to the priest the shoulder, and the two cheeks, and the maw.
+3 And this shall be the priest's due from the people, from them that offer a sacrifice, whether it be ox or sheep; and they shall give unto the priest the shoulder, and the two cheeks, and the maw.
 
-4. The first fruits of your grain, of your new wine, and of your oil, and the first of the fleece of your sheep, you shall give him.
+4 The firstfruit also of thy corn, of thy wine, and of thine oil, and the first of the fleece of thy sheep, shalt thou give him.
 
-5. For Yahweh your God has chosen him out of all your tribes, to stand to minister in the name of Yahweh, him and his sons for ever.
+5 For the Lord thy God hath chosen him out of all thy tribes, to stand to minister in the name of the Lord, him and his sons for ever.
 
-6. If a Levite comes from any of your gates out of all Israel, where he lives as a foreigner, and comes with all the desire of his soul to the place which Yahweh shall choose;
+6 And if a Levite come from any of thy gates out of all Israel, where he sojourned, and come with all the desire of his mind unto the place which the Lord shall choose;
 
-7. then he shall minister in the name of Yahweh his God, as all his brothers the Levites do, who stand there before Yahweh.
+7 Then he shall minister in the name of the Lord his God, as all his brethren the Levites do, which stand there before the Lord.
 
-8. They shall have like portions to eat, besides that which comes of the sale of his patrimony.
+8 They shall have like portions to eat, beside that which cometh of the sale of his patrimony.
 
-9. When you are come into the land which Yahweh your God gives you, you shall not learn to do after the abominations of those nations.
+9 When thou art come into the land which the Lord thy God giveth thee, thou shalt not learn to do after the abominations of those nations.
 
-10. There shall not be found with you anyone who makes his son or his daughter to pass through the fire, one who uses divination, one who practices sorcery, or an enchanter, or a sorcerer,
+10 There shall not be found among you any one that maketh his son or his daughter to pass through the fire, or that useth divination, or an observer of times, or an enchanter, or a witch.
 
-11. or a charmer, or a consulter with a familiar spirit, or a wizard, or a necromancer.
+11 Or a charmer, or a consulter with familiar spirits, or a wizard, or a necromancer.
 
-12. For whoever does these things is an abomination to Yahweh: and because of these abominations Yahweh your God does drive them out from before you.
+12 For all that do these things are an abomination unto the Lord: and because of these abominations the Lord thy God doth drive them out from before thee.
 
-13. You shall be perfect with Yahweh your God.
+13 Thou shalt be perfect with the Lord thy God.
 
-14. For these nations, that you shall dispossess, listen to those who practice sorcery, and to diviners; but as for you, Yahweh your God has not allowed you so to do.
+14 For these nations, which thou shalt possess, hearkened unto observers of times, and unto diviners: but as for thee, the Lord thy God hath not suffered thee so to do.
 
-15. Yahweh your God will raise up to you a prophet from the midst of you, of your brothers, like me. You shall listen to him.
+15 The Lord thy God will raise up unto thee a Prophet from the midst of thee, of thy brethren, like unto me; unto him ye shall hearken;
 
-16. This is according to all that you desired of Yahweh your God in Horeb in the day of the assembly, saying, "Let me not hear again the voice of Yahweh my God, neither let me see this great fire any more, that I not die."
+16 According to all that thou desiredst of the Lord thy God in Horeb in the day of the assembly, saying, Let me not hear again the voice of the Lord my God, neither let me see this great fire any more, that I die not.
 
-17. Yahweh said to me, "They have well said that which they have spoken.
+17 And the Lord said unto me, They have well spoken that which they have spoken.
 
-18. I will raise them up a prophet from among their brothers, like you; and I will put my words in his mouth, and he shall speak to them all that I shall command him.
+18 I will raise them up a Prophet from among their brethren, like unto thee, and will put my words in his mouth; and he shall speak unto them all that I shall command him.
 
-19. It shall happen, that whoever will not listen to my words which he shall speak in my name, I will require it of him.
+19 And it shall come to pass, that whosoever will not hearken unto my words which he shall speak in my name, I will require it of him.
 
-20. But the prophet, who shall speak a word presumptuously in my name, which I have not commanded him to speak, or who shall speak in the name of other gods, that same prophet shall die."
+20 But the prophet, which shall presume to speak a word in my name, which I have not commanded him to speak, or that shall speak in the name of other gods, even that prophet shall die.
 
-21. If you say in your heart, "How shall we know the word which Yahweh has not spoken?"
+21 And if thou say in thine heart, How shall we know the word which the Lord hath not spoken?
 
-22. when a prophet speaks in the name of Yahweh, if the thing doesn't follow, nor happen, that is the thing which Yahweh has not spoken: the prophet has spoken it presumptuously, you shall not be afraid of him.
+22 When a prophet speaketh in the name of the Lord, if the thing follow not, nor come to pass, that is the thing which the Lord hath not spoken, but the prophet hath spoken it presumptuously: thou shalt not be afraid of him.
 
 
-## Chapter 19
+## Deuteronomy Chapter 19
 
-1. When Yahweh your God shall cut off the nations, whose land Yahweh your God gives you, and you succeed them, and dwell in their cities, and in their houses;
+1 When the Lord thy God hath cut off the nations, whose land the Lord thy God giveth thee, and thou succeedest them, and dwellest in their cities, and in their houses;
 
-2. you shall set apart three cities for you in the midst of your land, which Yahweh your God gives you to possess it.
+2 Thou shalt separate three cities for thee in the midst of thy land, which the Lord thy God giveth thee to possess it.
 
-3. You shall prepare you the way, and divide the borders of your land, which Yahweh your God causes you to inherit, into three parts, that every manslayer may flee there.
+3 Thou shalt prepare thee a way, and divide the coasts of thy land, which the Lord thy God giveth thee to inherit, into three parts, that every slayer may flee thither.
 
-4. This is the case of the manslayer, that shall flee there and live: whoever kills his neighbor unawares, and didn't hate him in time past;
+4 And this is the case of the slayer, which shall flee thither, that he may live: Whoso killeth his neighbour ignorantly, whom he hated not in time past;
 
-5. as when a man goes into the forest with his neighbor to chop wood, and his hand fetches a stroke with the axe to cut down the tree, and the head slips from the handle, and lights on his neighbor, so that he dies; he shall flee to one of these cities and live:
+5 As when a man goeth into the wood with his neighbour to hew wood, and his hand fetcheth a stroke with the axe to cut down the tree, and the head slippeth from the helve, and lighteth upon his neighbour, that he die; he shall flee unto one of those cities, and live:
 
-6. lest the avenger of blood pursue the manslayer, while his heart is hot, and overtake him, because the way is long, and strike him mortally; whereas he was not worthy of death, inasmuch as he didn't hate him in time past.
+6 Lest the avenger of the blood pursue the slayer, while his heart is hot, and overtake him, because the way is long, and slay him; whereas he was not worthy of death, inasmuch as he hated him not in time past.
 
-7. Therefore I command you, saying, You shall set apart three cities for yourselves.
+7 Wherefore I command thee, saying, Thou shalt separate three cities for thee.
 
-8. If Yahweh your God enlarges your border, as he has sworn to your fathers, and gives you all the land which he promised to give to your fathers;
+8 And if the Lord thy God enlarge thy coast, as he hath sworn unto thy fathers, and give thee all the land which he promised to give unto thy fathers;
 
-9. if you keep all this commandment to do it, which I command you this day, to love Yahweh your God, and to walk ever in his ways; then you shall add three cities more for yourselves, besides these three:
+9 If thou shalt keep all these commandments to do them, which I command thee this day, to love the Lord thy God, and to walk ever in his ways; then shalt thou add three cities more for thee, beside these three:
 
-10. that innocent blood not be shed in the midst of your land, which Yahweh your God gives you for an inheritance, and so blood be on you.
+10 That innocent blood be not shed in thy land, which the Lord thy God giveth thee for an inheritance, and so blood be upon thee.
 
-11. But if any man hates his neighbor, and lies in wait for him, and rises up against him, and strikes him mortally so that he dies, and he flees into one of these cities;
+11 But if any man hate his neighbour, and lie in wait for him, and rise up against him, and smite him mortally that he die, and fleeth into one of these cities:
 
-12. then the elders of his city shall send and bring him there, and deliver him into the hand of the avenger of blood, that he may die.
+12 Then the elders of his city shall send and fetch him thence, and deliver him into the hand of the avenger of blood, that he may die.
 
-13. Your eye shall not pity him, but you shall put away the innocent blood from Israel, that it may go well with you.
+13 Thine eye shall not pity him, but thou shalt put away the guilt of innocent blood from Israel, that it may go well with thee.
 
-14. You shall not remove your neighbor's landmark, which they of old time have set, in your inheritance which you shall inherit, in the land that Yahweh your God gives you to possess it.
+14 Thou shalt not remove thy neighbour's landmark, which they of old time have set in thine inheritance, which thou shalt inherit in the land that the Lord thy God giveth thee to possess it.
 
-15. One witness shall not rise up against a man for any iniquity, or for any sin, in any sin that he sins: at the mouth of two witnesses, or at the mouth of three witnesses, shall a matter be established.
+15 One witness shall not rise up against a man for any iniquity, or for any sin, in any sin that he sinneth: at the mouth of two witnesses, or at the mouth of three witnesses, shall the matter be established.
 
-16. If an unrighteous witness rise up against any man to testify against him of wrongdoing,
+16 If a false witness rise up against any man to testify against him that which is wrong;
 
-17. then both the men, between whom the controversy is, shall stand before Yahweh, before the priests and the judges who shall be in those days;
+17 Then both the men, between whom the controversy is, shall stand before the Lord, before the priests and the judges, which shall be in those days;
 
-18. and the judges shall make diligent inquisition: and, behold, if the witness is a false witness, and has testified falsely against his brother;
+18 And the judges shall make diligent inquisition: and, behold, if the witness be a false witness, and hath testified falsely against his brother;
 
-19. then you shall do to him as he had thought to do to his brother: so you shall put away the evil from the midst of you.
+19 Then shall ye do unto him, as he had thought to have done unto his brother: so shalt thou put the evil away from among you.
 
-20. Those who remain shall hear, and fear, and shall henceforth commit no more any such evil in the midst of you.
+20 And those which remain shall hear, and fear, and shall henceforth commit no more any such evil among you.
 
-21. Your eyes shall not pity; life [shall go] for life, eye for eye, tooth for tooth, hand for hand, foot for foot.
+21 And thine eye shall not pity; but life shall go for life, eye for eye, tooth for tooth, hand for hand, foot for foot.
 
 
-## Chapter 20
+## Deuteronomy Chapter 20
 
-1. When you go forth to battle against your enemies, and see horses, and chariots, [and] a people more than you, you shall not be afraid of them; for Yahweh your God is with you, who brought you up out of the land of Egypt.
+1 When thou goest out to battle against thine enemies, and seest horses, and chariots, and a people more than thou, be not afraid of them: for the Lord thy God is with thee, which brought thee up out of the land of Egypt.
 
-2. It shall be, when you draw near to the battle, that the priest shall approach and speak to the people,
+2 And it shall be, when ye are come nigh unto the battle, that the priest shall approach and speak unto the people,
 
-3. and shall tell them, "Hear, Israel, you draw near this day to battle against your enemies: don't let your heart faint; don't be afraid, nor tremble, neither be scared of them;
+3 And shall say unto them, Hear, O Israel, ye approach this day unto battle against your enemies: let not your hearts faint, fear not, and do not tremble, neither be ye terrified because of them;
 
-4. for Yahweh your God is he who goes with you, to fight for you against your enemies, to save you."
+4 For the Lord your God is he that goeth with you, to fight for you against your enemies, to save you.
 
-5. The officers shall speak to the people, saying, "What man is there who has built a new house, and has not dedicated it? Let him go and return to his house, lest he die in the battle, and another man dedicate it.
+5 And the officers shall speak unto the people, saying, What man is there that hath built a new house, and hath not dedicated it? let him go and return to his house, lest he die in the battle, and another man dedicate it.
 
-6. What man is there who has planted a vineyard, and has not used its fruit? Let him go and return to his house, lest he die in the battle, and another man use its fruit.
+6 And what man is he that hath planted a vineyard, and hath not yet eaten of it? let him also go and return unto his house, lest he die in the battle, and another man eat of it.
 
-7. What man is there who has pledged to be married a wife, and has not taken her? Let him go and return to his house, lest he die in the battle, and another man take her."
+7 And what man is there that hath betrothed a wife, and hath not taken her? let him go and return unto his house, lest he die in the battle, and another man take her.
 
-8. The officers shall speak further to the people, and they shall say, "What man is there who is fearful and fainthearted? Let him go and return to his house, lest his brother's heart melt as his heart."
+8 And the officers shall speak further unto the people, and they shall say, What man is there that is fearful and fainthearted? let him go and return unto his house, lest his brethren's heart faint as well as his heart.
 
-9. It shall be, when the officers have made an end of speaking to the people, that they shall appoint captains of armies at the head of the people.
+9 And it shall be, when the officers have made an end of speaking unto the people that they shall make captains of the armies to lead the people.
 
-10. When you draw near to a city to fight against it, then proclaim peace to it.
+10 When thou comest nigh unto a city to fight against it, then proclaim peace unto it.
 
-11. It shall be, if it makes you answer of peace, and opens to you, then it shall be, that all the people who are found therein shall become tributary to you, and shall serve you.
+11 And it shall be, if it make thee answer of peace, and open unto thee, then it shall be, that all the people that is found therein shall be tributaries unto thee, and they shall serve thee.
 
-12. If it will make no peace with you, but will make war against you, then you shall besiege it:
+12 And if it will make no peace with thee, but will make war against thee, then thou shalt besiege it:
 
-13. and when Yahweh your God delivers it into your hand, you shall strike every male of it with the edge of the sword:
+13 And when the Lord thy God hath delivered it into thine hands, thou shalt smite every male thereof with the edge of the sword:
 
-14. but the women, and the little ones, and the livestock, and all that is in the city, even all its spoil, you shall take for a prey to yourself; and you shall eat the spoil of your enemies, which Yahweh your God has given you.
+14 But the women, and the little ones, and the cattle, and all that is in the city, even all the spoil thereof, shalt thou take unto thyself; and thou shalt eat the spoil of thine enemies, which the Lord thy God hath given thee.
 
-15. Thus you shall do to all the cities which are very far off from you, which are not of the cities of these nations.
+15 Thus shalt thou do unto all the cities which are very far off from thee, which are not of the cities of these nations.
 
-16. But of the cities of these peoples, that Yahweh your God gives you for an inheritance, you shall save alive nothing that breathes;
+16 But of the cities of these people, which the Lord thy God doth give thee for an inheritance, thou shalt save alive nothing that breatheth:
 
-17. but you shall utterly destroy them: the Hittite, and the Amorite, the Canaanite, and the Perizzite, the Hivite, and the Jebusite; as Yahweh your God has commanded you;
+17 But thou shalt utterly destroy them; namely, the Hittites, and the Amorites, the Canaanites, and the Perizzites, the Hivites, and the Jebusites; as the Lord thy God hath commanded thee:
 
-18. that they not teach you to do after all their abominations, which they have done to their gods; so would you sin against Yahweh your God.
+18 That they teach you not to do after all their abominations, which they have done unto their gods; so should ye sin against the Lord your God.
 
-19. When you shall besiege a city a long time, in making war against it to take it, you shall not destroy its trees by wielding an axe against them; for you may eat of them, and you shall not cut them down; for is the tree of the field man, that it should be besieged of you?
+19 When thou shalt besiege a city a long time, in making war against it to take it, thou shalt not destroy the trees thereof by forcing an axe against them: for thou mayest eat of them, and thou shalt not cut them down (for the tree of the field is man's life) to employ them in the siege:
 
-20. Only the trees of which you know that they are not trees for food, you shall destroy and cut them down; and you shall build bulwarks against the city that makes war with you, until it fall.
+20 Only the trees which thou knowest that they be not trees for meat, thou shalt destroy and cut them down; and thou shalt build bulwarks against the city that maketh war with thee, until it be subdued.
 
 
-## Chapter 21
+## Deuteronomy Chapter 21
 
-1. If one be found slain in the land which Yahweh your God gives you to possess it, lying in the field, and it isn't known who has struck him;
+1 If one be found slain in the land which the Lord thy God giveth thee to possess it, lying in the field, and it be not known who hath slain him:
 
-2. then your elders and your judges shall come forth, and they shall measure to the cities which are around him who is slain:
+2 Then thy elders and thy judges shall come forth, and they shall measure unto the cities which are round about him that is slain:
 
-3. and it shall be, that the city which is nearest to the slain man, even the elders of that city shall take a heifer of the herd, which hasn't been worked with, and which has not drawn in the yoke;
+3 And it shall be, that the city which is next unto the slain man, even the elders of that city shall take an heifer, which hath not been wrought with, and which hath not drawn in the yoke;
 
-4. and the elders of that city shall bring down the heifer to a valley with running water, which is neither plowed nor sown, and shall break the heifer's neck there in the valley.
+4 And the elders of that city shall bring down the heifer unto a rough valley, which is neither eared nor sown, and shall strike off the heifer's neck there in the valley:
 
-5. The priests the sons of Levi shall come near; for them Yahweh your God has chosen to minister to him, and to bless in the name of Yahweh; and according to their word shall every controversy and every stroke be.
+5 And the priests the sons of Levi shall come near; for them the Lord thy God hath chosen to minister unto him, and to bless in the name of the Lord; and by their word shall every controversy and every stroke be tried:
 
-6. All the elders of that city, who are nearest to the slain man, shall wash their hands over the heifer whose neck was broken in the valley;
+6 And all the elders of that city, that are next unto the slain man, shall wash their hands over the heifer that is beheaded in the valley:
 
-7. and they shall answer and say, "Our hands have not shed this blood, neither have our eyes seen it.
+7 And they shall answer and say, Our hands have not shed this blood, neither have our eyes seen it.
 
-8. Forgive, Yahweh, your people Israel, whom you have redeemed, and don't allow innocent blood [to remain] in the midst of your people Israel." The blood shall be forgiven them.
+8 Be merciful, O Lord, unto thy people Israel, whom thou hast redeemed, and lay not innocent blood unto thy people of Israel's charge. And the blood shall be forgiven them.
 
-9. So you shall put away the innocent blood from the midst of you, when you shall do that which is right in the eyes of Yahweh.
+9 So shalt thou put away the guilt of innocent blood from among you, when thou shalt do that which is right in the sight of the Lord.
 
-10. When you go forth to battle against your enemies, and Yahweh your God delivers them into your hands, and you carry them away captive,
+10 When thou goest forth to war against thine enemies, and the Lord thy God hath delivered them into thine hands, and thou hast taken them captive,
 
-11. and see among the captives a beautiful woman, and you have a desire to her, and would take her to you as wife;
+11 And seest among the captives a beautiful woman, and hast a desire unto her, that thou wouldest have her to thy wife;
 
-12. then you shall bring her home to your house; and she shall shave her head, and pare her nails;
+12 Then thou shalt bring her home to thine house, and she shall shave her head, and pare her nails;
 
-13. and she shall put the clothing of her captivity from off her, and shall remain in your house, and bewail her father and her mother a full month: and after that you shall go in to her, and be her husband, and she shall be your wife.
+13 And she shall put the raiment of her captivity from off her, and shall remain in thine house, and bewail her father and her mother a full month: and after that thou shalt go in unto her, and be her husband, and she shall be thy wife.
 
-14. It shall be, if you have no delight in her, then you shall let her go where she will; but you shall not sell her at all for money, you shall not deal with her as a slave, because you have humbled her.
+14 And it shall be, if thou have no delight in her, then thou shalt let her go whither she will; but thou shalt not sell her at all for money, thou shalt not make merchandise of her, because thou hast humbled her.
 
-15. If a man have two wives, the one beloved, and the other hated, and they have borne him children, both the beloved and the hated; and if the firstborn son be hers who was hated;
+15 If a man have two wives, one beloved, and another hated, and they have born him children, both the beloved and the hated; and if the firstborn son be hers that was hated:
 
-16. then it shall be, in the day that he causes his sons to inherit that which he has, that he may not make the son of the beloved the firstborn before the son of the hated, who is the firstborn:
+16 Then it shall be, when he maketh his sons to inherit that which he hath, that he may not make the son of the beloved firstborn before the son of the hated, which is indeed the firstborn:
 
-17. but he shall acknowledge the firstborn, the son of the hated, by giving him a double portion of all that he has; for he is the beginning of his strength; the right of the firstborn is his.
+17 But he shall acknowledge the son of the hated for the firstborn, by giving him a double portion of all that he hath: for he is the beginning of his strength; the right of the firstborn is his.
 
-18. If a man have a stubborn and rebellious son, who will not obey the voice of his father, or the voice of his mother, and, though they chasten him, will not listen to them;
+18 If a man have a stubborn and rebellious son, which will not obey the voice of his father, or the voice of his mother, and that, when they have chastened him, will not hearken unto them:
 
-19. then shall his father and his mother lay hold on him, and bring him out to the elders of his city, and to the gate of his place;
+19 Then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;
 
-20. and they shall tell the elders of his city, "This our son is stubborn and rebellious, he will not obey our voice; he is a glutton, and a drunkard."
+20 And they shall say unto the elders of his city, This our son is stubborn and rebellious, he will not obey our voice; he is a glutton, and a drunkard.
 
-21. All the men of his city shall stone him to death with stones: so you shall put away the evil from the midst of you; and all Israel shall hear, and fear.
+21 And all the men of his city shall stone him with stones, that he die: so shalt thou put evil away from among you; and all Israel shall hear, and fear.
 
-22. If a man have committed a sin worthy of death, and he be put to death, and you hang him on a tree;
+22 And if a man have committed a sin worthy of death, and he be to be put to death, and thou hang him on a tree:
 
-23. his body shall not remain all night on the tree, but you shall surely bury him the same day; for he who is hanged is accursed of God; that you don't defile your land which Yahweh your God gives you for an inheritance.
+23 His body shall not remain all night upon the tree, but thou shalt in any wise bury him that day; (for he that is hanged is accursed of God;) that thy land be not defiled, which the Lord thy God giveth thee for an inheritance.
 
 
-## Chapter 22
+## Deuteronomy Chapter 22
 
-1. You shall not see your brother's ox or his sheep go astray, and hide yourself from them: you shall surely bring them again to your brother.
+1 Thou shalt not see thy brother's ox or his sheep go astray, and hide thyself from them: thou shalt in any case bring them again unto thy brother.
 
-2. If your brother isn't near to you, or if you don't know him, then you shall bring it home to your house, and it shall be with you until your brother seek after it, and you shall restore it to him.
+2 And if thy brother be not nigh unto thee, or if thou know him not, then thou shalt bring it unto thine own house, and it shall be with thee until thy brother seek after it, and thou shalt restore it to him again.
 
-3. So you shall do with his donkey; and so you shall do with his garment; and so you shall do with every lost thing of your brother's, which he has lost, and you have found: you may not hide yourself.
+3 In like manner shalt thou do with his ass; and so shalt thou do with his raiment; and with all lost thing of thy brother's, which he hath lost, and thou hast found, shalt thou do likewise: thou mayest not hide thyself.
 
-4. You shall not see your brother's donkey or his ox fallen down by the way, and hide yourself from them: you shall surely help him to lift them up again.
+4 Thou shalt not see thy brother's ass or his ox fall down by the way, and hide thyself from them: thou shalt surely help him to lift them up again.
 
-5. A woman shall not wear men's clothing, neither shall a man put on women's clothing; for whoever does these things is an abomination to Yahweh your God.
+5 The woman shall not wear that which pertaineth unto a man, neither shall a man put on a woman's garment: for all that do so are abomination unto the Lord thy God.
 
-6. If a bird's nest chance to be before you in the way, in any tree or on the ground, with young ones or eggs, and the hen sitting on the young, or on the eggs, you shall not take the hen with the young:
+6 If a bird's nest chance to be before thee in the way in any tree, or on the ground, whether they be young ones, or eggs, and the dam sitting upon the young, or upon the eggs, thou shalt not take the dam with the young:
 
-7. you shall surely let the hen go, but the young you may take to yourself; that it may be well with you, and that you may prolong your days.
+7 But thou shalt in any wise let the dam go, and take the young to thee; that it may be well with thee, and that thou mayest prolong thy days.
 
-8. When you build a new house, then you shall make a battlement for your roof, that you don't bring blood on your house, if any man fall from there.
+8 When thou buildest a new house, then thou shalt make a battlement for thy roof, that thou bring not blood upon thine house, if any man fall from thence.
 
-9. You shall not sow your vineyard with two kinds of seed, lest the whole fruit be forfeited, the seed which you have sown, and the increase of the vineyard.
+9 Thou shalt not sow thy vineyard with divers seeds: lest the fruit of thy seed which thou hast sown, and the fruit of thy vineyard, be defiled.
 
-10. You shall not plow with an ox and a donkey together.
+10 Thou shalt not plow with an ox and an ass together.
 
-11. You shall not wear a mixed stuff, wool and linen together.
+11 Thou shalt not wear a garment of divers sorts, as of woollen and linen together.
 
-12. You shall make yourselves fringes on the four borders of your cloak, with which you cover yourself.
+12 Thou shalt make thee fringes upon the four quarters of thy vesture, wherewith thou coverest thyself.
 
-13. If any man takes a wife, and goes in to her, and hates her,
+13 If any man take a wife, and go in unto her, and hate her,
 
-14. and accuses her of shameful things, and brings up an evil name on her, and says, "I took this woman, and when I came near to her, I didn't find in her the tokens of virginity;"
+14 And give occasions of speech against her, and bring up an evil name upon her, and say, I took this woman, and when I came to her, I found her not a maid:
 
-15. then shall the father of the young lady, and her mother, take and bring forth the tokens of the young lady's virginity to the elders of the city in the gate;
+15 Then shall the father of the damsel, and her mother, take and bring forth the tokens of the damsel's virginity unto the elders of the city in the gate:
 
-16. and the young lady's father shall tell the elders, "I gave my daughter to this man to wife, and he hates her;
+16 And the damsel's father shall say unto the elders, I gave my daughter unto this man to wife, and he hateth her;
 
-17. and behold, he has accused her of shameful things, saying, 'I didn't find in your daughter the tokens of virginity;' and yet these are the tokens of my daughter's virginity." They shall spread the cloth before the elders of the city.
+17 And, lo, he hath given occasions of speech against her, saying, I found not thy daughter a maid; and yet these are the tokens of my daughter's virginity. And they shall spread the cloth before the elders of the city.
 
-18. The elders of that city shall take the man and chastise him;
+18 And the elders of that city shall take that man and chastise him;
 
-19. and they shall fine him one hundred [shekels] of silver, and give them to the father of the young lady, because he has brought up an evil name on a virgin of Israel: and she shall be his wife; he may not put her away all his days.
+19 And they shall amerce him in an hundred shekels of silver, and give them unto the father of the damsel, because he hath brought up an evil name upon a virgin of Israel: and she shall be his wife; he may not put her away all his days.
 
-20. But if this thing be true, that the tokens of virginity were not found in the young lady;
+20 But if this thing be true, and the tokens of virginity be not found for the damsel:
 
-21. then they shall bring out the young lady to the door of her father's house, and the men of her city shall stone her to death with stones, because she has done folly in Israel, to play the prostitute in her father's house: so you shall put away the evil from the midst of you.
+21 Then they shall bring out the damsel to the door of her father's house, and the men of her city shall stone her with stones that she die: because she hath wrought folly in Israel, to play the whore in her father's house: so shalt thou put evil away from among you.
 
-22. If a man be found lying with a woman married to a husband, then they shall both of them die, the man who lay with the woman, and the woman: so you shall put away the evil from Israel.
+22 If a man be found lying with a woman married to an husband, then they shall both of them die, both the man that lay with the woman, and the woman: so shalt thou put away evil from Israel.
 
-23. If there is a young lady who is a virgin pledged to be married to a husband, and a man find her in the city, and lie with her;
+23 If a damsel that is a virgin be betrothed unto an husband, and a man find her in the city, and lie with her;
 
-24. then you shall bring them both out to the gate of that city, and you shall stone them to death with stones; the lady, because she didn't cry, being in the city; and the man, because he has humbled his neighbor's wife: so you shall put away the evil from the midst of you.
+24 Then ye shall bring them both out unto the gate of that city, and ye shall stone them with stones that they die; the damsel, because she cried not, being in the city; and the man, because he hath humbled his neighbour's wife: so thou shalt put away evil from among you.
 
-25. But if the man find the lady who is pledged to be married in the field, and the man force her, and lie with her; then the man only who lay with her shall die:
+25 But if a man find a betrothed damsel in the field, and the man force her, and lie with her: then the man only that lay with her shall die.
 
-26. but to the lady you shall do nothing; there is in the lady no sin worthy of death: for as when a man rises against his neighbor, and kills him, even so is this matter;
+26 But unto the damsel thou shalt do nothing; there is in the damsel no sin worthy of death: for as when a man riseth against his neighbour, and slayeth him, even so is this matter:
 
-27. for he found her in the field, the pledged to be married lady cried, and there was none to save her.
+27 For he found her in the field, and the betrothed damsel cried, and there was none to save her.
 
-28. If a man find a lady who is a virgin, who is not pledged to be married, and lay hold on her, and lie with her, and they be found;
+28 If a man find a damsel that is a virgin, which is not betrothed, and lay hold on her, and lie with her, and they be found;
 
-29. then the man who lay with her shall give to the lady's father fifty [shekels] of silver, and she shall be his wife, because he has humbled her; he may not put her away all his days.
+29 Then the man that lay with her shall give unto the damsel's father fifty shekels of silver, and she shall be his wife; because he hath humbled her, he may not put her away all his days.
 
-30. A man shall not take his father's wife, and shall not uncover his father's skirt.
+30 A man shall not take his father's wife, nor discover his father's skirt.
 
 
-## Chapter 23
+## Deuteronomy Chapter 23
 
-1. He who is wounded in the stones, or has his privy member cut off, shall not enter into the assembly of Yahweh.
+1 He that is wounded in the stones, or hath his privy member cut off, shall not enter into the congregation of the Lord.
 
-2. A bastard shall not enter into the assembly of Yahweh; even to the tenth generation shall none of his enter into the assembly of Yahweh.
+2 A bastard shall not enter into the congregation of the Lord; even to his tenth generation shall he not enter into the congregation of the Lord.
 
-3. An Ammonite or a Moabite shall not enter into the assembly of Yahweh; even to the tenth generation shall none belonging to them enter into the assembly of Yahweh forever:
+3 An Ammonite or Moabite shall not enter into the congregation of the Lord; even to their tenth generation shall they not enter into the congregation of the Lord for ever:
 
-4. because they didn't meet you with bread and with water in the way, when you came forth out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you.
+4 Because they met you not with bread and with water in the way, when ye came forth out of Egypt; and because they hired against thee Balaam the son of Beor of Pethor of Mesopotamia, to curse thee.
 
-5. Nevertheless Yahweh your God wouldn't listen to Balaam; but Yahweh your God turned the curse into a blessing to you, because Yahweh your God loved you.
+5 Nevertheless the Lord thy God would not hearken unto Balaam; but the Lord thy God turned the curse into a blessing unto thee, because the Lord thy God loved thee.
 
-6. You shall not seek their peace nor their prosperity all your days forever.
+6 Thou shalt not seek their peace nor their prosperity all thy days for ever.
 
-7. You shall not abhor an Edomite; for he is your brother: you shall not abhor an Egyptian, because you lived as a foreigner in his land.
+7 Thou shalt not abhor an Edomite; for he is thy brother: thou shalt not abhor an Egyptian; because thou wast a stranger in his land.
 
-8. The children of the third generation who are born to them shall enter into the assembly of Yahweh.
+8 The children that are begotten of them shall enter into the congregation of the Lord in their third generation.
 
-9. When you go forth in camp against your enemies, then you shall keep yourselves from every evil thing.
+9 When the host goeth forth against thine enemies, then keep thee from every wicked thing.
 
-10. If there is among you any man who is not clean by reason of that which happens him by night, then shall he go outside of the camp. He shall not come within the camp:
+10 If there be among you any man, that is not clean by reason of uncleanness that chanceth him by night, then shall he go abroad out of the camp, he shall not come within the camp:
 
-11. but it shall be, when evening comes on, he shall bathe himself in water; and when the sun is down, he shall come within the camp.
+11 But it shall be, when evening cometh on, he shall wash himself with water: and when the sun is down, he shall come into the camp again.
 
-12. You shall have a place also outside of the camp, where you shall go forth abroad:
+12 Thou shalt have a place also without the camp, whither thou shalt go forth abroad:
 
-13. and you shall have a paddle among your weapons; and it shall be, when you sit down abroad, you shall dig therewith, and shall turn back and cover that which comes from you:
+13 And thou shalt have a paddle upon thy weapon; and it shall be, when thou wilt ease thyself abroad, thou shalt dig therewith, and shalt turn back and cover that which cometh from thee:
 
-14. for Yahweh your God walks in the midst of your camp, to deliver you, and to give up your enemies before you; therefore your camp shall be holy, that he may not see an unclean thing in you, and turn away from you.
+14 For the Lord thy God walketh in the midst of thy camp, to deliver thee, and to give up thine enemies before thee; therefore shall thy camp be holy: that he see no unclean thing in thee, and turn away from thee.
 
-15. You shall not deliver to his master a servant who is escaped from his master to you:
+15 Thou shalt not deliver unto his master the servant which is escaped from his master unto thee:
 
-16. he shall dwell with you, in the midst of you, in the place which he shall choose within one of your gates, where it pleases him best: you shall not oppress him.
+16 He shall dwell with thee, even among you, in that place which he shall choose in one of thy gates, where it liketh him best: thou shalt not oppress him.
 
-17. There shall be no prostitute of the daughters of Israel, neither shall there be a sodomite of the sons of Israel.
+17 There shall be no whore of the daughters of Israel, nor a sodomite of the sons of Israel.
 
-18. You shall not bring the hire of a prostitute, or the wages of a dog, into the house of Yahweh your God for any vow: for even both these are an abomination to Yahweh your God.
+18 Thou shalt not bring the hire of a whore, or the price of a dog, into the house of the Lord thy God for any vow: for even both these are abomination unto the Lord thy God.
 
-19. You shall not lend on interest to your brother; interest of money, interest of food, interest of anything that is lent on interest:
+19 Thou shalt not lend upon usury to thy brother; usury of money, usury of victuals, usury of any thing that is lent upon usury:
 
-20. to a foreigner you may lend on interest; but to your brother you shall not lend on interest, that Yahweh your God may bless you in all that you put your hand to, in the land where you go in to possess it.
+20 Unto a stranger thou mayest lend upon usury; but unto thy brother thou shalt not lend upon usury: that the Lord thy God may bless thee in all that thou settest thine hand to in the land whither thou goest to possess it.
 
-21. When you shall vow a vow to Yahweh your God, you shall not be slack to pay it: for Yahweh your God will surely require it of you; and it would be sin in you.
+21 When thou shalt vow a vow unto the Lord thy God, thou shalt not slack to pay it: for the Lord thy God will surely require it of thee; and it would be sin in thee.
 
-22. But if you shall forbear to vow, it shall be no sin in you.
+22 But if thou shalt forbear to vow, it shall be no sin in thee.
 
-23. That which is gone out of your lips you shall observe and do; according as you have vowed to Yahweh your God, a freewill offering, which you have promised with your mouth.
+23 That which is gone out of thy lips thou shalt keep and perform; even a freewill offering, according as thou hast vowed unto the Lord thy God, which thou hast promised with thy mouth.
 
-24. When you come into your neighbor's vineyard, then you may eat of grapes your fill at your own pleasure; but you shall not put any in your vessel.
+24 When thou comest into thy neighbour's vineyard, then thou mayest eat grapes thy fill at thine own pleasure; but thou shalt not put any in thy vessel.
 
-25. When you come into your neighbor's standing grain, then you may pluck the ears with your hand; but you shall not move a sickle to your neighbor's standing grain.
+25 When thou comest into the standing corn of thy neighbour, then thou mayest pluck the ears with thine hand; but thou shalt not move a sickle unto thy neighbour's standing corn.
 
 
-## Chapter 24
+## Deuteronomy Chapter 24
 
-1. When a man takes a wife, and marries her, then it shall be, if she find no favor in his eyes, because he has found some unseemly thing in her, that he shall write her a bill of divorce, and give it in her hand, and send her out of his house.
+1 When a man hath taken a wife, and married her, and it come to pass that she find no favour in his eyes, because he hath found some uncleanness in her: then let him write her a bill of divorcement, and give it in her hand, and send her out of his house.
 
-2. When she is departed out of his house, she may go and be another man's [wife].
+2 And when she is departed out of his house, she may go and be another man's wife.
 
-3. If the latter husband hate her, and write her a bill of divorce, and give it in her hand, and send her out of his house; or if the latter husband die, who took her to be his wife;
+3 And if the latter husband hate her, and write her a bill of divorcement, and giveth it in her hand, and sendeth her out of his house; or if the latter husband die, which took her to be his wife;
 
-4. her former husband, who sent her away, may not take her again to be his wife, after that she is defiled; for that is abomination before Yahweh: and you shall not cause the land to sin, which Yahweh your God gives you for an inheritance.
+4 Her former husband, which sent her away, may not take her again to be his wife, after that she is defiled; for that is abomination before the Lord: and thou shalt not cause the land to sin, which the Lord thy God giveth thee for an inheritance.
 
-5. When a man takes a new wife, he shall not go out in the army, neither shall he be assigned any business: he shall be free at home one year, and shall cheer his wife whom he has taken.
+5 When a man hath taken a new wife, he shall not go out to war, neither shall he be charged with any business: but he shall be free at home one year, and shall cheer up his wife which he hath taken.
 
-6. No man shall take the mill or the upper millstone to pledge; for he takes [a man's] life to pledge.
+6 No man shall take the nether or the upper millstone to pledge: for he taketh a man's life to pledge.
 
-7. If a man be found stealing any of his brothers of the children of Israel, and he deal with him as a slave, or sell him; then that thief shall die: so you shall put away the evil from the midst of you.
+7 If a man be found stealing any of his brethren of the children of Israel, and maketh merchandise of him, or selleth him; then that thief shall die; and thou shalt put evil away from among you.
 
-8. Take heed in the plague of leprosy, that you observe diligently, and do according to all that the priests the Levites shall teach you: as I commanded them, so you shall observe to do.
+8 Take heed in the plague of leprosy, that thou observe diligently, and do according to all that the priests the Levites shall teach you: as I commanded them, so ye shall observe to do.
 
-9. Remember what Yahweh your God did to Miriam, by the way as you came forth out of Egypt.
+9 Remember what the Lord thy God did unto Miriam by the way, after that ye were come forth out of Egypt.
 
-10. When you do lend your neighbor any manner of loan, you shall not go into his house to get his pledge.
+10 When thou dost lend thy brother any thing, thou shalt not go into his house to fetch his pledge.
 
-11. You shall stand outside, and the man to whom you do lend shall bring forth the pledge outside to you.
+11 Thou shalt stand abroad, and the man to whom thou dost lend shall bring out the pledge abroad unto thee.
 
-12. If he be a poor man, you shall not sleep with his pledge;
+12 And if the man be poor, thou shalt not sleep with his pledge:
 
-13. you shall surely restore to him the pledge when the sun goes down, that he may sleep in his garment, and bless you: and it shall be righteousness to you before Yahweh your God.
+13 In any case thou shalt deliver him the pledge again when the sun goeth down, that he may sleep in his own raiment, and bless thee: and it shall be righteousness unto thee before the Lord thy God.
 
-14. You shall not oppress a hired servant who is poor and needy, whether he be of your brothers, or of your foreigners who are in your land within your gates:
+14 Thou shalt not oppress an hired servant that is poor and needy, whether he be of thy brethren, or of thy strangers that are in thy land within thy gates:
 
-15. in his day you shall give him his hire, neither shall the sun go down on it; for he is poor, and sets his heart on it: lest he cry against you to Yahweh, and it be sin to you.
+15 At his day thou shalt give him his hire, neither shall the sun go down upon it; for he is poor, and setteth his heart upon it: lest he cry against thee unto the Lord, and it be sin unto thee.
 
-16. The fathers shall not be put to death for the children, neither shall the children be put to death for the fathers: every man shall be put to death for his own sin.
+16 The fathers shall not be put to death for the children, neither shall the children be put to death for the fathers: every man shall be put to death for his own sin.
 
-17. You shall not wrest the justice [due] to the foreigner, [or] to the fatherless, nor take the widow's clothing to pledge;
+17 Thou shalt not pervert the judgment of the stranger, nor of the fatherless; nor take a widow's raiment to pledge:
 
-18. but you shall remember that you were a bondservant in Egypt, and Yahweh your God redeemed you there: therefore I command you to do this thing.
+18 But thou shalt remember that thou wast a bondman in Egypt, and the Lord thy God redeemed thee thence: therefore I command thee to do this thing.
 
-19. When you reap your harvest in your field, and have forgot a sheaf in the field, you shall not go again to get it: it shall be for the foreigner, for the fatherless, and for the widow; that Yahweh your God may bless you in all the work of your hands.
+19 When thou cuttest down thine harvest in thy field, and hast forgot a sheaf in the field, thou shalt not go again to fetch it: it shall be for the stranger, for the fatherless, and for the widow: that the Lord thy God may bless thee in all the work of thine hands.
 
-20. When you beat your olive tree, you shall not go over the boughs again: it shall be for the foreigner, for the fatherless, and for the widow.
+20 When thou beatest thine olive tree, thou shalt not go over the boughs again: it shall be for the stranger, for the fatherless, and for the widow.
 
-21. When you gather [the grapes of] your vineyard, you shall not glean it after yourselves: it shall be for the foreigner, for the fatherless, and for the widow.
+21 When thou gatherest the grapes of thy vineyard, thou shalt not glean it afterward: it shall be for the stranger, for the fatherless, and for the widow.
 
-22. You shall remember that you were a bondservant in the land of Egypt: therefore I command you to do this thing.
+22 And thou shalt remember that thou wast a bondman in the land of Egypt: therefore I command thee to do this thing.
 
 
-## Chapter 25
+## Deuteronomy Chapter 25
 
-1. If there be a controversy between men, and they come to judgment, and [the judges] judge them; then they shall justify the righteous, and condemn the wicked;
+1 If there be a controversy between men, and they come unto judgment, that the judges may judge them; then they shall justify the righteous, and condemn the wicked.
 
-2. and it shall be, if the wicked man be worthy to be beaten, that the judge shall cause him to lie down, and to be beaten before his face, according to his wickedness, by number.
+2 And it shall be, if the wicked man be worthy to be beaten, that the judge shall cause him to lie down, and to be beaten before his face, according to his fault, by a certain number.
 
-3. Forty stripes he may give him, he shall not exceed; lest, if he should exceed, and beat him above these with many stripes, then your brother should seem vile to you.
+3 Forty stripes he may give him, and not exceed: lest, if he should exceed, and beat him above these with many stripes, then thy brother should seem vile unto thee.
 
-4. You shall not muzzle the ox when he treads out [the grain].
+4 Thou shalt not muzzle the ox when he treadeth out the corn.
 
-5. If brothers dwell together, and one of them die, and have no son, the wife of the dead shall not be married outside to a stranger: her husband's brother shall go in to her, and take her to him as wife, and perform the duty of a husband's brother to her.
+5 If brethren dwell together, and one of them die, and have no child, the wife of the dead shall not marry without unto a stranger: her husband's brother shall go in unto her, and take her to him to wife, and perform the duty of an husband's brother unto her.
 
-6. It shall be, that the firstborn whom she bears shall succeed in the name of his brother who is dead, that his name not be blotted out of Israel.
+6 And it shall be, that the firstborn which she beareth shall succeed in the name of his brother which is dead, that his name be not put out of Israel.
 
-7. If the man doesn't want to take his brother's wife, then his brother's wife shall go up to the gate to the elders, and say, "My husband's brother refuses to raise up to his brother a name in Israel; he will not perform the duty of a husband's brother to me."
+7 And if the man like not to take his brother's wife, then let his brother's wife go up to the gate unto the elders, and say, My husband's brother refuseth to raise up unto his brother a name in Israel, he will not perform the duty of my husband's brother.
 
-8. Then the elders of his city shall call him, and speak to him: and if he stand, and say, "I don't want to take her;"
+8 Then the elders of his city shall call him, and speak unto him: and if he stand to it, and say, I like not to take her;
 
-9. then his brother's wife shall come to him in the presence of the elders, and loose his shoe from off his foot, and spit in his face; and she shall answer and say, "So shall it be done to the man who does not build up his brother's house."
+9 Then shall his brother's wife come unto him in the presence of the elders, and loose his shoe from off his foot, and spit in his face, and shall answer and say, So shall it be done unto that man that will not build up his brother's house.
 
-10. His name shall be called in Israel, The house of him who has his shoe untied.
+10 And his name shall be called in Israel, The house of him that hath his shoe loosed.
 
-11. When men strive together one with another, and the wife of the one draws near to deliver her husband out of the hand of him who strikes him, and puts forth her hand, and takes him by the secrets;
+11 When men strive together one with another, and the wife of the one draweth near for to deliver her husband out of the hand of him that smiteth him, and putteth forth her hand, and taketh him by the secrets:
 
-12. then you shall cut off her hand, your eye shall have no pity.
+12 Then thou shalt cut off her hand, thine eye shall not pity her.
 
-13. You shall not have in your bag diverse weights, a great and a small.
+13 Thou shalt not have in thy bag divers weights, a great and a small.
 
-14. You shall not have in your house diverse measures, a great and a small.
+14 Thou shalt not have in thine house divers measures, a great and a small.
 
-15. You shall have a perfect and just weight. You shall have a perfect and just measure, that your days may be long in the land which Yahweh your God gives you.
+15 But thou shalt have a perfect and just weight, a perfect and just measure shalt thou have: that thy days may be lengthened in the land which the Lord thy God giveth thee.
 
-16. For all who do such things, [even] all who do unrighteously, are an abomination to Yahweh your God.
+16 For all that do such things, and all that do unrighteously, are an abomination unto the Lord thy God.
 
-17. Remember what Amalek did to you by the way as you came forth out of Egypt;
+17 Remember what Amalek did unto thee by the way, when ye were come forth out of Egypt;
 
-18. how he met you by the way, and struck the hindmost of you, all who were feeble behind you, when you were faint and weary; and he didn't fear God.
+18 How he met thee by the way, and smote the hindmost of thee, even all that were feeble behind thee, when thou wast faint and weary; and he feared not God.
 
-19. Therefore it shall be, when Yahweh your God has given you rest from all your enemies all around, in the land which Yahweh your God gives you for an inheritance to possess it, that you shall blot out the memory of Amalek from under the sky; you shall not forget.
+19 Therefore it shall be, when the Lord thy God hath given thee rest from all thine enemies round about, in the land which the Lord thy God giveth thee for an inheritance to possess it, that thou shalt blot out the remembrance of Amalek from under heaven; thou shalt not forget it.
 
 
-## Chapter 26
+## Deuteronomy Chapter 26
 
-1. It shall be, when you are come in to the land which Yahweh your God gives you for an inheritance, and possess it, and dwell therein,
+1 And it shall be, when thou art come in unto the land which the Lord thy God giveth thee for an inheritance, and possessest it, and dwellest therein;
 
-2. that you shall take of the first of all the fruit of the ground, which you shall bring in from your land that Yahweh your God gives you; and you shall put it in a basket, and shall go to the place which Yahweh your God shall choose, to cause his name to dwell there.
+2 That thou shalt take of the first of all the fruit of the earth, which thou shalt bring of thy land that the Lord thy God giveth thee, and shalt put it in a basket, and shalt go unto the place which the Lord thy God shall choose to place his name there.
 
-3. You shall come to the priest who shall be in those days, and tell him, "I profess this day to Yahweh your God, that I am come to the land which Yahweh swore to our fathers to give us."
+3 And thou shalt go unto the priest that shall be in those days, and say unto him, I profess this day unto the Lord thy God, that I am come unto the country which the Lord sware unto our fathers for to give us.
 
-4. The priest shall take the basket out of your hand, and set it down before the altar of Yahweh your God.
+4 And the priest shall take the basket out of thine hand, and set it down before the altar of the Lord thy God.
 
-5. You shall answer and say before Yahweh your God, "A Syrian ready to perish was my father; and he went down into Egypt, and sojourned there, few in number; and he became there a nation, great, mighty, and populous.
+5 And thou shalt speak and say before the Lord thy God, A Syrian ready to perish was my father, and he went down into Egypt, and sojourned there with a few, and became there a nation, great, mighty, and populous:
 
-6. The Egyptians dealt ill with us, and afflicted us, and laid on us hard bondage:
+6 And the Egyptians evil entreated us, and afflicted us, and laid upon us hard bondage:
 
-7. and we cried to Yahweh, the God of our fathers, and Yahweh heard our voice, and saw our affliction, and our toil, and our oppression;
+7 And when we cried unto the Lord God of our fathers, the Lord heard our voice, and looked on our affliction, and our labour, and our oppression:
 
-8. and Yahweh brought us forth out of Egypt with a mighty hand, and with an outstretched arm, and with great terror, and with signs, and with wonders;
+8 And the Lord brought us forth out of Egypt with a mighty hand, and with an outstretched arm, and with great terribleness, and with signs, and with wonders:
 
-9. and he has brought us into this place, and has given us this land, a land flowing with milk and honey.
+9 And he hath brought us into this place, and hath given us this land, even a land that floweth with milk and honey.
 
-10. Now, behold, I have brought the first of the fruit of the ground, which you, Yahweh, have given me." You shall set it down before Yahweh your God, and worship before Yahweh your God.
+10 And now, behold, I have brought the firstfruits of the land, which thou, O Lord, hast given me. And thou shalt set it before the Lord thy God, and worship before the Lord thy God:
 
-11. You shall rejoice in all the good which Yahweh your God has given to you, and to your house, you, and the Levite, and the foreigner who is in the midst of you.
+11 And thou shalt rejoice in every good thing which the Lord thy God hath given unto thee, and unto thine house, thou, and the Levite, and the stranger that is among you.
 
-12. When you have made an end of tithing all the tithe of your increase in the third year, which is the year of tithing, then you shall give it to the Levite, to the foreigner, to the fatherless, and to the widow, that they may eat within your gates, and be filled.
+12 When thou hast made an end of tithing all the tithes of thine increase the third year, which is the year of tithing, and hast given it unto the Levite, the stranger, the fatherless, and the widow, that they may eat within thy gates, and be filled;
 
-13. You shall say before Yahweh your God, "I have put away the holy things out of my house, and also have given them to the Levite, and to the foreigner, to the fatherless, and to the widow, according to all your commandment which you have commanded me: I have not transgressed any of your commandments, neither have I forgotten them:
+13 Then thou shalt say before the Lord thy God, I have brought away the hallowed things out of mine house, and also have given them unto the Levite, and unto the stranger, to the fatherless, and to the widow, according to all thy commandments which thou hast commanded me: I have not transgressed thy commandments, neither have I forgotten them.
 
-14. I have not eaten of it in my mourning, neither have I put away of it, being unclean, nor given of it for the dead: I have listened to the voice of Yahweh my God; I have done according to all that you have commanded me.
+14 I have not eaten thereof in my mourning, neither have I taken away ought thereof for any unclean use, nor given ought thereof for the dead: but I have hearkened to the voice of the Lord my God, and have done according to all that thou hast commanded me.
 
-15. Look down from your holy habitation, from heaven, and bless your people Israel, and the ground which you have given us, as you swore to our fathers, a land flowing with milk and honey."
+15 Look down from thy holy habitation, from heaven, and bless thy people Israel, and the land which thou hast given us, as thou swarest unto our fathers, a land that floweth with milk and honey.
 
-16. This day Yahweh your God commands you to do these statutes and ordinances: you shall therefore keep and do them with all your heart, and with all your soul.
+16 This day the Lord thy God hath commanded thee to do these statutes and judgments: thou shalt therefore keep and do them with all thine heart, and with all thy soul.
 
-17. You have declared Yahweh this day to be your God, and that you would walk in his ways, and keep his statutes, and his commandments, and his ordinances, and listen to his voice:
+17 Thou hast avouched the Lord this day to be thy God, and to walk in his ways, and to keep his statutes, and his commandments, and his judgments, and to hearken unto his voice:
 
-18. and Yahweh has declared you this day to be a people for his own possession, as he has promised you, and that you should keep all his commandments;
+18 And the Lord hath avouched thee this day to be his peculiar people, as he hath promised thee, and that thou shouldest keep all his commandments;
 
-19. and to make you high above all nations that he has made, in praise, and in name, and in honor; and that you may be a holy people to Yahweh your God, as he has spoken.
+19 And to make thee high above all nations which he hath made, in praise, and in name, and in honour; and that thou mayest be an holy people unto the Lord thy God, as he hath spoken.
 
 
-## Chapter 27
+## Deuteronomy Chapter 27
 
-1. Moses and the elders of Israel commanded the people, saying, "Keep all the commandment which I command you this day.
+1 And Moses with the elders of Israel commanded the people, saying, Keep all the commandments which I command you this day.
 
-2. It shall be on the day when you shall pass over the Jordan to the land which Yahweh your God gives you, that you shall set yourself up great stones, and plaster them with plaster:
+2 And it shall be on the day when ye shall pass over Jordan unto the land which the Lord thy God giveth thee, that thou shalt set thee up great stones, and plaister them with plaister:
 
-3. and you shall write on them all the words of this law, when you have passed over; that you may go in to the land which Yahweh your God gives you, a land flowing with milk and honey, as Yahweh, the God of your fathers, has promised you.
+3 And thou shalt write upon them all the words of this law, when thou art passed over, that thou mayest go in unto the land which the Lord thy God giveth thee, a land that floweth with milk and honey; as the Lord God of thy fathers hath promised thee.
 
-4. It shall be, when you have passed over the Jordan, that you shall set up these stones, which I command you this day, in Mount Ebal, and you shall plaster them with plaster.
+4 Therefore it shall be when ye be gone over Jordan, that ye shall set up these stones, which I command you this day, in mount Ebal, and thou shalt plaister them with plaister.
 
-5. There you shall build an altar to Yahweh your God, an altar of stones: you shall lift up no iron [tool] on them.
+5 And there shalt thou build an altar unto the Lord thy God, an altar of stones: thou shalt not lift up any iron tool upon them.
 
-6. You shall build the altar of Yahweh your God of uncut stones; and you shall offer burnt offerings thereon to Yahweh your God:
+6 Thou shalt build the altar of the Lord thy God of whole stones: and thou shalt offer burnt offerings thereon unto the Lord thy God:
 
-7. and you shall sacrifice peace offerings, and shall eat there; and you shall rejoice before Yahweh your God.
+7 And thou shalt offer peace offerings, and shalt eat there, and rejoice before the Lord thy God.
 
-8. You shall write on the stones all the words of this law very plainly."
+8 And thou shalt write upon the stones all the words of this law very plainly.
 
-9. Moses and the priests the Levites spoke to all Israel, saying, "Keep silence, and listen, Israel: this day you have become the people of Yahweh your God.
+9 And Moses and the priests the Levites spake unto all Israel, saying, Take heed, and hearken, O Israel; this day thou art become the people of the Lord thy God.
 
-10. You shall therefore obey the voice of Yahweh your God, and do his commandments and his statutes, which I command you this day."
+10 Thou shalt therefore obey the voice of the Lord thy God, and do his commandments and his statutes, which I command thee this day.
 
-11. Moses commanded the people the same day, saying,
+11 And Moses charged the people the same day, saying,
 
-12. "These shall stand on Mount Gerizim to bless the people, when you have passed over the Jordan: Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin.
+12 These shall stand upon mount Gerizim to bless the people, when ye are come over Jordan; Simeon, and Levi, and Judah, and Issachar, and Joseph, and Benjamin:
 
-13. These shall stand on Mount Ebal for the curse: Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.
+13 And these shall stand upon mount Ebal to curse; Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.
 
-14. The Levites shall answer, and tell all the men of Israel with a loud voice,
+14 And the Levites shall speak, and say unto all the men of Israel with a loud voice,
 
-15. 'Cursed is the man who makes an engraved or molten image, an abomination to Yahweh, the work of the hands of the craftsman, and sets it up in secret.' All the people shall answer and say, 'Amen.'
+15 Cursed be the man that maketh any graven or molten image, an abomination unto the Lord, the work of the hands of the craftsman, and putteth it in a secret place. And all the people shall answer and say, Amen.
 
-16. 'Cursed is he who sets light by his father or his mother.' All the people shall say, 'Amen.'
+16 Cursed be he that setteth light by his father or his mother. And all the people shall say, Amen.
 
-17. 'Cursed is he who removes his neighbor's landmark.' All the people shall say, 'Amen.'
+17 Cursed be he that removeth his neighbour's landmark. And all the people shall say, Amen.
 
-18. 'Cursed is he who makes the blind to wander out of the way.' All the people shall say, 'Amen.'
+18 Cursed be he that maketh the blind to wander out of the way. And all the people shall say, Amen.
 
-19. 'Cursed is he who wrests the justice [due] to the foreigner, fatherless, and widow.' All the people shall say, 'Amen.'
+19 Cursed be he that perverteth the judgment of the stranger, fatherless, and widow. And all the people shall say, Amen.
 
-20. 'Cursed is he who lies with his father's wife, because he has uncovered his father's skirt.' All the people shall say, 'Amen.'
+20 Cursed be he that lieth with his father's wife; because he uncovereth his father's skirt. And all the people shall say, Amen.
 
-21. 'Cursed is he who lies with any manner of animal.' All the people shall say, 'Amen.'
+21 Cursed be he that lieth with any manner of beast. And all the people shall say, Amen.
 
-22. 'Cursed is he who lies with his sister, the daughter of his father, or the daughter of his mother.' All the people shall say, 'Amen.'
+22 Cursed be he that lieth with his sister, the daughter of his father, or the daughter of his mother. And all the people shall say, Amen.
 
-23. 'Cursed is he who lies with his mother-in-law.' All the people shall say, 'Amen.'
+23 Cursed be he that lieth with his mother in law. And all the people shall say, Amen.
 
-24. 'Cursed is he who strikes his neighbor in secret.' All the people shall say, 'Amen.'
+24 Cursed be he that smiteth his neighbour secretly. And all the people shall say, Amen.
 
-25. 'Cursed is he who takes a bribe to kill an innocent person.' All the people shall say, 'Amen.'
+25 Cursed be he that taketh reward to slay an innocent person. And all the people shall say, Amen.
 
-26. 'Cursed is he who doesn't confirm the words of this law to do them.' All the people shall say, 'Amen.'"
+26 Cursed be he that confirmeth not all the words of this law to do them. And all the people shall say, Amen.
 
 
-## Chapter 28
+## Deuteronomy Chapter 28
 
-1. It shall happen, if you shall listen diligently to the voice of Yahweh your God, to observe to do all his commandments which I command you this day, that Yahweh your God will set you on high above all the nations of the earth:
+1 And it shall come to pass, if thou shalt hearken diligently unto the voice of the Lord thy God, to observe and to do all his commandments which I command thee this day, that the Lord thy God will set thee on high above all nations of the earth:
 
-2. and all these blessings shall come on you, and overtake you, if you shall listen to the voice of Yahweh your God.
+2 And all these blessings shall come on thee, and overtake thee, if thou shalt hearken unto the voice of the Lord thy God.
 
-3. You shall be blessed in the city, and you shall be blessed in the field.
+3 Blessed shalt thou be in the city, and blessed shalt thou be in the field.
 
-4. You shall be blessed in the fruit of your body, the fruit of your ground, the fruit of your animals, the increase of your livestock, and the young of your flock.
+4 Blessed shall be the fruit of thy body, and the fruit of thy ground, and the fruit of thy cattle, the increase of thy kine, and the flocks of thy sheep.
 
-5. Your basket and your kneading trough shall be blessed.
+5 Blessed shall be thy basket and thy store.
 
-6. You shall be blessed when you come in, and you shall be blessed when you go out.
+6 Blessed shalt thou be when thou comest in, and blessed shalt thou be when thou goest out.
 
-7. Yahweh will cause your enemies who rise up against you to be struck before you. They will come out against you one way, and will flee before you seven ways.
+7 The Lord shall cause thine enemies that rise up against thee to be smitten before thy face: they shall come out against thee one way, and flee before thee seven ways.
 
-8. Yahweh will command the blessing on you in your barns, and in all that you put your hand to; and he will bless you in the land which Yahweh your God gives you.
+8 The Lord shall command the blessing upon thee in thy storehouses, and in all that thou settest thine hand unto; and he shall bless thee in the land which the Lord thy God giveth thee.
 
-9. Yahweh will establish you for a holy people to himself, as he has sworn to you; if you shall keep the commandments of Yahweh your God, and walk in his ways.
+9 The Lord shall establish thee an holy people unto himself, as he hath sworn unto thee, if thou shalt keep the commandments of the Lord thy God, and walk in his ways.
 
-10. All the peoples of the earth shall see that you are called by the name of Yahweh; and they shall be afraid of you.
+10 And all people of the earth shall see that thou art called by the name of the Lord; and they shall be afraid of thee.
 
-11. Yahweh will make you plenteous for good, in the fruit of your body, and in the fruit of your livestock, and in the fruit of your ground, in the land which Yahweh swore to your fathers to give you.
+11 And the Lord shall make thee plenteous in goods, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy ground, in the land which the Lord sware unto thy fathers to give thee.
 
-12. Yahweh will open to you his good treasure in the sky, to give the rain of your land in its season, and to bless all the work of your hand: and you shall lend to many nations, and you shall not borrow.
+12 The Lord shall open unto thee his good treasure, the heaven to give the rain unto thy land in his season, and to bless all the work of thine hand: and thou shalt lend unto many nations, and thou shalt not borrow.
 
-13. Yahweh will make you the head, and not the tail; and you shall be above only, and you shall not be beneath; if you shall listen to the commandments of Yahweh your God, which I command you this day, to observe and to do [them],
+13 And the Lord shall make thee the head, and not the tail; and thou shalt be above only, and thou shalt not be beneath; if that thou hearken unto the commandments of the Lord thy God, which I command thee this day, to observe and to do them:
 
-14. and shall not turn aside from any of the words which I command you this day, to the right hand, or to the left, to go after other gods to serve them.
+14 And thou shalt not go aside from any of the words which I command thee this day, to the right hand, or to the left, to go after other gods to serve them.
 
-15. But it shall come to pass, if you will not listen to the voice of Yahweh your God, to observe to do all his commandments and his statutes which I command you this day, that all these curses shall come on you, and overtake you.
+15 But it shall come to pass, if thou wilt not hearken unto the voice of the Lord thy God, to observe to do all his commandments and his statutes which I command thee this day; that all these curses shall come upon thee, and overtake thee:
 
-16. You shall be cursed in the city, and you shall be cursed in the field.
+16 Cursed shalt thou be in the city, and cursed shalt thou be in the field.
 
-17. Your basket and your kneading trough shall be cursed.
+17 Cursed shall be thy basket and thy store.
 
-18. The fruit of your body, the fruit of your ground, the increase of your livestock, and the young of your flock shall be cursed.
+18 Cursed shall be the fruit of thy body, and the fruit of thy land, the increase of thy kine, and the flocks of thy sheep.
 
-19. You shall be cursed when you come in, and you shall be cursed when you go out.
+19 Cursed shalt thou be when thou comest in, and cursed shalt thou be when thou goest out.
 
-20. Yahweh will send on you cursing, confusion, and rebuke, in all that you put your hand to do, until you are destroyed, and until you perish quickly; because of the evil of your doings, by which you have forsaken me.
+20 The Lord shall send upon thee cursing, vexation, and rebuke, in all that thou settest thine hand unto for to do, until thou be destroyed, and until thou perish quickly; because of the wickedness of thy doings, whereby thou hast forsaken me.
 
-21. Yahweh will make the pestilence cling to you, until he has consumed you from off the land, where you go in to possess it.
+21 The Lord shall make the pestilence cleave unto thee, until he have consumed thee from off the land, whither thou goest to possess it.
 
-22. Yahweh will strike you with consumption, and with fever, and with inflammation, and with fiery heat, and with the sword, and with blight, and with mildew; and they shall pursue you until you perish.
+22 The Lord shall smite thee with a consumption, and with a fever, and with an inflammation, and with an extreme burning, and with the sword, and with blasting, and with mildew; and they shall pursue thee until thou perish.
 
-23. Your sky that is over your head shall be brass, and the earth that is under you shall be iron.
+23 And thy heaven that is over thy head shall be brass, and the earth that is under thee shall be iron.
 
-24. Yahweh will make the rain of your land powder and dust: from the sky shall it come down on you, until you are destroyed.
+24 The Lord shall make the rain of thy land powder and dust: from heaven shall it come down upon thee, until thou be destroyed.
 
-25. Yahweh will cause you to be struck before your enemies; you shall go out one way against them, and shall flee seven ways before them: and you shall be tossed back and forth among all the kingdoms of the earth.
+25 The Lord shall cause thee to be smitten before thine enemies: thou shalt go out one way against them, and flee seven ways before them: and shalt be removed into all the kingdoms of the earth.
 
-26. Your dead body shall be food to all birds of the sky, and to the animals of the earth; and there shall be none to frighten them away.
+26 And thy carcase shall be meat unto all fowls of the air, and unto the beasts of the earth, and no man shall fray them away.
 
-27. Yahweh will strike you with the boil of Egypt, and with the tumors, and with the scurvy, and with the itch, of which you can not be healed.
+27 The Lord will smite thee with the botch of Egypt, and with the emerods, and with the scab, and with the itch, whereof thou canst not be healed.
 
-28. Yahweh will strike you with madness, and with blindness, and with astonishment of heart;
+28 The Lord shall smite thee with madness, and blindness, and astonishment of heart:
 
-29. and you shall grope at noonday, as the blind gropes in darkness, and you shall not prosper in your ways: and you shall be only oppressed and robbed always, and there shall be none to save you.
+29 And thou shalt grope at noonday, as the blind gropeth in darkness, and thou shalt not prosper in thy ways: and thou shalt be only oppressed and spoiled evermore, and no man shall save thee.
 
-30. You shall betroth a wife, and another man shall lie with her: you shall build a house, and you shall not dwell therein: you shall plant a vineyard, and shall not use its fruit.
+30 Thou shalt betroth a wife, and another man shall lie with her: thou shalt build an house, and thou shalt not dwell therein: thou shalt plant a vineyard, and shalt not gather the grapes thereof.
 
-31. Your ox shall be slain before your eyes, and you shall not eat of it: your donkey shall be violently taken away from before your face, and shall not be restored to you: your sheep shall be given to your enemies, and you shall have none to save you.
+31 Thine ox shall be slain before thine eyes, and thou shalt not eat thereof: thine ass shall be violently taken away from before thy face, and shall not be restored to thee: thy sheep shall be given unto thine enemies, and thou shalt have none to rescue them.
 
-32. Your sons and your daughters shall be given to another people; and your eyes shall look, and fail with longing for them all the day: and there shall be nothing in the power of your hand.
+32 Thy sons and thy daughters shall be given unto another people, and thine eyes shall look, and fail with longing for them all the day long; and there shall be no might in thine hand.
 
-33. The fruit of your ground, and all your labors, shall a nation which you don't know eat up; and you shall be only oppressed and crushed always;
+33 The fruit of thy land, and all thy labours, shall a nation which thou knowest not eat up; and thou shalt be only oppressed and crushed alway:
 
-34. so that you shall be mad for the sight of your eyes which you shall see.
+34 So that thou shalt be mad for the sight of thine eyes which thou shalt see.
 
-35. Yahweh will strike you in the knees, and in the legs, with a sore boil, of which you can not be healed, from the sole of your foot to the crown of your head.
+35 The Lord shall smite thee in the knees, and in the legs, with a sore botch that cannot be healed, from the sole of thy foot unto the top of thy head.
 
-36. Yahweh will bring you, and your king whom you shall set over you, to a nation that you have not known, you nor your fathers; and there you shall serve other gods, wood and stone.
+36 The Lord shall bring thee, and thy king which thou shalt set over thee, unto a nation which neither thou nor thy fathers have known; and there shalt thou serve other gods, wood and stone.
 
-37. You shall become an astonishment, a proverb, and a byword, among all the peoples where Yahweh shall lead you away.
+37 And thou shalt become an astonishment, a proverb, and a byword, among all nations whither the Lord shall lead thee.
 
-38. You shall carry much seed out into the field, and shall gather little in; for the locust shall consume it.
+38 Thou shalt carry much seed out into the field, and shalt gather but little in; for the locust shall consume it.
 
-39. You shall plant vineyards and dress them, but you shall neither drink of the wine, nor gather [the grapes]; for the worm shall eat them.
+39 Thou shalt plant vineyards, and dress them, but shalt neither drink of the wine, nor gather the grapes; for the worms shall eat them.
 
-40. You shall have olive trees throughout all your borders, but you shall not anoint yourself with the oil; for your olive shall cast [its fruit].
+40 Thou shalt have olive trees throughout all thy coasts, but thou shalt not anoint thyself with the oil; for thine olive shall cast his fruit.
 
-41. You shall father sons and daughters, but they shall not be yours; for they shall go into captivity.
+41 Thou shalt beget sons and daughters, but thou shalt not enjoy them; for they shall go into captivity.
 
-42. All your trees and the fruit of your ground shall the locust possess.
+42 All thy trees and fruit of thy land shall the locust consume.
 
-43. The foreigner who is in the midst of you shall mount up above you higher and higher; and you shall come down lower and lower.
+43 The stranger that is within thee shall get up above thee very high; and thou shalt come down very low.
 
-44. He shall lend to you, and you shall not lend to him: he shall be the head, and you shall be the tail.
+44 He shall lend to thee, and thou shalt not lend to him: he shall be the head, and thou shalt be the tail.
 
-45. All these curses shall come on you, and shall pursue you, and overtake you, until you are destroyed; because you didn't listen to the voice of Yahweh your God, to keep his commandments and his statutes which he commanded you:
+45 Moreover all these curses shall come upon thee, and shall pursue thee, and overtake thee, till thou be destroyed; because thou hearkenedst not unto the voice of the Lord thy God, to keep his commandments and his statutes which he commanded thee:
 
-46. and they shall be on you for a sign and for a wonder, and on your seed forever.
+46 And they shall be upon thee for a sign and for a wonder, and upon thy seed for ever.
 
-47. Because you didn't serve Yahweh your God with joyfulness, and with gladness of heart, by reason of the abundance of all things;
+47 Because thou servedst not the Lord thy God with joyfulness, and with gladness of heart, for the abundance of all things;
 
-48. therefore you shall serve your enemies whom Yahweh shall send against you, in hunger, and in thirst, and in nakedness, and in want of all things: and he shall put a yoke of iron on your neck, until he has destroyed you.
+48 Therefore shalt thou serve thine enemies which the Lord shall send against thee, in hunger, and in thirst, and in nakedness, and in want of all things: and he shall put a yoke of iron upon thy neck, until he have destroyed thee.
 
-49. Yahweh will bring a nation against you from far, from the end of the earth, as the eagle flies; a nation whose language you shall not understand;
+49 The Lord shall bring a nation against thee from far, from the end of the earth, as swift as the eagle flieth; a nation whose tongue thou shalt not understand;
 
-50. a nation of fierce facial expressions, that shall not respect the person of the old, nor show favor to the young,
+50 A nation of fierce countenance, which shall not regard the person of the old, nor shew favour to the young:
 
-51. and shall eat the fruit of your livestock, and the fruit of your ground, until you are destroyed; that also shall not leave you grain, new wine, or oil, the increase of your livestock, or the young of your flock, until they have caused you to perish.
+51 And he shall eat the fruit of thy cattle, and the fruit of thy land, until thou be destroyed: which also shall not leave thee either corn, wine, or oil, or the increase of thy kine, or flocks of thy sheep, until he have destroyed thee.
 
-52. They shall besiege you in all your gates, until your high and fortified walls come down, in which you trusted, throughout all your land; and they shall besiege you in all your gates throughout all your land, which Yahweh your God has given you.
+52 And he shall besiege thee in all thy gates, until thy high and fenced walls come down, wherein thou trustedst, throughout all thy land: and he shall besiege thee in all thy gates throughout all thy land, which the Lord thy God hath given thee.
 
-53. You shall eat the fruit of your own body, the flesh of your sons and of your daughters, whom Yahweh your God has given you, in the siege and in the distress with which your enemies shall distress you.
+53 And thou shalt eat the fruit of thine own body, the flesh of thy sons and of thy daughters, which the Lord thy God hath given thee, in the siege, and in the straitness, wherewith thine enemies shall distress thee:
 
-54. The man who is tender among you, and very delicate, his eye shall be evil toward his brother, and toward the wife of his bosom, and toward the remnant of his children whom he has remaining;
+54 So that the man that is tender among you, and very delicate, his eye shall be evil toward his brother, and toward the wife of his bosom, and toward the remnant of his children which he shall leave:
 
-55. so that he will not give to any of them of the flesh of his children whom he shall eat, because he has nothing left him, in the siege and in the distress with which your enemy shall distress you in all your gates.
+55 So that he will not give to any of them of the flesh of his children whom he shall eat: because he hath nothing left him in the siege, and in the straitness, wherewith thine enemies shall distress thee in all thy gates.
 
-56. The tender and delicate woman among you, who would not adventure to set the sole of her foot on the ground for delicateness and tenderness, her eye shall be evil toward the husband of her bosom, and toward her son, and toward her daughter,
+56 The tender and delicate woman among you, which would not adventure to set the sole of her foot upon the ground for delicateness and tenderness, her eye shall be evil toward the husband of her bosom, and toward her son, and toward her daughter,
 
-57. and toward her young one who comes out from between her feet, and toward her children whom she shall bear; for she shall eat them for want of all things secretly, in the siege and in the distress with which your enemy shall distress you in your gates.
+57 And toward her young one that cometh out from between her feet, and toward her children which she shall bear: for she shall eat them for want of all things secretly in the siege and straitness, wherewith thine enemy shall distress thee in thy gates.
 
-58. If you will not observe to do all the words of this law that are written in this book, that you may fear this glorious and fearful name, YAHWEH YOUR GOD;
+58 If thou wilt not observe to do all the words of this law that are written in this book, that thou mayest fear this glorious and fearful name, The Lord Thy God;
 
-59. then Yahweh will make your plagues wonderful, and the plagues of your seed, even great plagues, and of long continuance, and sore sicknesses, and of long continuance.
+59 Then the Lord will make thy plagues wonderful, and the plagues of thy seed, even great plagues, and of long continuance, and sore sicknesses, and of long continuance.
 
-60. He will bring on you again all the diseases of Egypt, which you were afraid of; and they shall cling to you.
+60 Moreover he will bring upon thee all the diseases of Egypt, which thou wast afraid of; and they shall cleave unto thee.
 
-61. Also every sickness, and every plague, which is not written in the book of this law, Yahweh will bring them on you, until you are destroyed.
+61 Also every sickness, and every plague, which is not written in the book of this law, them will the Lord bring upon thee, until thou be destroyed.
 
-62. You shall be left few in number, whereas you were as the stars of the sky for multitude; because you didn't listen to the voice of Yahweh your God.
+62 And ye shall be left few in number, whereas ye were as the stars of heaven for multitude; because thou wouldest not obey the voice of the Lord thy God.
 
-63. It shall happen that as Yahweh rejoiced over you to do you good, and to multiply you, so Yahweh will rejoice over you to cause you to perish, and to destroy you; and you shall be plucked from off the land where you go in to possess it.
+63 And it shall come to pass, that as the Lord rejoiced over you to do you good, and to multiply you; so the Lord will rejoice over you to destroy you, and to bring you to nought; and ye shall be plucked from off the land whither thou goest to possess it.
 
-64. Yahweh will scatter you among all peoples, from the one end of the earth even to the other end of the earth; and there you shall serve other gods, which you have not known, you nor your fathers, even wood and stone.
+64 And the Lord shall scatter thee among all people, from the one end of the earth even unto the other; and there thou shalt serve other gods, which neither thou nor thy fathers have known, even wood and stone.
 
-65. Among these nations you shall find no ease, and there shall be no rest for the sole of your foot: but Yahweh will give you there a trembling heart, and failing of eyes, and pining of soul;
+65 And among these nations shalt thou find no ease, neither shall the sole of thy foot have rest: but the Lord shall give thee there a trembling heart, and failing of eyes, and sorrow of mind:
 
-66. and your life shall hang in doubt before you; and you shall fear night and day, and shall have no assurance of your life.
+66 And thy life shall hang in doubt before thee; and thou shalt fear day and night, and shalt have none assurance of thy life:
 
-67. In the morning you shall say, "I wish it were evening!" and at evening you shall say, "I wish it were morning!" for the fear of your heart which you shall fear, and for the sight of your eyes which you shall see.
+67 In the morning thou shalt say, Would God it were even! and at even thou shalt say, Would God it were morning! for the fear of thine heart wherewith thou shalt fear, and for the sight of thine eyes which thou shalt see.
 
-68. Yahweh will bring you into Egypt again with ships, by the way of which I said to you, You shall see it no more again: and there you shall sell yourselves to your enemies for bondservants and for bondmaids, and no man shall buy you.
+68 And the Lord shall bring thee into Egypt again with ships, by the way whereof I spake unto thee, Thou shalt see it no more again: and there ye shall be sold unto your enemies for bondmen and bondwomen, and no man shall buy you.
 
 
-## Chapter 29
+## Deuteronomy Chapter 29
 
-1. These are the words of the covenant which Yahweh commanded Moses to make with the children of Israel in the land of Moab, besides the covenant which he made with them in Horeb.
+1 These are the words of the covenant, which the Lord commanded Moses to make with the children of Israel in the land of Moab, beside the covenant which he made with them in Horeb.
 
-2. Moses called to all Israel, and said to them, You have seen all that Yahweh did before your eyes in the land of Egypt to Pharaoh, and to all his servants, and to all his land;
+2 And Moses called unto all Israel, and said unto them, Ye have seen all that the Lord did before your eyes in the land of Egypt unto Pharaoh, and unto all his servants, and unto all his land;
 
-3. the great trials which your eyes saw, the signs, and those great wonders:
+3 The great temptations which thine eyes have seen, the signs, and those great miracles:
 
-4. but Yahweh has not given you a heart to know, and eyes to see, and ears to hear, to this day.
+4 Yet the Lord hath not given you an heart to perceive, and eyes to see, and ears to hear, unto this day.
 
-5. I have led you forty years in the wilderness: your clothes have not grown old on you, and your shoes have not grown old on your feet.
+5 And I have led you forty years in the wilderness: your clothes are not waxen old upon you, and thy shoe is not waxen old upon thy foot.
 
-6. You have not eaten bread, neither have you drunk wine or strong drink; that you may know that I am Yahweh your God.
+6 Ye have not eaten bread, neither have ye drunk wine or strong drink: that ye might know that I am the Lord your God.
 
-7. When you came to this place, Sihon the king of Heshbon, and Og the king of Bashan, came out against us to battle, and we struck them:
+7 And when ye came unto this place, Sihon the king of Heshbon, and Og the king of Bashan, came out against us unto battle, and we smote them:
 
-8. and we took their land, and gave it for an inheritance to the Reubenites, and to the Gadites, and to the half-tribe of the Manassites.
+8 And we took their land, and gave it for an inheritance unto the Reubenites, and to the Gadites, and to the half tribe of Manasseh.
 
-9. Keep therefore the words of this covenant, and do them, that you may prosper in all that you do.
+9 Keep therefore the words of this covenant, and do them, that ye may prosper in all that ye do.
 
-10. You stand this day all of you before Yahweh your God; your heads, your tribes, your elders, and your officers, even all the men of Israel,
+10 Ye stand this day all of you before the Lord your God; your captains of your tribes, your elders, and your officers, with all the men of Israel,
 
-11. your little ones, your wives, and your foreigner who is in the midst of your camps, from the one who cuts your wood to the one who draws your water;
+11 Your little ones, your wives, and thy stranger that is in thy camp, from the hewer of thy wood unto the drawer of thy water:
 
-12. that you may enter into the covenant of Yahweh your God, and into his oath, which Yahweh your God makes with you this day;
+12 That thou shouldest enter into covenant with the Lord thy God, and into his oath, which the Lord thy God maketh with thee this day:
 
-13. that he may establish you this day to himself for a people, and that he may be to you a God, as he spoke to you, and as he swore to your fathers, to Abraham, to Isaac, and to Jacob.
+13 That he may establish thee to day for a people unto himself, and that he may be unto thee a God, as he hath said unto thee, and as he hath sworn unto thy fathers, to Abraham, to Isaac, and to Jacob.
 
-14. Neither with you only do I make this covenant and this oath,
+14 Neither with you only do I make this covenant and this oath;
 
-15. but with him who stands here with us this day before Yahweh our God, and also with him who is not here with us this day
+15 But with him that standeth here with us this day before the Lord our God, and also with him that is not here with us this day:
 
-16. (for you know how we lived in the land of Egypt, and how we came through the midst of the nations through which you passed;
+16 (For ye know how we have dwelt in the land of Egypt; and how we came through the nations which ye passed by;
 
-17. and you have seen their abominations, and their idols, wood and stone, silver and gold, which were among them);
+17 And ye have seen their abominations, and their idols, wood and stone, silver and gold, which were among them:)
 
-18. lest there should be among you man, or woman, or family, or tribe, whose heart turns away this day from Yahweh our God, to go to serve the gods of those nations; lest there should be among you a root that bears gall and wormwood;
+18 Lest there should be among you man, or woman, or family, or tribe, whose heart turneth away this day from the Lord our God, to go and serve the gods of these nations; lest there should be among you a root that beareth gall and wormwood;
 
-19. and it happen, when he hears the words of this curse, that he bless himself in his heart, saying, "I shall have peace, though I walk in the stubbornness of my heart, to destroy the moist with the dry."
+19 And it come to pass, when he heareth the words of this curse, that he bless himself in his heart, saying, I shall have peace, though I walk in the imagination of mine heart, to add drunkenness to thirst:
 
-20. Yahweh will not pardon him, but then the anger of Yahweh and his jealousy will smoke against that man, and all the curse that is written in this book shall lie on him, and Yahweh will blot out his name from under the sky.
+20 The Lord will not spare him, but then the anger of the Lord and his jealousy shall smoke against that man, and all the curses that are written in this book shall lie upon him, and the Lord shall blot out his name from under heaven.
 
-21. Yahweh will set him apart to evil out of all the tribes of Israel, according to all the curses of the covenant that is written in this book of the law.
+21 And the Lord shall separate him unto evil out of all the tribes of Israel, according to all the curses of the covenant that are written in this book of the law:
 
-22. The generation to come, your children who shall rise up after you, and the foreigner who shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses with which Yahweh has made it sick;
+22 So that the generation to come of your children that shall rise up after you, and the stranger that shall come from a far land, shall say, when they see the plagues of that land, and the sicknesses which the Lord hath laid upon it;
 
-23. [and that] the whole land of it is sulfur, and salt, [and] a burning, [that] it is not sown, nor bears, nor any grass grows therein, like the overthrow of Sodom and Gomorrah, Admah and Zeboiim, which Yahweh overthrew in his anger, and in his wrath:
+23 And that the whole land thereof is brimstone, and salt, and burning, that it is not sown, nor beareth, nor any grass groweth therein, like the overthrow of Sodom, and Gomorrah, Admah, and Zeboim, which the Lord overthrew in his anger, and in his wrath:
 
-24. even all the nations shall say, "Why has Yahweh done thus to this land? What does the heat of this great anger mean?"
+24 Even all nations shall say, Wherefore hath the Lord done thus unto this land? what meaneth the heat of this great anger?
 
-25. Then men shall say, "Because they forsook the covenant of Yahweh, the God of their fathers, which he made with them when he brought them forth out of the land of Egypt,
+25 Then men shall say, Because they have forsaken the covenant of the Lord God of their fathers, which he made with them when he brought them forth out of the land of Egypt:
 
-26. and went and served other gods, and worshiped them, gods that they didn't know, and that he had not given to them:
+26 For they went and served other gods, and worshipped them, gods whom they knew not, and whom he had not given unto them:
 
-27. therefore the anger of Yahweh was kindled against this land, to bring on it all the curse that is written in this book;
+27 And the anger of the Lord was kindled against this land, to bring upon it all the curses that are written in this book:
 
-28. and Yahweh rooted them out of their land in anger, and in wrath, and in great indignation, and cast them into another land, as at this day."
+28 And the Lord rooted them out of their land in anger, and in wrath, and in great indignation, and cast them into another land, as it is this day.
 
-29. The secret things belong to Yahweh our God; but the things that are revealed belong to us and to our children forever, that we may do all the words of this law.
+29 The secret things belong unto the Lord our God: but those things which are revealed belong unto us and to our children for ever, that we may do all the words of this law.
 
 
-## Chapter 30
+## Deuteronomy Chapter 30
 
-1. It shall happen, when all these things have come on you, the blessing and the curse, which I have set before you, and you shall call them to mind among all the nations, where Yahweh your God has driven you,
+1 And it shall come to pass, when all these things are come upon thee, the blessing and the curse, which I have set before thee, and thou shalt call them to mind among all the nations, whither the Lord thy God hath driven thee,
 
-2. and shall return to Yahweh your God, and shall obey his voice according to all that I command you this day, you and your children, with all your heart, and with all your soul;
+2 And shalt return unto the Lord thy God, and shalt obey his voice according to all that I command thee this day, thou and thy children, with all thine heart, and with all thy soul;
 
-3. that then Yahweh your God will turn your captivity, and have compassion on you, and will return and gather you from all the peoples, where Yahweh your God has scattered you.
+3 That then the Lord thy God will turn thy captivity, and have compassion upon thee, and will return and gather thee from all the nations, whither the Lord thy God hath scattered thee.
 
-4. If [any of] your outcasts are in the uttermost parts of the heavens, from there will Yahweh your God gather you, and from there he will bring you back:
+4 If any of thine be driven out unto the outmost parts of heaven, from thence will the Lord thy God gather thee, and from thence will he fetch thee:
 
-5. and Yahweh your God will bring you into the land which your fathers possessed, and you shall possess it; and he will do you good, and multiply you above your fathers.
+5 And the Lord thy God will bring thee into the land which thy fathers possessed, and thou shalt possess it; and he will do thee good, and multiply thee above thy fathers.
 
-6. Yahweh your God will circumcise your heart, and the heart of your seed, to love Yahweh your God with all your heart, and with all your soul, that you may live.
+6 And the Lord thy God will circumcise thine heart, and the heart of thy seed, to love the Lord thy God with all thine heart, and with all thy soul, that thou mayest live.
 
-7. Yahweh your God will put all these curses on your enemies, and on those who hate you, who persecuted you.
+7 And the Lord thy God will put all these curses upon thine enemies, and on them that hate thee, which persecuted thee.
 
-8. You shall return and obey the voice of Yahweh, and do all his commandments which I command you this day.
+8 And thou shalt return and obey the voice of the Lord, and do all his commandments which I command thee this day.
 
-9. Yahweh your God will make you plenteous in all the work of your hand, in the fruit of your body, and in the fruit of your livestock, and in the fruit of your ground, for good: for Yahweh will again rejoice over you for good, as he rejoiced over your fathers;
+9 And the Lord thy God will make thee plenteous in every work of thine hand, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy land, for good: for the Lord will again rejoice over thee for good, as he rejoiced over thy fathers:
 
-10. if you shall obey the voice of Yahweh your God, to keep his commandments and his statutes which are written in this book of the law; if you turn to Yahweh your God with all your heart, and with all your soul.
+10 If thou shalt hearken unto the voice of the Lord thy God, to keep his commandments and his statutes which are written in this book of the law, and if thou turn unto the Lord thy God with all thine heart, and with all thy soul.
 
-11. For this commandment which I command you this day, it is not too hard for you, neither is it far off.
+11 For this commandment which I command thee this day, it is not hidden from thee, neither is it far off.
 
-12. It is not in heaven, that you should say, "Who shall go up for us to heaven, and bring it to us, and make us to hear it, that we may do it?"
+12 It is not in heaven, that thou shouldest say, Who shall go up for us to heaven, and bring it unto us, that we may hear it, and do it?
 
-13. Neither is it beyond the sea, that you should say, "Who shall go over the sea for us, and bring it to us, and make us to hear it, that we may do it?"
+13 Neither is it beyond the sea, that thou shouldest say, Who shall go over the sea for us, and bring it unto us, that we may hear it, and do it?
 
-14. But the word is very near to you, in your mouth, and in your heart, that you may do it.
+14 But the word is very nigh unto thee, in thy mouth, and in thy heart, that thou mayest do it.
 
-15. Behold, I have set before you this day life and good, and death and evil;
+15 See, I have set before thee this day life and good, and death and evil;
 
-16. in that I command you this day to love Yahweh your God, to walk in his ways, and to keep his commandments and his statutes and his ordinances, that you may live and multiply, and that Yahweh your God may bless you in the land where you go in to possess it.
+16 In that I command thee this day to love the Lord thy God, to walk in his ways, and to keep his commandments and his statutes and his judgments, that thou mayest live and multiply: and the Lord thy God shall bless thee in the land whither thou goest to possess it.
 
-17. But if your heart turns away, and you will not hear, but shall be drawn away, and worship other gods, and serve them;
+17 But if thine heart turn away, so that thou wilt not hear, but shalt be drawn away, and worship other gods, and serve them;
 
-18. I denounce to you this day, that you shall surely perish; you shall not prolong your days in the land, where you pass over the Jordan to go in to possess it.
+18 I denounce unto you this day, that ye shall surely perish, and that ye shall not prolong your days upon the land, whither thou passest over Jordan to go to possess it.
 
-19. I call heaven and earth to witness against you this day, that I have set before you life and death, the blessing and the curse: therefore choose life, that you may live, you and your seed;
+19 I call heaven and earth to record this day against you, that I have set before you life and death, blessing and cursing: therefore choose life, that both thou and thy seed may live:
 
-20. to love Yahweh your God, to obey his voice, and to cleave to him; for he is your life, and the length of your days; that you may dwell in the land which Yahweh swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them.
+20 That thou mayest love the Lord thy God, and that thou mayest obey his voice, and that thou mayest cleave unto him: for he is thy life, and the length of thy days: that thou mayest dwell in the land which the Lord sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give them.
 
 
-## Chapter 31
+## Deuteronomy Chapter 31
 
-1. Moses went and spoke these words to all Israel.
+1 And Moses went and spake these words unto all Israel.
 
-2. He said to them, "I am one hundred twenty years old this day; I can no more go out and come in: and Yahweh has said to me, 'You shall not go over this Jordan.'
+2 And he said unto them, I am an hundred and twenty years old this day; I can no more go out and come in: also the Lord hath said unto me, Thou shalt not go over this Jordan.
 
-3. Yahweh your God, he will go over before you; he will destroy these nations from before you, and you shall dispossess them: [and] Joshua, he shall go over before you, as Yahweh has spoken.
+3 The Lord thy God, he will go over before thee, and he will destroy these nations from before thee, and thou shalt possess them: and Joshua, he shall go over before thee, as the Lord hath said.
 
-4. Yahweh will do to them as he did to Sihon and to Og, the kings of the Amorites, and to their land; whom he destroyed.
+4 And the Lord shall do unto them as he did to Sihon and to Og, kings of the Amorites, and unto the land of them, whom he destroyed.
 
-5. Yahweh will deliver them up before you, and you shall do to them according to all the commandment which I have commanded you.
+5 And the Lord shall give them up before your face, that ye may do unto them according unto all the commandments which I have commanded you.
 
-6. Be strong and of good courage, don't be afraid, nor be scared of them: for Yahweh your God, he it is who does go with you; he will not fail you, nor forsake you."
+6 Be strong and of a good courage, fear not, nor be afraid of them: for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.
 
-7. Moses called to Joshua, and said to him in the sight of all Israel, "Be strong and of good courage: for you shall go with this people into the land which Yahweh has sworn to their fathers to give them; and you shall cause them to inherit it.
+7 And Moses called unto Joshua, and said unto him in the sight of all Israel, Be strong and of a good courage: for thou must go with this people unto the land which the Lord hath sworn unto their fathers to give them; and thou shalt cause them to inherit it.
 
-8. Yahweh, he it is who does go before you; he will be with you, he will not fail you, neither forsake you: don't be afraid, neither be dismayed."
+8 And the Lord, he it is that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.
 
-9. Moses wrote this law, and delivered it to the priests the sons of Levi, who bore the ark of the covenant of Yahweh, and to all the elders of Israel.
+9 And Moses wrote this law, and delivered it unto the priests the sons of Levi, which bare the ark of the covenant of the Lord, and unto all the elders of Israel.
 
-10. Moses commanded them, saying, "At the end of [every] seven years, in the set time of the year of release, in the feast of tents,
+10 And Moses commanded them, saying, At the end of every seven years, in the solemnity of the year of release, in the feast of tabernacles,
 
-11. when all Israel is come to appear before Yahweh your God in the place which he shall choose, you shall read this law before all Israel in their hearing.
+11 When all Israel is come to appear before the Lord thy God in the place which he shall choose, thou shalt read this law before all Israel in their hearing.
 
-12. Assemble the people, the men and the women and the little ones, and your foreigner who is within your gates, that they may hear, and that they may learn, and fear Yahweh your God, and observe to do all the words of this law;
+12 Gather the people together, men and women, and children, and thy stranger that is within thy gates, that they may hear, and that they may learn, and fear the Lord your God, and observe to do all the words of this law:
 
-13. and that their children, who have not known, may hear, and learn to fear Yahweh your God, as long as you live in the land where you go over the Jordan to possess it."
+13 And that their children, which have not known any thing, may hear, and learn to fear the Lord your God, as long as ye live in the land whither ye go over Jordan to possess it.
 
-14. Yahweh said to Moses, "Behold, your days approach that you must die: call Joshua, and present yourselves in the Tent of Meeting, that I may commission him." Moses and Joshua went, and presented themselves in the Tent of Meeting.
+14 And the Lord said unto Moses, Behold, thy days approach that thou must die: call Joshua, and present yourselves in the tabernacle of the congregation, that I may give him a charge. And Moses and Joshua went, and presented themselves in the tabernacle of the congregation.
 
-15. Yahweh appeared in the Tent in a pillar of cloud: and the pillar of cloud stood over the door of the Tent.
+15 And the Lord appeared in the tabernacle in a pillar of a cloud: and the pillar of the cloud stood over the door of the tabernacle.
 
-16. Yahweh said to Moses, "Behold, you shall sleep with your fathers; and this people will rise up, and play the prostitute after the strange gods of the land, where they go to be among them, and will forsake me, and break my covenant which I have made with them.
+16 And the Lord said unto Moses, Behold, thou shalt sleep with thy fathers; and this people will rise up, and go a whoring after the gods of the strangers of the land, whither they go to be among them, and will forsake me, and break my covenant which I have made with them.
 
-17. Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many evils and troubles shall come on them; so that they will say in that day, 'Haven't these evils come on us because our God is not among us?'
+17 Then my anger shall be kindled against them in that day, and I will forsake them, and I will hide my face from them, and they shall be devoured, and many evils and troubles shall befall them; so that they will say in that day, Are not these evils come upon us, because our God is not among us?
 
-18. I will surely hide my face in that day for all the evil which they shall have worked, in that they are turned to other gods.
+18 And I will surely hide my face in that day for all the evils which they shall have wrought, in that they are turned unto other gods.
 
-19. "Now therefore write this song for yourselves, and teach it to the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.
+19 Now therefore write ye this song for you, and teach it the children of Israel: put it in their mouths, that this song may be a witness for me against the children of Israel.
 
-20. For when I shall have brought them into the land which I swore to their fathers, flowing with milk and honey, and they shall have eaten and filled themselves, and grown fat; then will they turn to other gods, and serve them, and despise me, and break my covenant.
+20 For when I shall have brought them into the land which I sware unto their fathers, that floweth with milk and honey; and they shall have eaten and filled themselves, and waxen fat; then will they turn unto other gods, and serve them, and provoke me, and break my covenant.
 
-21. It shall happen, when many evils and troubles are come on them, that this song shall testify before them as a witness; for it shall not be forgotten out of the mouths of their seed: for I know their imagination which they frame this day, before I have brought them into the land which I swore."
+21 And it shall come to pass, when many evils and troubles are befallen them, that this song shall testify against them as a witness; for it shall not be forgotten out of the mouths of their seed: for I know their imagination which they go about, even now, before I have brought them into the land which I sware.
 
-22. So Moses wrote this song the same day, and taught it the children of Israel.
+22 Moses therefore wrote this song the same day, and taught it the children of Israel.
 
-23. He commissioned Joshua the son of Nun, and said, "Be strong and of good courage; for you shall bring the children of Israel into the land which I swore to them: and I will be with you."
+23 And he gave Joshua the son of Nun a charge, and said, Be strong and of a good courage: for thou shalt bring the children of Israel into the land which I sware unto them: and I will be with thee.
 
-24. It happened, when Moses had made an end of writing the words of this law in a book, until they were finished,
+24 And it came to pass, when Moses had made an end of writing the words of this law in a book, until they were finished,
 
-25. that Moses commanded the Levites, who bore the ark of the covenant of Yahweh, saying,
+25 That Moses commanded the Levites, which bare the ark of the covenant of the Lord, saying,
 
-26. "Take this book of the law, and put it by the side of the ark of the covenant of Yahweh your God, that it may be there for a witness against you.
+26 Take this book of the law, and put it in the side of the ark of the covenant of the Lord your God, that it may be there for a witness against thee.
 
-27. For I know your rebellion, and your stiff neck: behold, while I am yet alive with you this day, you have been rebellious against Yahweh; and how much more after my death?
+27 For I know thy rebellion, and thy stiff neck: behold, while I am yet alive with you this day, ye have been rebellious against the Lord; and how much more after my death?
 
-28. Assemble to me all the elders of your tribes, and your officers, that I may speak these words in their ears, and call heaven and earth to witness against them.
+28 Gather unto me all the elders of your tribes, and your officers, that I may speak these words in their ears, and call heaven and earth to record against them.
 
-29. For I know that after my death you will utterly corrupt yourselves, and turn aside from the way which I have commanded you; and evil will happen to you in the latter days; because you will do that which is evil in the sight of Yahweh, to provoke him to anger through the work of your hands."
+29 For I know that after my death ye will utterly corrupt yourselves, and turn aside from the way which I have commanded you; and evil will befall you in the latter days; because ye will do evil in the sight of the Lord, to provoke him to anger through the work of your hands.
 
-30. Moses spoke in the ears of all the assembly of Israel the words of this song, until they were finished.
+30 And Moses spake in the ears of all the congregation of Israel the words of this song, until they were ended.
 
 
-## Chapter 32
+## Deuteronomy Chapter 32
 
-1. Give ear, you heavens, and I will speak.    Let the earth hear the words of my mouth.
+1 Give ear, O ye heavens, and I will speak; and hear, O earth, the words of my mouth.
 
-2. My doctrine shall drop as the rain.    My speech shall condense as the dew,    as the small rain on the tender grass,    as the showers on the herb.
+2 My doctrine shall drop as the rain, my speech shall distil as the dew, as the small rain upon the tender herb, and as the showers upon the grass:
 
-3. For I will proclaim the name of Yahweh.    Ascribe greatness to our God!
+3 Because I will publish the name of the Lord: ascribe ye greatness unto our God.
 
-4. The Rock, his work is perfect,    for all his ways are justice:    a God of faithfulness and without iniquity,    just and right is he.
+4 He is the Rock, his work is perfect: for all his ways are judgment: a God of truth and without iniquity, just and right is he.
 
-5. They have dealt corruptly with him, [they are] not his children,       [it is] their blemish.    [They are] a perverse and crooked generation.
+5 They have corrupted themselves, their spot is not the spot of his children: they are a perverse and crooked generation.
 
-6. Do you thus requite Yahweh,    foolish people and unwise? Isn't he your father who has bought you?    He has made you, and established you.
+6 Do ye thus requite the Lord, O foolish people and unwise? is not he thy father that hath bought thee? hath he not made thee, and established thee?
 
-7. Remember the days of old.    Consider the years of many generations. Ask your father, and he will show you;    your elders, and they will tell you.
+7 Remember the days of old, consider the years of many generations: ask thy father, and he will shew thee; thy elders, and they will tell thee.
 
-8. When the Most High gave to the nations their inheritance,    when he separated the children of men, he set the bounds of the peoples    according to the number of the children of Israel.
+8 When the Most High divided to the nations their inheritance, when he separated the sons of Adam, he set the bounds of the people according to the number of the children of Israel.
 
-9. For Yahweh's portion is his people.    Jacob is the lot of his inheritance.
+9 For the Lord's portion is his people; Jacob is the lot of his inheritance.
 
-10. He found him in a desert land,    in the waste howling wilderness. He surrounded him.    He cared for him.    He kept him as the apple of his eye.
+10 He found him in a desert land, and in the waste howling wilderness; he led him about, he instructed him, he kept him as the apple of his eye.
 
-11. As an eagle that stirs up her nest,    that flutters over her young, he spread abroad his wings, he took them,    he bore them on his feathers.
+11 As an eagle stirreth up her nest, fluttereth over her young, spreadeth abroad her wings, taketh them, beareth them on her wings:
 
-12. Yahweh alone led him.    There was no foreign god with him.
+12 So the Lord alone did lead him, and there was no strange god with him.
 
-13. He made him ride on the high places of the earth.    He ate the increase of the field. He caused him to suck honey out of the rock,    oil out of the flinty rock;
+13 He made him ride on the high places of the earth, that he might eat the increase of the fields; and he made him to suck honey out of the rock, and oil out of the flinty rock;
 
-14. Butter of the herd, and milk of the flock,    with fat of lambs,    rams of the breed of Bashan, and goats,    with the finest of the wheat.    Of the blood of the grape you drank wine.
+14 Butter of kine, and milk of sheep, with fat of lambs, and rams of the breed of Bashan, and goats, with the fat of kidneys of wheat; and thou didst drink the pure blood of the grape.
 
-15. But Jeshurun grew fat, and kicked.    You have grown fat.    You have grown thick.    You have become sleek. Then he forsook God who made him,    and lightly esteemed the Rock of his salvation.
+15 But Jeshurun waxed fat, and kicked: thou art waxen fat, thou art grown thick, thou art covered with fatness; then he forsook God which made him, and lightly esteemed the Rock of his salvation.
 
-16. They moved him to jealousy with strange [gods].    They provoked him to anger with abominations.
+16 They provoked him to jealousy with strange gods, with abominations provoked they him to anger.
 
-17. They sacrificed to demons, [which were] no God,    to gods that they didn't know,    to new [gods] that came up of late,    which your fathers didn't dread.
+17 They sacrificed unto devils, not to God; to gods whom they knew not, to new gods that came newly up, whom your fathers feared not.
 
-18. Of the Rock who became your father, you are unmindful,    and have forgotten God who gave you birth.
+18 Of the Rock that begat thee thou art unmindful, and hast forgotten God that formed thee.
 
-19. Yahweh saw [it], and abhorred [them],    because of the provocation of his sons and his daughters.
+19 And when the Lord saw it, he abhorred them, because of the provoking of his sons, and of his daughters.
 
-20. He said, "I will hide my face from them.    I will see what their end shall be; for they are a very perverse generation,    children in whom is no faithfulness.
+20 And he said, I will hide my face from them, I will see what their end shall be: for they are a very froward generation, children in whom is no faith.
 
-21. They have moved me to jealousy with that which is not God.    They have provoked me to anger with their vanities. I will move them to jealousy with those who are not a people.    I will provoke them to anger with a foolish nation.
+21 They have moved me to jealousy with that which is not God; they have provoked me to anger with their vanities: and I will move them to jealousy with those which are not a people; I will provoke them to anger with a foolish nation.
 
-22. For a fire is kindled in my anger,    Burns to the lowest Sheol,    Devours the earth with its increase,    and sets the foundations of the mountains on fire.
+22 For a fire is kindled in mine anger, and shall burn unto the lowest hell, and shall consume the earth with her increase, and set on fire the foundations of the mountains.
 
-23. "I will heap evils on them.    I will spend my arrows on them.
+23 I will heap mischiefs upon them; I will spend mine arrows upon them.
 
-24. [They shall be] wasted with hunger, and devoured with burning       heat    and bitter destruction. I will send the teeth of animals on them,    With the poison of crawling things of the dust.
+24 They shall be burnt with hunger, and devoured with burning heat, and with bitter destruction: I will also send the teeth of beasts upon them, with the poison of serpents of the dust.
 
-25. Outside the sword shall bereave,    and in the chambers, terror; on both young man and virgin,    The suckling with the gray-haired man.
+25 The sword without, and terror within, shall destroy both the young man and the virgin, the suckling also with the man of gray hairs.
 
-26. I said, I would scatter them afar.    I would make the memory of them to cease from among men;
+26 I said, I would scatter them into corners, I would make the remembrance of them to cease from among men:
 
-27. were it not that I feared the provocation of the enemy,    lest their adversaries should judge wrongly,    lest they should say, 'Our hand is exalted,    Yahweh has not done all this.'"
+27 Were it not that I feared the wrath of the enemy, lest their adversaries should behave themselves strangely, and lest they should say, Our hand is high, and the Lord hath not done all this.
 
-28. For they are a nation void of counsel.    There is no understanding in them.
+28 For they are a nation void of counsel, neither is there any understanding in them.
 
-29. Oh that they were wise, that they understood this,    that they would consider their latter end!
+29 O that they were wise, that they understood this, that they would consider their latter end!
 
-30. How could one chase a thousand,    and two put ten thousand to flight, unless their Rock had sold them,    and Yahweh had delivered them up?
+30 How should one chase a thousand, and two put ten thousand to flight, except their Rock had sold them, and the Lord had shut them up?
 
-31. For their rock is not as our Rock,    even our enemies themselves being judges.
+31 For their rock is not as our Rock, even our enemies themselves being judges.
 
-32. For their vine is of the vine of Sodom,    of the fields of Gomorrah. Their grapes are grapes of gall,    Their clusters are bitter.
+32 For their vine is of the vine of Sodom, and of the fields of Gomorrah: their grapes are grapes of gall, their clusters are bitter:
 
-33. Their wine is the poison of serpents,    The cruel venom of asps.
+33 Their wine is the poison of dragons, and the cruel venom of asps.
 
-34. "Isn't this laid up in store with me,    sealed up among my treasures?
+34 Is not this laid up in store with me, and sealed up among my treasures?
 
-35. Vengeance is mine, and recompense,    at the time when their foot slides; for the day of their calamity is at hand.    The things that are to come on them shall make haste."
+35 To me belongeth vengeance and recompence; their foot shall slide in due time: for the day of their calamity is at hand, and the things that shall come upon them make haste.
 
-36. For Yahweh will judge his people,    and have compassion on his servants, when he sees that [their] power is gone,    There is none [remaining], shut up or left at large.
+36 For the Lord shall judge his people, and repent himself for his servants, when he seeth that their power is gone, and there is none shut up, or left.
 
-37. He will say, "Where are their gods,    The rock in which they took refuge;
+37 And he shall say, Where are their gods, their rock in whom they trusted,
 
-38. Which ate the fat of their sacrifices,    And drank the wine of their drink offering? Let them rise up and help you!    Let them be your protection.
+38 Which did eat the fat of their sacrifices, and drank the wine of their drink offerings? let them rise up and help you, and be your protection.
 
-39. "See now that I, even I, am he,    There is no god with me. I kill, and I make alive.    I wound, and I heal.    There is no one who can deliver out of my hand.
+39 See now that I, even I, am he, and there is no god with me: I kill, and I make alive; I wound, and I heal: neither is there any that can deliver out of my hand.
 
-40. For I lift up my hand to heaven,    And say, As I live forever,
+40 For I lift up my hand to heaven, and say, I live for ever.
 
-41. if I whet my glittering sword,    My hand take hold on judgment; I will render vengeance to my adversaries,    and will recompense those who hate me.
+41 If I whet my glittering sword, and mine hand take hold on judgment; I will render vengeance to mine enemies, and will reward them that hate me.
 
-42. I will make my arrows drunk with blood.    My sword shall devour flesh with the blood of the slain and the       captives,    from the head of the leaders of the enemy."
+42 I will make mine arrows drunk with blood, and my sword shall devour flesh; and that with the blood of the slain and of the captives, from the beginning of revenges upon the enemy.
 
-43. Rejoice, you nations, [with] his people,    for he will avenge the blood of his servants.    He will render vengeance to his adversaries,    And will make expiation for his land, for his people.
+43 Rejoice, O ye nations, with his people: for he will avenge the blood of his servants, and will render vengeance to his adversaries, and will be merciful unto his land, and to his people.
 
-44. Moses came and spoke all the words of this song in the ears of the people, he and Joshua the son of Nun.
+44 And Moses came and spake all the words of this song in the ears of the people, he, and Hoshea the son of Nun.
 
-45. Moses made an end of speaking all these words to all Israel;
+45 And Moses made an end of speaking all these words to all Israel:
 
-46. He said to them, "Set your heart to all the words which I testify to you this day, which you shall command your children to observe to do, [even] all the words of this law.
+46 And he said unto them, Set your hearts unto all the words which I testify among you this day, which ye shall command your children to observe to do, all the words of this law.
 
-47. For it is no vain thing for you; because it is your life, and through this thing you shall prolong your days in the land, where you go over the Jordan to possess it."
+47 For it is not a vain thing for you; because it is your life: and through this thing ye shall prolong your days in the land, whither ye go over Jordan to possess it.
 
-48. Yahweh spoke to Moses that same day, saying,
+48 And the Lord spake unto Moses that selfsame day, saying,
 
-49. "Go up into this mountain of Abarim, to Mount Nebo, which is in the land of Moab, that is over against Jericho; and see the land of Canaan, which I give to the children of Israel for a possession;
+49 Get thee up into this mountain Abarim, unto mount Nebo, which is in the land of Moab, that is over against Jericho; and behold the land of Canaan, which I give unto the children of Israel for a possession:
 
-50. and die on the mountain where you go up, and be gathered to your people, as Aaron your brother died on Mount Hor, and was gathered to his people:
+50 And die in the mount whither thou goest up, and be gathered unto thy people; as Aaron thy brother died in mount Hor, and was gathered unto his people:
 
-51. because you trespassed against me in the midst of the children of Israel at the waters of Meribah of Kadesh, in the wilderness of Zin; because you didn't sanctify me in the midst of the children of Israel.
+51 Because ye trespassed against me among the children of Israel at the waters of MeribahKadesh, in the wilderness of Zin; because ye sanctified me not in the midst of the children of Israel.
 
-52. For you shall see the land before you; but you shall not go there into the land which I give the children of Israel."
+52 Yet thou shalt see the land before thee; but thou shalt not go thither unto the land which I give the children of Israel.
 
 
-## Chapter 33
+## Deuteronomy Chapter 33
 
-1. This is the blessing, with which Moses the man of God blessed the children of Israel before his death.
+1 And this is the blessing, wherewith Moses the man of God blessed the children of Israel before his death.
 
-2. He said, "Yahweh came from Sinai,    And rose from Seir to them. He shone forth from Mount Paran.    He came from the ten thousands of holy ones.    At his right hand was a fiery law for them.
+2 And he said, The Lord came from Sinai, and rose up from Seir unto them; he shined forth from mount Paran, and he came with ten thousands of saints: from his right hand went a fiery law for them.
 
-3. Yes, he loves the people.    All his saints are in your hand.    They sat down at your feet;    [Everyone] shall receive of your words.
+3 Yea, he loved the people; all his saints are in thy hand: and they sat down at thy feet; every one shall receive of thy words.
 
-4. Moses commanded us a law,    An inheritance for the assembly of Jacob.
+4 Moses commanded us a law, even the inheritance of the congregation of Jacob.
 
-5. He was king in Jeshurun,    When the heads of the people were gathered,    All the tribes of Israel together.
+5 And he was king in Jeshurun, when the heads of the people and the tribes of Israel were gathered together.
 
-6. "Let Reuben live, and not die;    Nor let his men be few."
+6 Let Reuben live, and not die; and let not his men be few.
 
-7. This is [the blessing] of Judah: and he said, "Hear, Yahweh, the voice of Judah.    Bring him in to his people. With his hands he contended for himself.    You shall be a help against his adversaries."
+7 And this is the blessing of Judah: and he said, Hear, Lord, the voice of Judah, and bring him unto his people: let his hands be sufficient for him; and be thou an help to him from his enemies.
 
-8. Of Levi he said, "Your Thummim and your Urim are with your godly one,    whom you proved at Massah,    with whom you strove at the waters of Meribah;
+8 And of Levi he said, Let thy Thummim and thy Urim be with thy holy one, whom thou didst prove at Massah, and with whom thou didst strive at the waters of Meribah;
 
-9. who said of his father, and of his mother, 'I have not seen him;'    Neither did he acknowledge his brothers,    Nor did he know his own children: For they have observed your word,    and keep your covenant.
+9 Who said unto his father and to his mother, I have not seen him; neither did he acknowledge his brethren, nor knew his own children: for they have observed thy word, and kept thy covenant.
 
-10. They shall teach Jacob your ordinances,    and Israel your law. They shall put incense before you,    and whole burnt offering on your altar.
+10 They shall teach Jacob thy judgments, and Israel thy law: they shall put incense before thee, and whole burnt sacrifice upon thine altar.
 
-11. Yahweh, bless his substance.    Accept the work of his hands. Strike through the hips of those who rise up against him,    of those who hate him, that they not rise again."
+11 Bless, Lord, his substance, and accept the work of his hands; smite through the loins of them that rise against him, and of them that hate him, that they rise not again.
 
-12. Of Benjamin he said, "The beloved of Yahweh shall dwell in safety by him.    He covers him all the day long.    He dwells between his shoulders."
+12 And of Benjamin he said, The beloved of the Lord shall dwell in safety by him; and the Lord shall cover him all the day long, and he shall dwell between his shoulders.
 
-13. Of Joseph he said, "His land is blessed by Yahweh,    for the precious things of the heavens, for the dew,    for the deep that couches beneath,
+13 And of Joseph he said, Blessed of the Lord be his land, for the precious things of heaven, for the dew, and for the deep that coucheth beneath,
 
-14. for the precious things of the fruits of the sun,    for the precious things of the growth of the moons,
+14 And for the precious fruits brought forth by the sun, and for the precious things put forth by the moon,
 
-15. for the chief things of the ancient mountains,    for the precious things of the everlasting hills,
+15 And for the chief things of the ancient mountains, and for the precious things of the lasting hills,
 
-16. for the precious things of the earth and its fullness,    the good will of him who lived in the bush. Let [the blessing] come on the head of Joseph,    On the crown of the head of him who was separate from his brothers.
+16 And for the precious things of the earth and fulness thereof, and for the good will of him that dwelt in the bush: let the blessing come upon the head of Joseph, and upon the top of the head of him that was separated from his brethren.
 
-17. The firstborn of his herd, majesty is his.    His horns are the horns of the wild ox.    With them he shall push the peoples all of them, [even] the ends of       the earth: They are the ten thousands of Ephraim.    They are the thousands of Manasseh."
+17 His glory is like the firstling of his bullock, and his horns are like the horns of unicorns: with them he shall push the people together to the ends of the earth: and they are the ten thousands of Ephraim, and they are the thousands of Manasseh.
 
-18. Of Zebulun he said, "Rejoice, Zebulun, in your going out;    and Issachar, in your tents.
+18 And of Zebulun he said, Rejoice, Zebulun, in thy going out; and, Issachar, in thy tents.
 
-19. They shall call the peoples to the mountain.    There they will offer sacrifices of righteousness, for they shall draw out the abundance of the seas,    the hidden treasures of the sand."
+19 They shall call the people unto the mountain; there they shall offer sacrifices of righteousness: for they shall suck of the abundance of the seas, and of treasures hid in the sand.
 
-20. Of Gad he said, "He who enlarges Gad is blessed.    He dwells as a lioness,    and tears the arm, yes, the crown of the head.
+20 And of Gad he said, Blessed be he that enlargeth Gad: he dwelleth as a lion, and teareth the arm with the crown of the head.
 
-21. He provided the first part for himself,    for there was the lawgiver's portion reserved. He came [with] the heads of the people.    He executed the righteousness of Yahweh,    His ordinances with Israel."
+21 And he provided the first part for himself, because there, in a portion of the lawgiver, was he seated; and he came with the heads of the people, he executed the justice of the Lord, and his judgments with Israel.
 
-22. Of Dan he said, "Dan is a lion's cub    that leaps out of Bashan."
+22 And of Dan he said, Dan is a lion's whelp: he shall leap from Bashan.
 
-23. Of Naphtali he said, "Naphtali, satisfied with favor,    full of the blessing of Yahweh,    Possess the west and the south."
+23 And of Naphtali he said, O Naphtali, satisfied with favour, and full with the blessing of the Lord: possess thou the west and the south.
 
-24. Of Asher he said, "Asher is blessed with children.    Let him be acceptable to his brothers.    Let him dip his foot in oil.
+24 And of Asher he said, Let Asher be blessed with children; let him be acceptable to his brethren, and let him dip his foot in oil.
 
-25. Your bars shall be iron and brass.    As your days, so your strength will be.
+25 Thy shoes shall be iron and brass; and as thy days, so shall thy strength be.
 
-26. "There is none like God, Jeshurun,    who rides on the heavens for your help,    In his excellency on the skies.
+26 There is none like unto the God of Jeshurun, who rideth upon the heaven in thy help, and in his excellency on the sky.
 
-27. The eternal God is [your] dwelling place.    Underneath are the everlasting arms. He thrust out the enemy from before you,    and said, 'Destroy!'
+27 The eternal God is thy refuge, and underneath are the everlasting arms: and he shall thrust out the enemy from before thee; and shall say, Destroy them.
 
-28. Israel dwells in safety;    the fountain of Jacob alone, In a land of grain and new wine.    Yes, his heavens drop down dew.
+28 Israel then shall dwell in safety alone: the fountain of Jacob shall be upon a land of corn and wine; also his heavens shall drop down dew.
 
-29. You are happy, Israel.    Who is like you, a people saved by Yahweh,    the shield of your help,    the sword of your excellency! Your enemies shall submit themselves to you.    You shall tread on their high places."
+29 Happy art thou, O Israel: who is like unto thee, O people saved by the Lord, the shield of thy help, and who is the sword of thy excellency! and thine enemies shall be found liars unto thee; and thou shalt tread upon their high places.
 
 
-## Chapter 34
+## Deuteronomy Chapter 34
 
-1. Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, that is over against Jericho. Yahweh showed him all the land of Gilead, to Dan,
+1 And Moses went up from the plains of Moab unto the mountain of Nebo, to the top of Pisgah, that is over against Jericho. And the Lord shewed him all the land of Gilead, unto Dan,
 
-2. and all Naphtali, and the land of Ephraim and Manasseh, and all the land of Judah, to the hinder sea,
+2 And all Naphtali, and the land of Ephraim, and Manasseh, and all the land of Judah, unto the utmost sea,
 
-3. and the South, and the Plain of the valley of Jericho the city of palm trees, to Zoar.
+3 And the south, and the plain of the valley of Jericho, the city of palm trees, unto Zoar.
 
-4. Yahweh said to him, "This is the land which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your seed.' I have caused you to see it with your eyes, but you shall not go over there."
+4 And the Lord said unto him, This is the land which I sware unto Abraham, unto Isaac, and unto Jacob, saying, I will give it unto thy seed: I have caused thee to see it with thine eyes, but thou shalt not go over thither.
 
-5. So Moses the servant of Yahweh died there in the land of Moab, according to the word of Yahweh.
+5 So Moses the servant of the Lord died there in the land of Moab, according to the word of the Lord.
 
-6. He buried him in the valley in the land of Moab over against Beth Peor: but no man knows of his tomb to this day.
+6 And he buried him in a valley in the land of Moab, over against Bethpeor: but no man knoweth of his sepulchre unto this day.
 
-7. Moses was one hundred twenty years old when he died: his eye was not dim, nor his natural force abated.
+7 And Moses was an hundred and twenty years old when he died: his eye was not dim, nor his natural force abated.
 
-8. The children of Israel wept for Moses in the plains of Moab thirty days: so the days of weeping in the mourning for Moses were ended.
+8 And the children of Israel wept for Moses in the plains of Moab thirty days: so the days of weeping and mourning for Moses were ended.
 
-9. Joshua the son of Nun was full of the spirit of wisdom; for Moses had laid his hands on him: and the children of Israel listened to him, and did as Yahweh commanded Moses.
+9 And Joshua the son of Nun was full of the spirit of wisdom; for Moses had laid his hands upon him: and the children of Israel hearkened unto him, and did as the Lord commanded Moses.
 
-10. There has not arisen a prophet since in Israel like Moses, whom Yahweh knew face to face,
+10 And there arose not a prophet since in Israel like unto Moses, whom the Lord knew face to face,
 
-11. in all the signs and the wonders, which Yahweh sent him to do in the land of Egypt, to Pharaoh, and to all his servants, and to all his land,
+11 In all the signs and the wonders, which the Lord sent him to do in the land of Egypt to Pharaoh, and to all his servants, and to all his land,
 
-12. and in all the mighty hand, and in all the great terror, which Moses worked in the sight of all Israel.
+12 And in all that mighty hand, and in all the great terror which Moses shewed in the sight of all Israel.
 
+
+## eof

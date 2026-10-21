@@ -20,7 +20,7 @@ function load() {
       const m = /^(#{1,6})\s+(.*)$/.exec(l);
       if (!m) return;
       if (m[1].length === 1) name = m[2].trim();
-      else if (m[1].length === 2) chapters.push({ line: n, title: m[2].trim() });
+      else if (m[1].length === 2 && !/^eof$/i.test(m[2].trim())) chapters.push({ line: n, title: m[2].trim() });
     });
     books.push({ id: i, file, name, text, lines, chapters, lower: lines.map(l => l.toLowerCase()), bytes: Buffer.byteLength(text) });
   });

@@ -1,194 +1,197 @@
+
 # 1 Thessalonians
 
-## Chapter 1
+## 1 Thessalonians Chapter 1
 
-1. Paul, Silvanus, and Timothy, to the assembly of the Thessalonians in God the Father and the Lord Jesus Christ: Grace to you and peace from God our Father and the Lord Jesus Christ.
+1 Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians which is in God the Father and in the Lord Jesus Christ: Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ.
 
-2. We always give thanks to God for all of you, mentioning you in our prayers,
+2 We give thanks to God always for you all, making mention of you in our prayers;
 
-3. remembering without ceasing your work of faith and labor of love and patience of hope in our Lord Jesus Christ, before our God and Father.
+3 Remembering without ceasing your work of faith, and labour of love, and patience of hope in our Lord Jesus Christ, in the sight of God and our Father;
 
-4. We know, brothers loved by God, that you are chosen,
+4 Knowing, brethren beloved, your election of God.
 
-5. and that our Good News came to you not in word only, but also in power, and in the Holy Spirit, and with much assurance. You know what kind of men we showed ourselves to be among you for your sake.
+5 For our gospel came not unto you in word only, but also in power, and in the Holy Ghost, and in much assurance; as ye know what manner of men we were among you for your sake.
 
-6. You became imitators of us, and of the Lord, having received the word in much affliction, with joy of the Holy Spirit,
+6 And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost.
 
-7. so that you became an example to all who believe in Macedonia and in Achaia.
+7 So that ye were ensamples to all that believe in Macedonia and Achaia.
 
-8. For from you the word of the Lord has been declared, not only in Macedonia and Achaia, but also in every place your faith toward God has gone out; so that we need not to say anything.
+8 For from you sounded out the word of the Lord not only in Macedonia and Achaia, but also in every place your faith to God-ward is spread abroad; so that we need not to speak any thing.
 
-9. For they themselves report concerning us what kind of a reception we had from you; and how you turned to God from idols, to serve a living and true God,
+9 For they themselves shew of us what manner of entering in we had unto you, and how ye turned to God from idols to serve the living and true God;
 
-10. and to wait for his Son from heaven, whom he raised from the dead--Jesus, who delivers us from the wrath to come.
+10 And to wait for his Son from heaven, whom he raised from the dead, even Jesus, which delivered us from the wrath to come.
 
 
-## Chapter 2
+## 1 Thessalonians Chapter 2
 
-1. For you yourselves know, brothers, our visit to you wasn't in vain,
+1 For yourselves, brethren, know our entrance in unto you, that it was not in vain:
 
-2. but having suffered before and been shamefully treated, as you know, at Philippi, we grew bold in our God to tell you the Good News of God in much conflict.
+2 But even after that we had suffered before, and were shamefully entreated, as ye know, at Philippi, we were bold in our God to speak unto you the gospel of God with much contention.
 
-3. For our exhortation is not of error, nor of uncleanness, nor in deception.
+3 For our exhortation was not of deceit, nor of uncleanness, nor in guile:
 
-4. But even as we have been approved by God to be entrusted with the Good News, so we speak; not as pleasing men, but God, who tests our hearts.
+4 But as we were allowed of God to be put in trust with the gospel, even so we speak; not as pleasing men, but God, which trieth our hearts.
 
-5. For neither were we at any time found using words of flattery, as you know, nor a cloak of covetousness (God is witness),
+5 For neither at any time used we flattering words, as ye know, nor a cloke of covetousness; God is witness:
 
-6. nor seeking glory from men (neither from you nor from others), when we might have claimed authority as apostles of Christ.
+6 Nor of men sought we glory, neither of you, nor yet of others, when we might have been burdensome, as the apostles of Christ.
 
-7. But we were gentle among you, like a nursing mother cherishes her own children.
+7 But we were gentle among you, even as a nurse cherisheth her children:
 
-8. Even so, affectionately longing for you, we were well pleased to impart to you, not the Good News of God only, but also our own souls, because you had become very dear to us.
+8 So being affectionately desirous of you, we were willing to have imparted unto you, not the gospel of God only, but also our own souls, because ye were dear unto us.
 
-9. For you remember, brothers, our labor and travail; for working night and day, that we might not burden any of you, we preached to you the Good News of God.
+9 For ye remember, brethren, our labour and travail: for labouring night and day, because we would not be chargeable unto any of you, we preached unto you the gospel of God.
 
-10. You are witnesses with God, how holy, righteously, and blamelessly we behaved ourselves toward you who believe.
+10 Ye are witnesses, and God also, how holily and justly and unblameably we behaved ourselves among you that believe:
 
-11. As you know, we exhorted, comforted, and implored every one of you, as a father does his own children,
+11 As ye know how we exhorted and comforted and charged every one of you, as a father doth his children,
 
-12. to the end that you should walk worthily of God, who calls you into his own Kingdom and glory.
+12 That ye would walk worthy of God, who hath called you unto his kingdom and glory.
 
-13. For this cause we also thank God without ceasing, that, when you received from us the word of the message of God, you accepted it not as the word of men, but, as it is in truth, the word of God, which also works in you who believe.
+13 For this cause also thank we God without ceasing, because, when ye received the word of God which ye heard of us, ye received it not as the word of men, but as it is in truth, the word of God, which effectually worketh also in you that believe.
 
-14. For you, brothers, became imitators of the assemblies of God which are in Judea in Christ Jesus; for you also suffered the same things from your own countrymen, even as they did from the Jews;
+14 For ye, brethren, became followers of the churches of God which in Judaea are in Christ Jesus: for ye also have suffered like things of your own countrymen, even as they have of the Jews:
 
-15. who killed both the Lord Jesus and their own prophets, and drove us out, and didn't please God, and are contrary to all men;
+15 Who both killed the Lord Jesus, and their own prophets, and have persecuted us; and they please not God, and are contrary to all men:
 
-16. forbidding us to speak to the Gentiles that they may be saved; to fill up their sins always. But wrath has come on them to the uttermost.
+16 Forbidding us to speak to the Gentiles that they might be saved, to fill up their sins alway: for the wrath is come upon them to the uttermost.
 
-17. But we, brothers, being bereaved of you for a short season, in presence, not in heart, tried even harder to see your face with great desire,
+17 But we, brethren, being taken from you for a short time in presence, not in heart, endeavoured the more abundantly to see your face with great desire.
 
-18. because we wanted to come to you--indeed, I, Paul, once and again--but Satan hindered us.
+18 Wherefore we would have come unto you, even I Paul, once and again; but Satan hindered us.
 
-19. For what is our hope, or joy, or crown of rejoicing? Isn't it even you, before our Lord Jesus at his coming?
+19 For what is our hope, or joy, or crown of rejoicing? Are not even ye in the presence of our Lord Jesus Christ at his coming?
 
-20. For you are our glory and our joy.
+20 For ye are our glory and joy.
 
 
-## Chapter 3
+## 1 Thessalonians Chapter 3
 
-1. Therefore, when we couldn't stand it any longer, we thought it good to be left behind at Athens alone,
+1 Wherefore when we could no longer forbear, we thought it good to be left at Athens alone;
 
-2. and sent Timothy, our brother and God's servant in the Good News of Christ, to establish you, and to comfort you concerning your faith;
+2 And sent Timotheus, our brother, and minister of God, and our fellowlabourer in the gospel of Christ, to establish you, and to comfort you concerning your faith:
 
-3. that no one be moved by these afflictions. For you know that we are appointed to this task.
+3 That no man should be moved by these afflictions: for yourselves know that we are appointed thereunto.
 
-4. For most certainly, when we were with you, we told you beforehand that we are to suffer affliction, even as it happened, and you know.
+4 For verily, when we were with you, we told you before that we should suffer tribulation; even as it came to pass, and ye know.
 
-5. For this cause I also, when I couldn't stand it any longer, sent that I might know your faith, for fear that by any means the tempter had tempted you, and our labor would have been in vain.
+5 For this cause, when I could no longer forbear, I sent to know your faith, lest by some means the tempter have tempted you, and our labour be in vain.
 
-6. But when Timothy came just now to us from you, and brought us glad news of your faith and love, and that you have good memories of us always, longing to see us, even as we also long to see you;
+6 But now when Timotheus came from you unto us, and brought us good tidings of your faith and charity, and that ye have good remembrance of us always, desiring greatly to see us, as we also to see you:
 
-7. for this cause, brothers, we were comforted over you in all our distress and affliction through your faith.
+7 Therefore, brethren, we were comforted over you in all our affliction and distress by your faith:
 
-8. For now we live, if you stand fast in the Lord.
+8 For now we live, if ye stand fast in the Lord.
 
-9. For what thanksgiving can we render again to God for you, for all the joy with which we rejoice for your sakes before our God;
+9 For what thanks can we render to God again for you, for all the joy wherewith we joy for your sakes before our God;
 
-10. night and day praying exceedingly that we may see your face, and may perfect that which is lacking in your faith?
+10 Night and day praying exceedingly that we might see your face, and might perfect that which is lacking in your faith?
 
-11. Now may our God and Father himself, and our Lord Jesus Christ, direct our way to you;
+11 Now God himself and our Father, and our Lord Jesus Christ, direct our way unto you.
 
-12. and the Lord make you to increase and abound in love one toward another, and toward all men, even as we also do toward you,
+12 And the Lord make you to increase and abound in love one toward another, and toward all men, even as we do toward you:
 
-13. to the end he may establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all his saints.
+13 To the end he may stablish your hearts unblameable in holiness before God, even our Father, at the coming of our Lord Jesus Christ with all his saints.
 
 
-## Chapter 4
+## 1 Thessalonians Chapter 4
 
-1. Finally then, brothers, we beg and exhort you in the Lord Jesus, that as you received from us how you ought to walk and to please God, that you abound more and more.
+1 Furthermore then we beseech you, brethren, and exhort you by the Lord Jesus, that as ye have received of us how ye ought to walk and to please God, so ye would abound more and more.
 
-2. For you know what instructions we gave you through the Lord Jesus.
+2 For ye know what commandments we gave you by the Lord Jesus.
 
-3. For this is the will of God: your sanctification, that you abstain from sexual immorality,
+3 For this is the will of God, even your sanctification, that ye should abstain from fornication:
 
-4. that each one of you know how to possess himself of his own vessel in sanctification and honor,
+4 That every one of you should know how to possess his vessel in sanctification and honour;
 
-5. not in the passion of lust, even as the Gentiles who don't know God;
+5 Not in the lust of concupiscence, even as the Gentiles which know not God:
 
-6. that no one should take advantage of and wrong a brother or sister in this matter; because the Lord is an avenger in all these things, as also we forewarned you and testified.
+6 That no man go beyond and defraud his brother in any matter: because that the Lord is the avenger of all such, as we also have forewarned you and testified.
 
-7. For God called us not for uncleanness, but in sanctification.
+7 For God hath not called us unto uncleanness, but unto holiness.
 
-8. Therefore he who rejects this doesn't reject man, but God, who has also given his Holy Spirit to you.
+8 He therefore that despiseth, despiseth not man, but God, who hath also given unto us his holy Spirit.
 
-9. But concerning brotherly love, you have no need that one write to you. For you yourselves are taught by God to love one another,
+9 But as touching brotherly love ye need not that I write unto you: for ye yourselves are taught of God to love one another.
 
-10. for indeed you do it toward all the brothers who are in all Macedonia. But we exhort you, brothers, that you abound more and more;
+10 And indeed ye do it toward all the brethren which are in all Macedonia: but we beseech you, brethren, that ye increase more and more;
 
-11. and that you make it your ambition to lead a quiet life, and to do your own business, and to work with your own hands, even as we instructed you;
+11 And that ye study to be quiet, and to do your own business, and to work with your own hands, as we commanded you;
 
-12. that you may walk properly toward those who are outside, and may have need of nothing.
+12 That ye may walk honestly toward them that are without, and that ye may have lack of nothing.
 
-13. But we don't want you to be ignorant, brothers, concerning those who have fallen asleep, so that you don't grieve like the rest, who have no hope.
+13 But I would not have you to be ignorant, brethren, concerning them which are asleep, that ye sorrow not, even as others which have no hope.
 
-14. For if we believe that Jesus died and rose again, even so God will bring with him those who have fallen asleep in Jesus.
+14 For if we believe that Jesus died and rose again, even so them also which sleep in Jesus will God bring with him.
 
-15. For this we tell you by the word of the Lord, that we who are alive, who are left to the coming of the Lord, will in no way precede those who have fallen asleep.
+15 For this we say unto you by the word of the Lord, that we which are alive and remain unto the coming of the Lord shall not prevent them which are asleep.
 
-16. For the Lord himself will descend from heaven with a shout, with the voice of the archangel, and with God's trumpet. The dead in Christ will rise first,
+16 For the Lord himself shall descend from heaven with a shout, with the voice of the archangel, and with the trump of God: and the dead in Christ shall rise first:
 
-17. then we who are alive, who are left, will be caught up together with them in the clouds, to meet the Lord in the air. So we will be with the Lord forever.
+17 Then we which are alive and remain shall be caught up together with them in the clouds, to meet the Lord in the air: and so shall we ever be with the Lord.
 
-18. Therefore comfort one another with these words.
+18 Wherefore comfort one another with these words.
 
 
-## Chapter 5
+## 1 Thessalonians Chapter 5
 
-1. But concerning the times and the seasons, brothers, you have no need that anything be written to you.
+1 But of the times and the seasons, brethren, ye have no need that I write unto you.
 
-2. For you yourselves know well that the day of the Lord comes like a thief in the night.
+2 For yourselves know perfectly that the day of the Lord so cometh as a thief in the night.
 
-3. For when they are saying, "Peace and safety," then sudden destruction will come on them, like birth pains on a pregnant woman; and they will in no way escape.
+3 For when they shall say, Peace and safety; then sudden destruction cometh upon them, as travail upon a woman with child; and they shall not escape.
 
-4. But you, brothers, aren't in darkness, that the day should overtake you like a thief.
+4 But ye, brethren, are not in darkness, that that day should overtake you as a thief.
 
-5. You are all children of light, and children of the day. We don't belong to the night, nor to darkness,
+5 Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.
 
-6. so then let's not sleep, as the rest do, but let's watch and be sober.
+6 Therefore let us not sleep, as do others; but let us watch and be sober.
 
-7. For those who sleep, sleep in the night, and those who are drunk are drunk in the night.
+7 For they that sleep sleep in the night; and they that be drunken are drunken in the night.
 
-8. But let us, since we belong to the day, be sober, putting on the breastplate of faith and love, and, for a helmet, the hope of salvation.
+8 But let us, who are of the day, be sober, putting on the breastplate of faith and love; and for an helmet, the hope of salvation.
 
-9. For God didn't appoint us to wrath, but to the obtaining of salvation through our Lord Jesus Christ,
+9 For God hath not appointed us to wrath, but to obtain salvation by our Lord Jesus Christ,
 
-10. who died for us, that, whether we wake or sleep, we should live together with him.
+10 Who died for us, that, whether we wake or sleep, we should live together with him.
 
-11. Therefore exhort one another, and build each other up, even as you also do.
+11 Wherefore comfort yourselves together, and edify one another, even as also ye do.
 
-12. But we beg you, brothers, to know those who labor among you, and are over you in the Lord, and admonish you,
+12 And we beseech you, brethren, to know them which labour among you, and are over you in the Lord, and admonish you;
 
-13. and to respect and honor them in love for their work's sake.     Be at peace among yourselves.
+13 And to esteem them very highly in love for their work's sake. And be at peace among yourselves.
 
-14. We exhort you, brothers, admonish the disorderly, encourage the fainthearted, support the weak, be patient toward all.
+14 Now we exhort you, brethren, warn them that are unruly, comfort the feebleminded, support the weak, be patient toward all men.
 
-15. See that no one returns evil for evil to anyone, but always follow after that which is good, for one another, and for all.
+15 See that none render evil for evil unto any man; but ever follow that which is good, both among yourselves, and to all men.
 
-16. Rejoice always.
+16 Rejoice evermore.
 
-17. Pray without ceasing.
+17 Pray without ceasing.
 
-18. In everything give thanks, for this is the will of God in Christ Jesus toward you.
+18 In every thing give thanks: for this is the will of God in Christ Jesus concerning you.
 
-19. Don't quench the Spirit.
+19 Quench not the Spirit.
 
-20. Don't despise prophesies.
+20 Despise not prophesyings.
 
-21. Test all things, and hold firmly that which is good.
+21 Prove all things; hold fast that which is good.
 
-22. Abstain from every form of evil.
+22 Abstain from all appearance of evil.
 
-23. May the God of peace himself sanctify you completely. May your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ.
+23 And the very God of peace sanctify you wholly; and I pray God your whole spirit and soul and body be preserved blameless unto the coming of our Lord Jesus Christ.
 
-24. He who calls you is faithful, who will also do it.
+24 Faithful is he that calleth you, who also will do it.
 
-25. Brothers, pray for us.
+25 Brethren, pray for us.
 
-26. Greet all the brothers with a holy kiss.
+26 Greet all the brethren with an holy kiss.
 
-27. I solemnly command you by the Lord that this letter be read to all the holy brothers.
+27 I charge you by the Lord that this epistle be read unto all the holy brethren.
 
-28. The grace of our Lord Jesus Christ be with you. Amen.
+28 The grace of our Lord Jesus Christ be with you. Amen.
 
+
+## eof

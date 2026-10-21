@@ -1,122 +1,125 @@
+
 # Habakkuk
 
-## Chapter 1
+## Habakkuk Chapter 1
 
-1. The oracle which Habakkuk the prophet saw.
+1 The burden which Habakkuk the prophet did see.
 
-2. Yahweh, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save?
+2 O Lord, how long shall I cry, and thou wilt not hear! even cry out unto thee of violence, and thou wilt not save!
 
-3. Why do you show me iniquity, and look at perversity? For destruction and violence are before me. There is strife, and contention rises up.
+3 Why dost thou shew me iniquity, and cause me to behold grievance? for spoiling and violence are before me: and there are that raise up strife and contention.
 
-4. Therefore the law is paralyzed, and justice never goes forth; for the wicked surround the righteous; therefore justice goes forth perverted.
+4 Therefore the law is slacked, and judgment doth never go forth: for the wicked doth compass about the righteous; therefore wrong judgment proceedeth.
 
-5. "Look among the nations, watch, and wonder marvelously; for I am working a work in your days, which you will not believe though it is told you.
+5 Behold ye among the heathen, and regard, and wonder marvelously: for I will work a work in your days which ye will not believe, though it be told you.
 
-6. For, behold, I raise up the Chaldeans, that bitter and hasty nation, that march through the breadth of the earth, to possess dwelling places that are not theirs.
+6 For, lo, I raise up the Chaldeans, that bitter and hasty nation, which shall march through the breadth of the land, to possess the dwellingplaces that are not their's.
 
-7. They are feared and dreaded. Their judgment and their dignity proceed from themselves.
+7 They are terrible and dreadful: their judgment and their dignity shall proceed of themselves.
 
-8. Their horses also are swifter than leopards, and are more fierce than the evening wolves. Their horsemen press proudly on. Yes, their horsemen come from afar. They fly as an eagle that hurries to devour.
+8 Their horses also are swifter than the leopards, and are more fierce than the evening wolves: and their horsemen shall spread themselves, and their horsemen shall come from far; they shall fly as the eagle that hasteth to eat.
 
-9. All of them come for violence. Their hordes face the desert. He gathers prisoners like sand.
+9 They shall come all for violence: their faces shall sup up as the east wind, and they shall gather the captivity as the sand.
 
-10. Yes, he scoffs at kings, and princes are a derision to him. He laughs at every stronghold, for he builds up an earthen ramp, and takes it.
+10 And they shall scoff at the kings, and the princes shall be a scorn unto them: they shall deride every strong hold; for they shall heap dust, and take it.
 
-11. Then he sweeps by like the wind, and goes on. He is indeed guilty, whose strength is his god."
+11 Then shall his mind change, and he shall pass over, and offend, imputing this his power unto his god.
 
-12. Aren't you from everlasting, Yahweh my God, my Holy One? We will not die. Yahweh, you have appointed him for judgment. You, Rock, have established him to punish.
+12 Art thou not from everlasting, O Lord my God, mine Holy One? we shall not die. O Lord, thou hast ordained them for judgment; and, O mighty God, thou hast established them for correction.
 
-13. You who have purer eyes than to see evil, and who cannot look on perversity, why do you tolerate those who deal treacherously, and keep silent when the wicked swallows up the man who is more righteous than he,
+13 Thou art of purer eyes than to behold evil, and canst not look on iniquity: wherefore lookest thou upon them that deal treacherously, and holdest thy tongue when the wicked devoureth the man that is more righteous than he?
 
-14. and make men like the fish of the sea, like the creeping things, that have no ruler over them?
+14 And makest men as the fishes of the sea, as the creeping things, that have no ruler over them?
 
-15. He takes up all of them with the hook. He catches them in his net, and gathers them in his dragnet. Therefore he rejoices and is glad.
+15 They take up all of them with the angle, they catch them in their net, and gather them in their drag: therefore they rejoice and are glad.
 
-16. Therefore he sacrifices to his net, and burns incense to his dragnet, because by them his life is luxurious, and his food is good.
+16 Therefore they sacrifice unto their net, and burn incense unto their drag; because by them their portion is fat, and their meat plenteous.
 
-17. Will he therefore continually empty his net, and kill the nations without mercy?
-
-
-## Chapter 2
-
-1. I will stand at my watch, and set myself on the ramparts, and will look out to see what he will say to me, and what I will answer concerning my complaint.
-
-2. Yahweh answered me, "Write the vision, and make it plain on tablets, that he who runs may read it.
-
-3. For the vision is yet for the appointed time, and it hurries toward the end, and won't prove false. Though it takes time, wait for it; because it will surely come. It won't delay.
-
-4. Behold, his soul is puffed up. It is not upright in him, but the righteous will live by his faith.
-
-5. Yes, moreover, wine is treacherous. A haughty man who doesn't stay at home, who enlarges his desire as Sheol, and he is like death, and can't be satisfied, but gathers to himself all nations, and heaps to himself all peoples.
-
-6. Won't all these take up a parable against him, and a taunting proverb against him, and say, 'Woe to him who increases that which is not his, and who enriches himself by extortion! How long?'
-
-7. Won't your debtors rise up suddenly, and wake up those who make you tremble, and you will be their victim?
-
-8. Because you have plundered many nations, all the remnant of the peoples will plunder you, because of men's blood, and for the violence done to the land, to the city and to all who dwell in it.
-
-9. Woe to him who gets an evil gain for his house, that he may set his nest on high, that he may be delivered from the hand of evil!
-
-10. You have devised shame to your house, by cutting off many peoples, and have sinned against your soul.
-
-11. For the stone will cry out of the wall, and the beam out of the woodwork will answer it.
-
-12. Woe to him who builds a town with blood, and establishes a city by iniquity!
-
-13. Behold, isn't it of Yahweh of Armies that the peoples labor for the fire, and the nations weary themselves for vanity?
-
-14. For the earth will be filled with the knowledge of the glory of Yahweh, as the waters cover the sea.
-
-15. "Woe to him who gives his neighbor drink, pouring your inflaming wine until they are drunk, so that you may gaze at their naked bodies!
-
-16. You are filled with shame, and not glory. You will also drink, and be exposed! The cup of Yahweh's right hand will come around to you, and disgrace will cover your glory.
-
-17. For the violence done to Lebanon will overwhelm you, and the destruction of the animals, which made them afraid; because of men's blood, and for the violence done to the land, to every city and to those who dwell in them.
-
-18. "What value does the engraved image have, that its maker has engraved it; the molten image, even the teacher of lies, that he who fashions its form trusts in it, to make mute idols?
-
-19. Woe to him who says to the wood, 'Awake!' or to the mute stone, 'Arise!' Shall this teach? Behold, it is overlaid with gold and silver, and there is no breath at all in its midst.
-
-20. But Yahweh is in his holy temple. Let all the earth be silent before him!"
+17 Shall they therefore empty their net, and not spare continually to slay the nations?
 
 
-## Chapter 3
+## Habakkuk Chapter 2
 
-1. A prayer of Habakkuk, the prophet, set to victorious music.
+1 I will stand upon my watch, and set me upon the tower, and will watch to see what he will say unto me, and what I shall answer when I am reproved.
 
-2. Yahweh, I have heard of your fame.    I stand in awe of your deeds, Yahweh. Renew your work in the midst of the years.    In the midst of the years make it known.    In wrath, you remember mercy.
+2 And the Lord answered me, and said, Write the vision, and make it plain upon tables, that he may run that readeth it.
 
-3. God came from Teman,    the Holy One from Mount Paran. Selah.  His glory covered the heavens,    and his praise filled the earth.
+3 For the vision is yet for an appointed time, but at the end it shall speak, and not lie: though it tarry, wait for it; because it will surely come, it will not tarry.
 
-4. His splendor is like the sunrise.    Rays shine from his hand, where his power is hidden.
+4 Behold, his soul which is lifted up is not upright in him: but the just shall live by his faith.
 
-5. Plague went before him,    and pestilence followed his feet.
+5 Yea also, because he transgresseth by wine, he is a proud man, neither keepeth at home, who enlargeth his desire as hell, and is as death, and cannot be satisfied, but gathereth unto him all nations, and heapeth unto him all people:
 
-6. He stood, and shook the earth.    He looked, and made the nations tremble.    The ancient mountains were crumbled.    The age-old hills collapsed.    His ways are eternal.
+6 Shall not all these take up a parable against him, and a taunting proverb against him, and say, Woe to him that increaseth that which is not his! how long? and to him that ladeth himself with thick clay!
 
-7. I saw the tents of Cushan in affliction.    The dwellings of the land of Midian trembled.
+7 Shall they not rise up suddenly that shall bite thee, and awake that shall vex thee, and thou shalt be for booties unto them?
 
-8. Was Yahweh displeased with the rivers?    Was your anger against the rivers,    or your wrath against the sea,    that you rode on your horses,    on your chariots of salvation?
+8 Because thou hast spoiled many nations, all the remnant of the people shall spoil thee; because of men's blood, and for the violence of the land, of the city, and of all that dwell therein.
 
-9. You uncovered your bow.    You called for your sworn arrows. Selah. You split the earth with rivers.
+9 Woe to him that coveteth an evil covetousness to his house, that he may set his nest on high, that he may be delivered from the power of evil!
 
-10. The mountains saw you, and were afraid.    The storm of waters passed by.    The deep roared and lifted up its hands on high.
+10 Thou hast consulted shame to thy house by cutting off many people, and hast sinned against thy soul.
 
-11. The sun and moon stood still in the sky,    at the light of your arrows as they went,    at the shining of your glittering spear.
+11 For the stone shall cry out of the wall, and the beam out of the timber shall answer it.
 
-12. You marched through the land in wrath.    You threshed the nations in anger.
+12 Woe to him that buildeth a town with blood, and stablisheth a city by iniquity!
 
-13. You went forth for the salvation of your people,    for the salvation of your anointed. You crushed the head of the land of wickedness.    You stripped them head to foot. Selah.
+13 Behold, is it not of the Lord of hosts that the people shall labour in the very fire, and the people shall weary themselves for very vanity?
 
-14. You pierced the heads of his warriors with their own spears.    They came as a whirlwind to scatter me,    gloating as if to devour the wretched in secret.
+14 For the earth shall be filled with the knowledge of the glory of the Lord, as the waters cover the sea.
 
-15. You trampled the sea with your horses,    churning mighty waters.
+15 Woe unto him that giveth his neighbour drink, that puttest thy bottle to him, and makest him drunken also, that thou mayest look on their nakedness!
 
-16. I heard, and my body trembled.    My lips quivered at the voice. Rottenness enters into my bones, and I tremble in my place,    because I must wait quietly for the day of trouble,    for the coming up of the people who invade us.
+16 Thou art filled with shame for glory: drink thou also, and let thy foreskin be uncovered: the cup of the Lord's right hand shall be turned unto thee, and shameful spewing shall be on thy glory.
 
-17. For though the fig tree doesn't flourish,    nor fruit be in the vines;    the labor of the olive fails,    the fields yield no food;    the flocks are cut off from the fold,    and there is no herd in the stalls:
+17 For the violence of Lebanon shall cover thee, and the spoil of beasts, which made them afraid, because of men's blood, and for the violence of the land, of the city, and of all that dwell therein.
 
-18. yet I will rejoice in Yahweh.    I will be joyful in the God of my salvation!
+18 What profiteth the graven image that the maker thereof hath graven it; the molten image, and a teacher of lies, that the maker of his work trusteth therein, to make dumb idols?
 
-19. Yahweh, the Lord, is my strength.    He makes my feet like deer's feet,    and enables me to go in high places.     For the music director, on my stringed instruments.
+19 Woe unto him that saith to the wood, Awake; to the dumb stone, Arise, it shall teach! Behold, it is laid over with gold and silver, and there is no breath at all in the midst of it.
 
+20 But the Lord is in his holy temple: let all the earth keep silence before him.
+
+
+## Habakkuk Chapter 3
+
+1 A prayer of Habakkuk the prophet upon Shigionoth.
+
+2 O Lord, I have heard thy speech, and was afraid: O Lord, revive thy work in the midst of the years, in the midst of the years make known; in wrath remember mercy.
+
+3 God came from Teman, and the Holy One from mount Paran. Selah. His glory covered the heavens, and the earth was full of his praise.
+
+4 And his brightness was as the light; he had horns coming out of his hand: and there was the hiding of his power.
+
+5 Before him went the pestilence, and burning coals went forth at his feet.
+
+6 He stood, and measured the earth: he beheld, and drove asunder the nations; and the everlasting mountains were scattered, the perpetual hills did bow: his ways are everlasting.
+
+7 I saw the tents of Cushan in affliction: and the curtains of the land of Midian did tremble.
+
+8 Was the Lord displeased against the rivers? was thine anger against the rivers? was thy wrath against the sea, that thou didst ride upon thine horses and thy chariots of salvation?
+
+9 Thy bow was made quite naked, according to the oaths of the tribes, even thy word. Selah. Thou didst cleave the earth with rivers.
+
+10 The mountains saw thee, and they trembled: the overflowing of the water passed by: the deep uttered his voice, and lifted up his hands on high.
+
+11 The sun and moon stood still in their habitation: at the light of thine arrows they went, and at the shining of thy glittering spear.
+
+12 Thou didst march through the land in indignation, thou didst thresh the heathen in anger.
+
+13 Thou wentest forth for the salvation of thy people, even for salvation with thine anointed; thou woundedst the head out of the house of the wicked, by discovering the foundation unto the neck. Selah.
+
+14 Thou didst strike through with his staves the head of his villages: they came out as a whirlwind to scatter me: their rejoicing was as to devour the poor secretly.
+
+15 Thou didst walk through the sea with thine horses, through the heap of great waters.
+
+16 When I heard, my belly trembled; my lips quivered at the voice: rottenness entered into my bones, and I trembled in myself, that I might rest in the day of trouble: when he cometh up unto the people, he will invade them with his troops.
+
+17 Although the fig tree shall not blossom, neither shall fruit be in the vines; the labour of the olive shall fail, and the fields shall yield no meat; the flock shall be cut off from the fold, and there shall be no herd in the stalls:
+
+18 Yet I will rejoice in the Lord, I will joy in the God of my salvation.
+
+19 The Lord God is my strength, and he will make my feet like hinds' feet, and he will make me to walk upon mine high places. To the chief singer on my stringed instruments.
+
+
+## eof

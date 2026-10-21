@@ -1,54 +1,55 @@
+
 # Philemon
 
-## Chapter 1
+1 Paul, a prisoner of Jesus Christ, and Timothy our brother, unto Philemon our dearly beloved, and fellowlabourer,
 
-1. Paul, a prisoner of Christ Jesus, and Timothy our brother, to Philemon, our beloved fellow worker,
+2 And to our beloved Apphia, and Archippus our fellowsoldier, and to the church in thy house:
 
-2. to the beloved Apphia, to Archippus, our fellow soldier, and to the assembly in your house:
+3 Grace to you, and peace, from God our Father and the Lord Jesus Christ.
 
-3. Grace to you and peace from God our Father and the Lord Jesus Christ.
+4 I thank my God, making mention of thee always in my prayers,
 
-4. I thank my God always, making mention of you in my prayers,
+5 Hearing of thy love and faith, which thou hast toward the Lord Jesus, and toward all saints;
 
-5. hearing of your love, and of the faith which you have toward the Lord Jesus, and toward all the saints;
+6 That the communication of thy faith may become effectual by the acknowledging of every good thing which is in you in Christ Jesus.
 
-6. that the fellowship of your faith may become effective, in the knowledge of every good thing which is in us in Christ Jesus.
+7 For we have great joy and consolation in thy love, because the bowels of the saints are refreshed by thee, brother.
 
-7. For we have much joy and comfort in your love, because the hearts of the saints have been refreshed through you, brother.
+8 Wherefore, though I might be much bold in Christ to enjoin thee that which is convenient,
 
-8. Therefore, though I have all boldness in Christ to command you that which is appropriate,
+9 Yet for love's sake I rather beseech thee, being such an one as Paul the aged, and now also a prisoner of Jesus Christ.
 
-9. yet for love's sake I rather beg, being such a one as Paul, the aged, but also a prisoner of Jesus Christ.
+10 I beseech thee for my son Onesimus, whom I have begotten in my bonds:
 
-10. I beg you for my child, whom I have become the father of in my chains, Onesimus,
+11 Which in time past was to thee unprofitable, but now profitable to thee and to me:
 
-11. who once was useless to you, but now is useful to you and to me.
+12 Whom I have sent again: thou therefore receive him, that is, mine own bowels:
 
-12. I am sending him back. Therefore receive him, that is, my own heart,
+13 Whom I would have retained with me, that in thy stead he might have ministered unto me in the bonds of the gospel:
 
-13. whom I desired to keep with me, that on your behalf he might serve me in my chains for the Good News.
+14 But without thy mind would I do nothing; that thy benefit should not be as it were of necessity, but willingly.
 
-14. But I was willing to do nothing without your consent, that your goodness would not be as of necessity, but of free will.
+15 For perhaps he therefore departed for a season, that thou shouldest receive him for ever;
 
-15. For perhaps he was therefore separated from you for a while, that you would have him forever,
+16 Not now as a servant, but above a servant, a brother beloved, specially to me, but how much more unto thee, both in the flesh, and in the Lord?
 
-16. no longer as a slave, but more than a slave, a beloved brother, especially to me, but how much rather to you, both in the flesh and in the Lord.
+17 If thou count me therefore a partner, receive him as myself.
 
-17. If then you count me a partner, receive him as you would receive me.
+18 If he hath wronged thee, or oweth thee ought, put that on mine account;
 
-18. But if he has wronged you at all, or owes you anything, put that to my account.
+19 I Paul have written it with mine own hand, I will repay it: albeit I do not say to thee how thou owest unto me even thine own self besides.
 
-19. I, Paul, write this with my own hand: I will repay it (not to mention to you that you owe to me even your own self besides).
+20 Yea, brother, let me have joy of thee in the Lord: refresh my bowels in the Lord.
 
-20. Yes, brother, let me have joy from you in the Lord. Refresh my heart in the Lord.
+21 Having confidence in thy obedience I wrote unto thee, knowing that thou wilt also do more than I say.
 
-21. Having confidence in your obedience, I write to you, knowing that you will do even beyond what I say.
+22 But withal prepare me also a lodging: for I trust that through your prayers I shall be given unto you.
 
-22. Also, prepare a guest room for me, for I hope that through your prayers I will be restored to you.
+23 There salute thee Epaphras, my fellowprisoner in Christ Jesus;
 
-23. Epaphras, my fellow prisoner in Christ Jesus, greets you,
+24 Marcus, Aristarchus, Demas, Lucas, my fellowlabourers.
 
-24. as do Mark, Aristarchus, Demas, and Luke, my fellow workers.
+25 The grace of our Lord Jesus Christ be with your spirit. Amen.
 
-25. The grace of our Lord Jesus Christ be with your spirit. Amen.
 
+## eof

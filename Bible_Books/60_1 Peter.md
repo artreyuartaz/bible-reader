@@ -1,226 +1,229 @@
+
 # 1 Peter
 
-## Chapter 1
+## 1 Peter Chapter 1
 
-1. Peter, an apostle of Jesus Christ, to the chosen ones who are living as foreigners in the Dispersion in Pontus, Galatia, Cappadocia, Asia, and Bithynia,
+1 Peter, an apostle of Jesus Christ, to the strangers scattered throughout Pontus, Galatia, Cappadocia, Asia, and Bithynia,
 
-2. according to the foreknowledge of God the Father, in sanctification of the Spirit, that you may obey Jesus Christ and be sprinkled with his blood: Grace to you and peace be multiplied.
+2 Elect according to the foreknowledge of God the Father, through sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ: Grace unto you, and peace, be multiplied.
 
-3. Blessed be the God and Father of our Lord Jesus Christ, who according to his great mercy became our father again to a living hope through the resurrection of Jesus Christ from the dead,
+3 Blessed be the God and Father of our Lord Jesus Christ, which according to his abundant mercy hath begotten us again unto a lively hope by the resurrection of Jesus Christ from the dead,
 
-4. to an incorruptible and undefiled inheritance that doesn't fade away, reserved in Heaven for you,
+4 To an inheritance incorruptible, and undefiled, and that fadeth not away, reserved in heaven for you,
 
-5. who by the power of God are guarded through faith for a salvation ready to be revealed in the last time.
+5 Who are kept by the power of God through faith unto salvation ready to be revealed in the last time.
 
-6. Wherein you greatly rejoice, though now for a little while, if need be, you have been put to grief in various trials,
+6 Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations:
 
-7. that the proof of your faith, which is more precious than gold that perishes even though it is tested by fire, may be found to result in praise, glory, and honor at the revelation of Jesus Christ--
+7 That the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ:
 
-8. whom not having known you love; in whom, though now you don't see him, yet believing, you rejoice greatly with joy unspeakable and full of glory--
+8 Whom having not seen, ye love; in whom, though now ye see him not, yet believing, ye rejoice with joy unspeakable and full of glory:
 
-9. receiving the result of your faith, the salvation of your souls.
+9 Receiving the end of your faith, even the salvation of your souls.
 
-10. Concerning this salvation, the prophets sought and searched diligently, who prophesied of the grace that would come to you,
+10 Of which salvation the prophets have enquired and searched diligently, who prophesied of the grace that should come unto you:
 
-11. searching for who or what kind of time the Spirit of Christ, which was in them, pointed to, when he predicted the sufferings of Christ, and the glories that would follow them.
+11 Searching what, or what manner of time the Spirit of Christ which was in them did signify, when it testified beforehand the sufferings of Christ, and the glory that should follow.
 
-12. To them it was revealed, that not to themselves, but to you, they ministered these things, which now have been announced to you through those who preached the Good News to you by the Holy Spirit sent out from heaven; which things angels desire to look into.
+12 Unto whom it was revealed, that not unto themselves, but unto us they did minister the things, which are now reported unto you by them that have preached the gospel unto you with the Holy Ghost sent down from heaven; which things the angels desire to look into.
 
-13. Therefore, prepare your minds for action, be sober and set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ--
+13 Wherefore gird up the loins of your mind, be sober, and hope to the end for the grace that is to be brought unto you at the revelation of Jesus Christ;
 
-14. as children of obedience, not conforming yourselves according to your former lusts as in your ignorance,
+14 As obedient children, not fashioning yourselves according to the former lusts in your ignorance:
 
-15. but just as he who called you is holy, you yourselves also be holy in all of your behavior;
+15 But as he which hath called you is holy, so be ye holy in all manner of conversation;
 
-16. because it is written, "You shall be holy; for I am holy."
+16 Because it is written, Be ye holy; for I am holy.
 
-17. If you call on him as Father, who without respect of persons judges according to each man's work, pass the time of your living as foreigners here in reverent fear:
+17 And if ye call on the Father, who without respect of persons judgeth according to every man's work, pass the time of your sojourning here in fear:
 
-18. knowing that you were redeemed, not with corruptible things, with silver or gold, from the useless way of life handed down from your fathers,
+18 Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers;
 
-19. but with precious blood, as of a faultless and pure lamb, the blood of Christ;
+19 But with the precious blood of Christ, as of a lamb without blemish and without spot:
 
-20. who was foreknown indeed before the foundation of the world, but was revealed at the end of times for your sake,
+20 Who verily was foreordained before the foundation of the world, but was manifest in these last times for you,
 
-21. who through him are believers in God, who raised him from the dead, and gave him glory; so that your faith and hope might be in God.
+21 Who by him do believe in God, that raised him up from the dead, and gave him glory; that your faith and hope might be in God.
 
-22. Seeing you have purified your souls in your obedience to the truth through the Spirit in sincere brotherly affection, love one another from the heart fervently:
+22 Seeing ye have purified your souls in obeying the truth through the Spirit unto unfeigned love of the brethren, see that ye love one another with a pure heart fervently:
 
-23. having been born again, not of corruptible seed, but of incorruptible, through the word of God, which lives and remains forever.
+23 Being born again, not of corruptible seed, but of incorruptible, by the word of God, which liveth and abideth for ever.
 
-24. For, "All flesh is like grass,    and all of man's glory like the flower in the grass. The grass withers, and its flower falls;
+24 For all flesh is as grass, and all the glory of man as the flower of grass. The grass withereth, and the flower thereof falleth away:
 
-25. but the Lord's word endures forever."     This is the word of Good News which was preached to you.
+25 But the word of the Lord endureth for ever. And this is the word which by the gospel is preached unto you.
 
 
-## Chapter 2
+## 1 Peter Chapter 2
 
-1. Putting away therefore all wickedness, all deceit, hypocrisies, envies, and all evil speaking,
+1 Wherefore laying aside all malice, and all guile, and hypocrisies, and envies, and all evil speakings,
 
-2. as newborn babies, long for the pure milk of the Word, that you may grow thereby,
+2 As newborn babes, desire the sincere milk of the word, that ye may grow thereby:
 
-3. if indeed you have tasted that the Lord is gracious:
+3 If so be ye have tasted that the Lord is gracious.
 
-4. coming to him, a living stone, rejected indeed by men, but chosen by God, precious.
+4 To whom coming, as unto a living stone, disallowed indeed of men, but chosen of God, and precious,
 
-5. You also, as living stones, are built up as a spiritual house, to be a holy priesthood, to offer up spiritual sacrifices, acceptable to God through Jesus Christ.
+5 Ye also, as lively stones, are built up a spiritual house, an holy priesthood, to offer up spiritual sacrifices, acceptable to God by Jesus Christ.
 
-6. Because it is contained in Scripture, "Behold, I lay in Zion a chief cornerstone, chosen, and precious:    He who believes in him will not be disappointed."
+6 Wherefore also it is contained in the scripture, Behold, I lay in Sion a chief corner stone, elect, precious: and he that believeth on him shall not be confounded.
 
-7. For you who believe therefore is the honor, but for those who are disobedient, "The stone which the builders rejected,    has become the chief cornerstone,"
+7 Unto you therefore which believe he is precious: but unto them which be disobedient, the stone which the builders disallowed, the same is made the head of the corner,
 
-8. and, "a stone of stumbling, and a rock of offense."     For they stumble at the word, being disobedient, to which also they were appointed.
+8 And a stone of stumbling, and a rock of offence, even to them which stumble at the word, being disobedient: whereunto also they were appointed.
 
-9. But you are a chosen race, a royal priesthood, a holy nation, a people for God's own possession, that you may proclaim the excellence of him who called you out of darkness into his marvelous light:
+9 But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light;
 
-10. who in time past were no people, but now are God's people, who had not obtained mercy, but now have obtained mercy.
+10 Which in time past were not a people, but are now the people of God: which had not obtained mercy, but now have obtained mercy.
 
-11. Beloved, I beg you as foreigners and pilgrims, to abstain from fleshly lusts, which war against the soul;
+11 Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul;
 
-12. having good behavior among the nations, so in that of which they speak against you as evildoers, they may by your good works, which they see, glorify God in the day of visitation.
+12 Having your conversation honest among the Gentiles: that, whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.
 
-13. Therefore subject yourselves to every ordinance of man for the Lord's sake: whether to the king, as supreme;
+13 Submit yourselves to every ordinance of man for the Lord's sake: whether it be to the king, as supreme;
 
-14. or to governors, as sent by him for vengeance on evildoers and for praise to those who do well.
+14 Or unto governors, as unto them that are sent by him for the punishment of evildoers, and for the praise of them that do well.
 
-15. For this is the will of God, that by well-doing you should put to silence the ignorance of foolish men:
+15 For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men:
 
-16. as free, and not using your freedom for a cloak of wickedness, but as bondservants of God.
+16 As free, and not using your liberty for a cloke of maliciousness, but as the servants of God.
 
-17. Honor all men. Love the brotherhood. Fear God. Honor the king.
+17 Honour all men. Love the brotherhood. Fear God. Honour the king.
 
-18. Servants, be in subjection to your masters with all fear; not only to the good and gentle, but also to the wicked.
+18 Servants, be subject to your masters with all fear; not only to the good and gentle, but also to the froward.
 
-19. For it is commendable if someone endures pain, suffering unjustly, because of conscience toward God.
+19 For this is thankworthy, if a man for conscience toward God endure grief, suffering wrongfully.
 
-20. For what glory is it if, when you sin, you patiently endure beating? But if, when you do well, you patiently endure suffering, this is commendable with God.
+20 For what glory is it, if, when ye be buffeted for your faults, ye shall take it patiently? but if, when ye do well, and suffer for it, ye take it patiently, this is acceptable with God.
 
-21. For to this you were called, because Christ also suffered for us, leaving you an example, that you should follow his steps,
+21 For even hereunto were ye called: because Christ also suffered for us, leaving us an example, that ye should follow his steps:
 
-22. who did not sin, "neither was deceit found in his mouth."
+22 Who did no sin, neither was guile found in his mouth:
 
-23. Who, when he was cursed, didn't curse back. When he suffered, didn't threaten, but committed himself to him who judges righteously;
+23 Who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously:
 
-24. who his own self bore our sins in his body on the tree, that we, having died to sins, might live to righteousness; by whose stripes you were healed.
+24 Who his own self bare our sins in his own body on the tree, that we, being dead to sins, should live unto righteousness: by whose stripes ye were healed.
 
-25. For you were going astray like sheep; but now have returned to the Shepherd and Overseer of your souls.
+25 For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.
 
 
-## Chapter 3
+## 1 Peter Chapter 3
 
-1. In like manner, wives, be in subjection to your own husbands; so that, even if any don't obey the Word, they may be won by the behavior of their wives without a word;
+1 Likewise, ye wives, be in subjection to your own husbands; that, if any obey not the word, they also may without the word be won by the conversation of the wives;
 
-2. seeing your pure behavior in fear.
+2 While they behold your chaste conversation coupled with fear.
 
-3. Let your beauty be not just the outward adorning of braiding the hair, and of wearing jewels of gold, or of putting on fine clothing;
+3 Whose adorning let it not be that outward adorning of plaiting the hair, and of wearing of gold, or of putting on of apparel;
 
-4. but in the hidden person of the heart, in the incorruptible adornment of a gentle and quiet spirit, which is in the sight of God very precious.
+4 But let it be the hidden man of the heart, in that which is not corruptible, even the ornament of a meek and quiet spirit, which is in the sight of God of great price.
 
-5. For this is how the holy women before, who hoped in God also adorned themselves, being in subjection to their own husbands:
+5 For after this manner in the old time the holy women also, who trusted in God, adorned themselves, being in subjection unto their own husbands:
 
-6. as Sarah obeyed Abraham, calling him lord, whose children you now are, if you do well, and are not put in fear by any terror.
+6 Even as Sara obeyed Abraham, calling him lord: whose daughters ye are, as long as ye do well, and are not afraid with any amazement.
 
-7. You husbands, in like manner, live with your wives according to knowledge, giving honor to the woman, as to the weaker vessel, as being also joint heirs of the grace of life; that your prayers may not be hindered.
+7 Likewise, ye husbands, dwell with them according to knowledge, giving honour unto the wife, as unto the weaker vessel, and as being heirs together of the grace of life; that your prayers be not hindered.
 
-8. Finally, be all like-minded, compassionate, loving as brothers, tenderhearted, courteous,
+8 Finally, be ye all of one mind, having compassion one of another, love as brethren, be pitiful, be courteous:
 
-9. not rendering evil for evil, or insult for insult; but instead blessing; knowing that to this were you called, that you may inherit a blessing.
+9 Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.
 
-10. For, "He who would love life,    and see good days, let him keep his tongue from evil,    and his lips from speaking deceit.
+10 For he that will love life, and see good days, let him refrain his tongue from evil, and his lips that they speak no guile:
 
-11. Let him turn away from evil, and do good.    Let him seek peace, and pursue it.
+11 Let him eschew evil, and do good; let him seek peace, and ensue it.
 
-12. For the eyes of the Lord are on the righteous,    and his ears open to their prayer;    but the face of the Lord is against those who do evil."
+12 For the eyes of the Lord are over the righteous, and his ears are open unto their prayers: but the face of the Lord is against them that do evil.
 
-13. Now who is he who will harm you, if you become imitators of that which is good?
+13 And who is he that will harm you, if ye be followers of that which is good?
 
-14. But even if you should suffer for righteousness' sake, you are blessed. "Don't fear what they fear, neither be troubled."
+14 But and if ye suffer for righteousness' sake, happy are ye: and be not afraid of their terror, neither be troubled;
 
-15. But sanctify the Lord God in your hearts; and always be ready to give an answer to everyone who asks you a reason concerning the hope that is in you, with humility and fear:
+15 But sanctify the Lord God in your hearts: and be ready always to give an answer to every man that asketh you a reason of the hope that is in you with meekness and fear:
 
-16. having a good conscience; that, while you are spoken against as evildoers, they may be disappointed who curse your good manner of life in Christ.
+16 Having a good conscience; that, whereas they speak evil of you, as of evildoers, they may be ashamed that falsely accuse your good conversation in Christ.
 
-17. For it is better, if it is God's will, that you suffer for doing well than for doing evil.
+17 For it is better, if the will of God be so, that ye suffer for well doing, than for evil doing.
 
-18. Because Christ also suffered for sins once, the righteous for the unrighteous, that he might bring you to God; being put to death in the flesh, but made alive in the spirit;
+18 For Christ also hath once suffered for sins, the just for the unjust, that he might bring us to God, being put to death in the flesh, but quickened by the Spirit:
 
-19. in which he also went and preached to the spirits in prison,
+19 By which also he went and preached unto the spirits in prison;
 
-20. who before were disobedient, when God waited patiently in the days of Noah, while the ship was being built. In it, few, that is, eight souls, were saved through water.
+20 Which sometime were disobedient, when once the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.
 
-21. This is a symbol of baptism, which now saves you--not the putting away of the filth of the flesh, but the answer of a good conscience toward God, through the resurrection of Jesus Christ,
+21 The like figure whereunto even baptism doth also now save us (not the putting away of the filth of the flesh, but the answer of a good conscience toward God,) by the resurrection of Jesus Christ:
 
-22. who is at the right hand of God, having gone into heaven, angels and authorities and powers being made subject to him.
+22 Who is gone into heaven, and is on the right hand of God; angels and authorities and powers being made subject unto him.
 
 
-## Chapter 4
+## 1 Peter Chapter 4
 
-1. Forasmuch then as Christ suffered for us in the flesh, arm yourselves also with the same mind; for he who has suffered in the flesh has ceased from sin;
+1 Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin;
 
-2. that you no longer should live the rest of your time in the flesh for the lusts of men, but for the will of God.
+2 That he no longer should live the rest of his time in the flesh to the lusts of men, but to the will of God.
 
-3. For we have spent enough of our past time doing the desire of the Gentiles, and having walked in lewdness, lusts, drunken binges, orgies, carousings, and abominable idolatries.
+3 For the time past of our life may suffice us to have wrought the will of the Gentiles, when we walked in lasciviousness, lusts, excess of wine, revellings, banquetings, and abominable idolatries:
 
-4. They think it is strange that you don't run with them into the same excess of riot, blaspheming:
+4 Wherein they think it strange that ye run not with them to the same excess of riot, speaking evil of you:
 
-5. who will give account to him who is ready to judge the living and the dead.
+5 Who shall give account to him that is ready to judge the quick and the dead.
 
-6. For to this end the Good News was preached even to the dead, that they might be judged indeed as men in the flesh, but live as to God in the spirit.
+6 For for this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.
 
-7. But the end of all things is near. Therefore be of sound mind, self-controlled, and sober in prayer.
+7 But the end of all things is at hand: be ye therefore sober, and watch unto prayer.
 
-8. And above all things be earnest in your love among yourselves, for love covers a multitude of sins.
+8 And above all things have fervent charity among yourselves: for charity shall cover the multitude of sins.
 
-9. Be hospitable to one another without grumbling.
+9 Use hospitality one to another without grudging.
 
-10. As each has received a gift, employ it in serving one another, as good managers of the grace of God in its various forms.
+10 As every man hath received the gift, even so minister the same one to another, as good stewards of the manifold grace of God.
 
-11. If anyone speaks, let it be as it were the very words of God. If anyone serves, let it be as of the strength which God supplies, that in all things God may be glorified through Jesus Christ, to whom belong the glory and the dominion forever and ever. Amen.
+11 If any man speak, let him speak as the oracles of God; if any man minister, let him do it as of the ability which God giveth: that God in all things may be glorified through Jesus Christ, to whom be praise and dominion for ever and ever. Amen.
 
-12. Beloved, don't be astonished at the fiery trial which has come upon you, to test you, as though a strange thing happened to you.
+12 Beloved, think it not strange concerning the fiery trial which is to try you, as though some strange thing happened unto you:
 
-13. But because you are partakers of Christ's sufferings, rejoice; that at the revelation of his glory you also may rejoice with exceeding joy.
+13 But rejoice, inasmuch as ye are partakers of Christ's sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy.
 
-14. If you are insulted for the name of Christ, you are blessed; because the Spirit of glory and of God rests on you. On their part he is blasphemed, but on your part he is glorified.
+14 If ye be reproached for the name of Christ, happy are ye; for the spirit of glory and of God resteth upon you: on their part he is evil spoken of, but on your part he is glorified.
 
-15. For let none of you suffer as a murderer, or a thief, or an evil doer, or a meddler in other men's matters.
+15 But let none of you suffer as a murderer, or as a thief, or as an evildoer, or as a busybody in other men's matters.
 
-16. But if one of you suffers for being a Christian, let him not be ashamed; but let him glorify God in this matter.
+16 Yet if any man suffer as a Christian, let him not be ashamed; but let him glorify God on this behalf.
 
-17. For the time has come for judgment to begin with the household of God. If it begins first with us, what will happen to those who don't obey the Good News of God?
+17 For the time is come that judgment must begin at the house of God: and if it first begin at us, what shall the end be of them that obey not the gospel of God?
 
-18. "If it is hard for the righteous to be saved, what will happen to the ungodly and the sinner?"
+18 And if the righteous scarcely be saved, where shall the ungodly and the sinner appear?
 
-19. Therefore let them also who suffer according to the will of God in doing good entrust their souls to him, as to a faithful Creator.
+19 Wherefore let them that suffer according to the will of God commit the keeping of their souls to him in well doing, as unto a faithful Creator.
 
 
-## Chapter 5
+## 1 Peter Chapter 5
 
-1. I exhort the elders among you, as a fellow elder, and a witness of the sufferings of Christ, and who will also share in the glory that will be revealed.
+1 The elders which are among you I exhort, who am also an elder, and a witness of the sufferings of Christ, and also a partaker of the glory that shall be revealed:
 
-2. Shepherd the flock of God which is among you, exercising the oversight, not under compulsion, but voluntarily, not for dishonest gain, but willingly;
+2 Feed the flock of God which is among you, taking the oversight thereof, not by constraint, but willingly; not for filthy lucre, but of a ready mind;
 
-3. neither as lording it over those entrusted to you, but making yourselves examples to the flock.
+3 Neither as being lords over God's heritage, but being examples to the flock.
 
-4. When the chief Shepherd is revealed, you will receive the crown of glory that doesn't fade away.
+4 And when the chief Shepherd shall appear, ye shall receive a crown of glory that fadeth not away.
 
-5. Likewise, you younger ones, be subject to the elder. Yes, all of you gird yourselves with humility, to subject yourselves to one another; for "God resists the proud, but gives grace to the humble."
+5 Likewise, ye younger, submit yourselves unto the elder. Yea, all of you be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
 
-6. Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time;
+6 Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time:
 
-7. casting all your worries on him, because he cares for you.
+7 Casting all your care upon him; for he careth for you.
 
-8. Be sober and self-controlled. Be watchful. Your adversary the devil, walks around like a roaring lion, seeking whom he may devour.
+8 Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour:
 
-9. Withstand him steadfast in your faith, knowing that your brothers who are in the world are undergoing the same sufferings.
+9 Whom resist stedfast in the faith, knowing that the same afflictions are accomplished in your brethren that are in the world.
 
-10. But may the God of all grace, who called you to his eternal glory by Christ Jesus, after you have suffered a little while, perfect, establish, strengthen, and settle you.
+10 But the God of all grace, who hath called us unto his eternal glory by Christ Jesus, after that ye have suffered a while, make you perfect, stablish, strengthen, settle you.
 
-11. To him be the glory and the power forever and ever. Amen.
+11 To him be glory and dominion for ever and ever. Amen.
 
-12. Through Silvanus, our faithful brother, as I consider him, I have written to you briefly, exhorting, and testifying that this is the true grace of God in which you stand.
+12 By Silvanus, a faithful brother unto you, as I suppose, I have written briefly, exhorting, and testifying that this is the true grace of God wherein ye stand.
 
-13. She who is in Babylon, chosen together with you, greets you; and so does Mark, my son.
+13 The church that is at Babylon, elected together with you, saluteth you; and so doth Marcus my son.
 
-14. Greet one another with a kiss of love. Peace be to you all who are in Christ Jesus. Amen.
+14 Greet ye one another with a kiss of charity. Peace be with you all that are in Christ Jesus. Amen.
 
+
+## eof

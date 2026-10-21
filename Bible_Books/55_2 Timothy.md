@@ -1,179 +1,182 @@
+
 # 2 Timothy
 
-## Chapter 1
+## 2 Timothy Chapter 1
 
-1. Paul, an apostle of Jesus Christ through the will of God, according to the promise of the life which is in Christ Jesus,
+1 Paul, an apostle of Jesus Christ by the will of God, according to the promise of life which is in Christ Jesus,
 
-2. to Timothy, my beloved child: Grace, mercy, and peace, from God the Father and Christ Jesus our Lord.
+2 To Timothy, my dearly beloved son: Grace, mercy, and peace, from God the Father and Christ Jesus our Lord.
 
-3. I thank God, whom I serve as my forefathers did, with a pure conscience. How unceasing is my memory of you in my petitions, night and day
+3 I thank God, whom I serve from my forefathers with pure conscience, that without ceasing I have remembrance of thee in my prayers night and day;
 
-4. longing to see you, remembering your tears, that I may be filled with joy;
+4 Greatly desiring to see thee, being mindful of thy tears, that I may be filled with joy;
 
-5. having been reminded of the unfeigned faith that is in you; which lived first in your grandmother Lois, and your mother Eunice, and, I am persuaded, in you also.
+5 When I call to remembrance the unfeigned faith that is in thee, which dwelt first in thy grandmother Lois, and thy mother Eunice; and I am persuaded that in thee also.
 
-6. For this cause, I remind you that you should stir up the gift of God which is in you through the laying on of my hands.
+6 Wherefore I put thee in remembrance that thou stir up the gift of God, which is in thee by the putting on of my hands.
 
-7. For God didn't give us a spirit of fear, but of power, love, and self-control.
+7 For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-8. Therefore don't be ashamed of the testimony of our Lord, nor of me his prisoner; but endure hardship for the Good News according to the power of God,
+8 Be not thou therefore ashamed of the testimony of our Lord, nor of me his prisoner: but be thou partaker of the afflictions of the gospel according to the power of God;
 
-9. who saved us and called us with a holy calling, not according to our works, but according to his own purpose and grace, which was given to us in Christ Jesus before times eternal,
+9 Who hath saved us, and called us with an holy calling, not according to our works, but according to his own purpose and grace, which was given us in Christ Jesus before the world began,
 
-10. but has now been revealed by the appearing of our Savior, Christ Jesus, who abolished death, and brought life and immortality to light through the Good News.
+10 But is now made manifest by the appearing of our Saviour Jesus Christ, who hath abolished death, and hath brought life and immortality to light through the gospel:
 
-11. For this, I was appointed as a preacher, an apostle, and a teacher of the Gentiles.
+11 Whereunto I am appointed a preacher, and an apostle, and a teacher of the Gentiles.
 
-12. For this cause I also suffer these things.     Yet I am not ashamed, for I know him whom I have believed, and I am persuaded that he is able to guard that which I have committed to him against that day.
+12 For the which cause I also suffer these things: nevertheless I am not ashamed: for I know whom I have believed, and am persuaded that he is able to keep that which I have committed unto him against that day.
 
-13. Hold the pattern of sound words which you have heard from me, in faith and love which is in Christ Jesus.
+13 Hold fast the form of sound words, which thou hast heard of me, in faith and love which is in Christ Jesus.
 
-14. That good thing which was committed to you, guard through the Holy Spirit who dwells in us.
+14 That good thing which was committed unto thee keep by the Holy Ghost which dwelleth in us.
 
-15. This you know, that all who are in Asia turned away from me; of whom are Phygelus and Hermogenes.
+15 This thou knowest, that all they which are in Asia be turned away from me; of whom are Phygellus and Hermogenes.
 
-16. May the Lord grant mercy to the house of Onesiphorus, for he often refreshed me, and was not ashamed of my chain,
+16 The Lord give mercy unto the house of Onesiphorus; for he oft refreshed me, and was not ashamed of my chain:
 
-17. but when he was in Rome, he sought me diligently, and found me
+17 But, when he was in Rome, he sought me out very diligently, and found me.
 
-18. (the Lord grant to him to find the Lord's mercy in that day); and in how many things he served at Ephesus, you know very well.
+18 The Lord grant unto him that he may find mercy of the Lord in that day: and in how many things he ministered unto me at Ephesus, thou knowest very well.
 
 
-## Chapter 2
+## 2 Timothy Chapter 2
 
-1. You therefore, my child, be strengthened in the grace that is in Christ Jesus.
+1 Thou therefore, my son, be strong in the grace that is in Christ Jesus.
 
-2. The things which you have heard from me among many witnesses, commit the same to faithful men, who will be able to teach others also.
+2 And the things that thou hast heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.
 
-3. You therefore must endure hardship, as a good soldier of Christ Jesus.
+3 Thou therefore endure hardness, as a good soldier of Jesus Christ.
 
-4. No soldier on duty entangles himself in the affairs of life, that he may please him who enrolled him as a soldier.
+4 No man that warreth entangleth himself with the affairs of this life; that he may please him who hath chosen him to be a soldier.
 
-5. Also, if anyone competes in athletics, he isn't crowned unless he has competed by the rules.
+5 And if a man also strive for masteries, yet is he not crowned, except he strive lawfully.
 
-6. The farmers who labor must be the first to get a share of the crops.
+6 The husbandman that laboureth must be first partaker of the fruits.
 
-7. Consider what I say, and may the Lord give you understanding in all things.
+7 Consider what I say; and the Lord give thee understanding in all things.
 
-8. Remember Jesus Christ, risen from the dead, of the seed of David, according to my Good News,
+8 Remember that Jesus Christ of the seed of David was raised from the dead according to my gospel:
 
-9. in which I suffer hardship to the point of chains as a criminal. But God's word isn't chained.
+9 Wherein I suffer trouble, as an evil doer, even unto bonds; but the word of God is not bound.
 
-10. Therefore I endure all things for the chosen ones' sake, that they also may obtain the salvation which is in Christ Jesus with eternal glory.
+10 Therefore I endure all things for the elect's sakes, that they may also obtain the salvation which is in Christ Jesus with eternal glory.
 
-11. This saying is faithful: "For if we died with him,    we will also live with him.
+11 It is a faithful saying: For if we be dead with him, we shall also live with him:
 
-12. If we endure,    we will also reign with him. If we deny him,    he also will deny us.
+12 If we suffer, we shall also reign with him: if we deny him, he also will deny us:
 
-13. If we are faithless,    he remains faithful.    He can't deny himself."
+13 If we believe not, yet he abideth faithful: he cannot deny himself.
 
-14. Remind them of these things, charging them in the sight of the Lord, that they don't argue about words, to no profit, to the subverting of those who hear.
+14 Of these things put them in remembrance, charging them before the Lord that they strive not about words to no profit, but to the subverting of the hearers.
 
-15. Give diligence to present yourself approved by God, a workman who doesn't need to be ashamed, properly handling the Word of Truth.
+15 Study to shew thyself approved unto God, a workman that needeth not to be ashamed, rightly dividing the word of truth.
 
-16. But shun empty chatter, for they will proceed further in ungodliness,
+16 But shun profane and vain babblings: for they will increase unto more ungodliness.
 
-17. and their word will consume like gangrene, of whom is Hymenaeus and Philetus;
+17 And their word will eat as doth a canker: of whom is Hymenaeus and Philetus;
 
-18. men who have erred concerning the truth, saying that the resurrection is already past, and overthrowing the faith of some.
+18 Who concerning the truth have erred, saying that the resurrection is past already; and overthrow the faith of some.
 
-19. However God's firm foundation stands, having this seal, "The Lord knows those who are his," and, "Let every one who names the name of the Lord depart from unrighteousness."
+19 Nevertheless the foundation of God standeth sure, having this seal, The Lord knoweth them that are his. And, let every one that nameth the name of Christ depart from iniquity.
 
-20. Now in a large house there are not only vessels of gold and of silver, but also of wood and of clay. Some are for honor, and some for dishonor.
+20 But in a great house there are not only vessels of gold and of silver, but also of wood and of earth; and some to honour, and some to dishonour.
 
-21. If anyone therefore purges himself from these, he will be a vessel for honor, sanctified, and suitable for the master's use, prepared for every good work.
+21 If a man therefore purge himself from these, he shall be a vessel unto honour, sanctified, and meet for the master's use, and prepared unto every good work.
 
-22. Flee from youthful lusts; but pursue righteousness, faith, love, and peace with those who call on the Lord out of a pure heart.
+22 Flee also youthful lusts: but follow righteousness, faith, charity, peace, with them that call on the Lord out of a pure heart.
 
-23. But refuse foolish and ignorant questionings, knowing that they generate strife.
+23 But foolish and unlearned questions avoid, knowing that they do gender strifes.
 
-24. The Lord's servant must not quarrel, but be gentle towards all, able to teach, patient,
+24 And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,
 
-25. in gentleness correcting those who oppose him: perhaps God may give them repentance leading to a full knowledge of the truth,
+25 In meekness instructing those that oppose themselves; if God peradventure will give them repentance to the acknowledging of the truth;
 
-26. and they may recover themselves out of the devil's snare, having been taken captive by him to his will.
+26 And that they may recover themselves out of the snare of the devil, who are taken captive by him at his will.
 
 
-## Chapter 3
+## 2 Timothy Chapter 3
 
-1. But know this, that in the last days, grievous times will come.
+1 This know also, that in the last days perilous times shall come.
 
-2. For men will be lovers of self, lovers of money, boastful, arrogant, blasphemers, disobedient to parents, unthankful, unholy,
+2 For men shall be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy,
 
-3. without natural affection, unforgiving, slanderers, without self-control, fierce, no lovers of good,
+3 Without natural affection, trucebreakers, false accusers, incontinent, fierce, despisers of those that are good,
 
-4. traitors, headstrong, conceited, lovers of pleasure rather than lovers of God;
+4 Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-5. holding a form of godliness, but having denied its power. Turn away from these, also.
+5 Having a form of godliness, but denying the power thereof: from such turn away.
 
-6. For some of these are people who creep into houses, and take captive gullible women loaded down with sins, led away by various lusts,
+6 For of this sort are they which creep into houses, and lead captive silly women laden with sins, led away with divers lusts,
 
-7. always learning, and never able to come to the knowledge of the truth.
+7 Ever learning, and never able to come to the knowledge of the truth.
 
-8. Even as Jannes and Jambres opposed Moses, so do these also oppose the truth; men corrupted in mind, who concerning the faith, are rejected.
+8 Now as Jannes and Jambres withstood Moses, so do these also resist the truth: men of corrupt minds, reprobate concerning the faith.
 
-9. But they will proceed no further. For their folly will be evident to all men, as theirs also came to be.
+9 But they shall proceed no further: for their folly shall be manifest unto all men, as their's also was.
 
-10. But you did follow my teaching, conduct, purpose, faith, patience, love, steadfastness,
+10 But thou hast fully known my doctrine, manner of life, purpose, faith, longsuffering, charity, patience,
 
-11. persecutions, and sufferings: those things that happened to me at Antioch, Iconium, and Lystra. I endured those persecutions. Out of them all the Lord delivered me.
+11 Persecutions, afflictions, which came unto me at Antioch, at Iconium, at Lystra; what persecutions I endured: but out of them all the Lord delivered me.
 
-12. Yes, and all who desire to live godly in Christ Jesus will suffer persecution.
+12 Yea, and all that will live godly in Christ Jesus shall suffer persecution.
 
-13. But evil men and impostors will grow worse and worse, deceiving and being deceived.
+13 But evil men and seducers shall wax worse and worse, deceiving, and being deceived.
 
-14. But you remain in the things which you have learned and have been assured of, knowing from whom you have learned them.
+14 But continue thou in the things which thou hast learned and hast been assured of, knowing of whom thou hast learned them;
 
-15. From infancy, you have known the holy Scriptures which are able to make you wise for salvation through faith, which is in Christ Jesus.
+15 And that from a child thou hast known the holy scriptures, which are able to make thee wise unto salvation through faith which is in Christ Jesus.
 
-16. Every Scripture is God-breathed and profitable for teaching, for reproof, for correction, and for instruction in righteousness,
+16 All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
-17. that the man of God may be complete, thoroughly equipped for every good work.
+17 That the man of God may be perfect, thoroughly furnished unto all good works.
 
 
-## Chapter 4
+## 2 Timothy Chapter 4
 
-1. I command you therefore before God and the Lord Jesus Christ, who will judge the living and the dead at his appearing and his Kingdom:
+1 I charge thee therefore before God, and the Lord Jesus Christ, who shall judge the quick and the dead at his appearing and his kingdom;
 
-2. preach the word; be urgent in season and out of season; reprove, rebuke, and exhort, with all patience and teaching.
+2 Preach the word; be instant in season, out of season; reprove, rebuke, exhort with all long suffering and doctrine.
 
-3. For the time will come when they will not listen to the sound doctrine, but, having itching ears, will heap up for themselves teachers after their own lusts;
+3 For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-4. and will turn away their ears from the truth, and turn aside to fables.
+4 And they shall turn away their ears from the truth, and shall be turned unto fables.
 
-5. But you be sober in all things, suffer hardship, do the work of an evangelist, and fulfill your ministry.
+5 But watch thou in all things, endure afflictions, do the work of an evangelist, make full proof of thy ministry.
 
-6. For I am already being offered, and the time of my departure has come.
+6 For I am now ready to be offered, and the time of my departure is at hand.
 
-7. I have fought the good fight. I have finished the course. I have kept the faith.
+7 I have fought a good fight, I have finished my course, I have kept the faith:
 
-8. From now on, there is stored up for me the crown of righteousness, which the Lord, the righteous judge, will give to me on that day; and not to me only, but also to all those who have loved his appearing.
+8 Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.
 
-9. Be diligent to come to me soon,
+9 Do thy diligence to come shortly unto me:
 
-10. for Demas left me, having loved this present world, and went to Thessalonica; Crescens to Galatia, and Titus to Dalmatia.
+10 For Demas hath forsaken me, having loved this present world, and is departed unto Thessalonica; Crescens to Galatia, Titus unto Dalmatia.
 
-11. Only Luke is with me. Take Mark, and bring him with you, for he is useful to me for service.
+11 Only Luke is with me. Take Mark, and bring him with thee: for he is profitable to me for the ministry.
 
-12. But I sent Tychicus to Ephesus.
+12 And Tychicus have I sent to Ephesus.
 
-13. Bring the cloak that I left at Troas with Carpus when you come, and the books, especially the parchments.
+13 The cloke that I left at Troas with Carpus, when thou comest, bring with thee, and the books, but especially the parchments.
 
-14. Alexander, the coppersmith, did much evil to me. The Lord will repay him according to his works,
+14 Alexander the coppersmith did me much evil: the Lord reward him according to his works:
 
-15. of whom you also must beware; for he greatly opposed our words.
+15 Of whom be thou ware also; for he hath greatly withstood our words.
 
-16. At my first defense, no one came to help me, but all left me. May it not be held against them.
+16 At my first answer no man stood with me, but all men forsook me: I pray God that it may not be laid to their charge.
 
-17. But the Lord stood by me, and strengthened me, that through me the message might be fully proclaimed, and that all the Gentiles might hear; and I was delivered out of the mouth of the lion.
+17 Notwithstanding the Lord stood with me, and strengthened me; that by me the preaching might be fully known, and that all the Gentiles might hear: and I was delivered out of the mouth of the lion.
 
-18. And the Lord will deliver me from every evil work, and will preserve me for his heavenly Kingdom; to whom be the glory forever and ever. Amen.
+18 And the Lord shall deliver me from every evil work, and will preserve me unto his heavenly kingdom: to whom be glory for ever and ever. Amen.
 
-19. Greet Prisca and Aquila, and the house of Onesiphorus.
+19 Salute Prisca and Aquila, and the household of Onesiphorus.
 
-20. Erastus remained at Corinth, but I left Trophimus at Miletus sick.
+20 Erastus abode at Corinth: but Trophimus have I left at Miletum sick.
 
-21. Be diligent to come before winter. Eubulus salutes you, as do Pudens, Linus, Claudia, and all the brothers.
+21 Do thy diligence to come before winter. Eubulus greeteth thee, and Pudens, and Linus, and Claudia, and all the brethren.
 
-22. The Lord Jesus Christ be with your spirit. Grace be with you. Amen.
+22 The Lord Jesus Christ be with thy spirit. Grace be with you. Amen.
 
+
+## eof

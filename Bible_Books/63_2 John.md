@@ -1,30 +1,31 @@
+
 # 2 John
 
-## Chapter 1
+1 The elder unto the elect lady and her children, whom I love in the truth; and not I only, but also all they that have known the truth;
 
-1. The elder, to the chosen lady and her children, whom I love in truth; and not I only, but also all those who know the truth;
+2 For the truth's sake, which dwelleth in us, and shall be with us for ever.
 
-2. for the truth's sake, which remains in us, and it will be with us forever:
+3 Grace be with you, mercy, and peace, from God the Father, and from the Lord Jesus Christ, the Son of the Father, in truth and love.
 
-3. Grace, mercy, and peace will be with us, from God the Father, and from the Lord Jesus Christ, the Son of the Father, in truth and love.
+4 I rejoiced greatly that I found of thy children walking in truth, as we have received a commandment from the Father.
 
-4. I rejoice greatly that I have found some of your children walking in truth, even as we have been commanded by the Father.
+5 And now I beseech thee, lady, not as though I wrote a new commandment unto thee, but that which we had from the beginning, that we love one another.
 
-5. Now I beg you, dear lady, not as though I wrote to you a new commandment, but that which we had from the beginning, that we love one another.
+6 And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it.
 
-6. This is love, that we should walk according to his commandments. This is the commandment, even as you heard from the beginning, that you should walk in it.
+7 For many deceivers are entered into the world, who confess not that Jesus Christ is come in the flesh. This is a deceiver and an antichrist.
 
-7. For many deceivers have gone out into the world, those who don't confess that Jesus Christ came in the flesh. This is the deceiver and the Antichrist.
+8 Look to yourselves, that we lose not those things which we have wrought, but that we receive a full reward.
 
-8. Watch yourselves, that we don't lose the things which we have accomplished, but that we receive a full reward.
+9 Whosoever transgresseth, and abideth not in the doctrine of Christ, hath not God. He that abideth in the doctrine of Christ, he hath both the Father and the Son.
 
-9. Whoever transgresses and doesn't remain in the teaching of Christ, doesn't have God. He who remains in the teaching, the same has both the Father and the Son.
+10 If there come any unto you, and bring not this doctrine, receive him not into your house, neither bid him God speed:
 
-10. If anyone comes to you, and doesn't bring this teaching, don't receive him into your house, and don't welcome him,
+11 For he that biddeth him God speed is partaker of his evil deeds.
 
-11. for he who welcomes him participates in his evil works.
+12 Having many things to write unto you, I would not write with paper and ink: but I trust to come unto you, and speak face to face, that our joy may be full.
 
-12. Having many things to write to you, I don't want to do so with paper and ink, but I hope to come to you, and to speak face to face, that our joy may be made full.
+13 The children of thy elect sister greet thee. Amen.
 
-13. The children of your chosen sister greet you. Amen.
 
+## eof

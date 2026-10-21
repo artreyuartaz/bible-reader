@@ -1,2227 +1,2230 @@
-# Matthew
 
-## Chapter 1
+# The Gospel According to Matthew
 
-1. The book of the genealogy of Jesus Christ, the son of David, the son of Abraham.
+## Matthew Chapter 1
 
-2. Abraham became the father of Isaac. Isaac became the father of Jacob. Jacob became the father of Judah and his brothers.
+1 The book of the generation of Jesus Christ, the son of David, the son of Abraham.
 
-3. Judah became the father of Perez and Zerah by Tamar. Perez became the father of Hezron. Hezron became the father of Ram.
+2 Abraham begat Isaac; and Isaac begat Jacob; and Jacob begat Judas and his brethren;
 
-4. Ram became the father of Amminadab. Amminadab became the father of Nahshon. Nahshon became the father of Salmon.
+3 And Judas begat Phares and Zara of Thamar; and Phares begat Esrom; and Esrom begat Aram;
 
-5. Salmon became the father of Boaz by Rahab. Boaz became the father of Obed by Ruth. Obed became the father of Jesse.
+4 And Aram begat Aminadab; and Aminadab begat Naasson; and Naasson begat Salmon;
 
-6. Jesse became the father of King David. David became the father of Solomon by her who had been the wife of Uriah.
+5 And Salmon begat Booz of Rachab; and Booz begat Obed of Ruth; and Obed begat Jesse;
 
-7. Solomon became the father of Rehoboam. Rehoboam became the father of Abijah. Abijah became the father of Asa.
+6 And Jesse begat David the king; and David the king begat Solomon of her that had been the wife of Urias;
 
-8. Asa became the father of Jehoshaphat. Jehoshaphat became the father of Joram. Joram became the father of Uzziah.
+7 And Solomon begat Roboam; and Roboam begat Abia; and Abia begat Asa;
 
-9. Uzziah became the father of Jotham. Jotham became the father of Ahaz. Ahaz became the father of Hezekiah.
+8 And Asa begat Josaphat; and Josaphat begat Joram; and Joram begat Ozias;
 
-10. Hezekiah became the father of Manasseh. Manasseh became the father of Amon. Amon became the father of Josiah.
+9 And Ozias begat Joatham; and Joatham begat Achaz; and Achaz begat Ezekias;
 
-11. Josiah became the father of Jechoniah and his brothers, at the time of the exile to Babylon.
+10 And Ezekias begat Manasses; and Manasses begat Amon; and Amon begat Josias;
 
-12. After the exile to Babylon, Jechoniah became the father of Shealtiel. Shealtiel became the father of Zerubbabel.
+11 And Josias begat Jechonias and his brethren, about the time they were carried away to Babylon:
 
-13. Zerubbabel became the father of Abiud. Abiud became the father of Eliakim. Eliakim became the father of Azor.
+12 And after they were brought to Babylon, Jechonias begat Salathiel; and Salathiel begat Zorobabel;
 
-14. Azor became the father of Sadoc. Sadoc became the father of Achim. Achim became the father of Eliud.
+13 And Zorobabel begat Abiud; and Abiud begat Eliakim; and Eliakim begat Azor;
 
-15. Eliud became the father of Eleazar. Eleazar became the father of Matthan. Matthan became the father of Jacob.
+14 And Azor begat Sadoc; and Sadoc begat Achim; and Achim begat Eliud;
 
-16. Jacob became the father of Joseph, the husband of Mary, from whom was born Jesus, who is called Christ.
+15 And Eliud begat Eleazar; and Eleazar begat Matthan; and Matthan begat Jacob;
 
-17. So all the generations from Abraham to David are fourteen generations; from David to the exile to Babylon fourteen generations; and from the carrying away to Babylon to the Christ, fourteen generations.
+16 And Jacob begat Joseph the husband of Mary, of whom was born Jesus, who is called Christ.
 
-18. Now the birth of Jesus Christ was like this; for after his mother, Mary, was engaged to Joseph, before they came together, she was found pregnant by the Holy Spirit.
+17 So all the generations from Abraham to David are fourteen generations; and from David until the carrying away into Babylon are fourteen generations; and from the carrying away into Babylon unto Christ are fourteen generations.
 
-19. Joseph, her husband, being a righteous man, and not willing to make her a public example, intended to put her away secretly.
+18 Now the birth of Jesus Christ was on this wise: When as his mother Mary was espoused to Joseph, before they came together, she was found with child of the Holy Ghost.
 
-20. But when he thought about these things, behold, an angel of the Lord appeared to him in a dream, saying, "Joseph, son of David, don't be afraid to take to yourself Mary, your wife, for that which is conceived in her is of the Holy Spirit.
+19 Then Joseph her husband, being a just man, and not willing to make her a public example, was minded to put her away privily.
 
-21. She shall bring forth a son. You shall call his name Jesus, for it is he who shall save his people from their sins."
+20 But while he thought on these things, behold, the angel of the Lord appeared unto him in a dream, saying, Joseph, thou son of David, fear not to take unto thee Mary thy wife: for that which is conceived in her is of the Holy Ghost.
 
-22. Now all this has happened, that it might be fulfilled which was spoken by the Lord through the prophet, saying,
+21 And she shall bring forth a son, and thou shalt call his name Jesus: for he shall save his people from their sins.
 
-23. "Behold, the virgin shall be with child,    and shall bring forth a son. They shall call his name Immanuel;"    which is, being interpreted, "God with us."
+22 Now all this was done, that it might be fulfilled which was spoken of the Lord by the prophet, saying,
 
-24. Joseph arose from his sleep, and did as the angel of the Lord commanded him, and took his wife to himself;
+23 Behold, a virgin shall be with child, and shall bring forth a son, and they shall call his name Emmanuel, which being interpreted is, God with us.
 
-25. and didn't know her sexually until she had brought forth her firstborn son. He named him Jesus.
+24 Then Joseph being raised from sleep did as the angel of the Lord had bidden him, and took unto him his wife:
 
+25 And knew her not till she had brought forth her firstborn son: and he called his name Jesus.
 
-## Chapter 2
 
-1. Now when Jesus was born in Bethlehem of Judea in the days of King Herod, behold, wise men from the east came to Jerusalem, saying,
+## Matthew Chapter 2
 
-2. "Where is he who is born King of the Jews? For we saw his star in the east, and have come to worship him."
+1 Now when Jesus was born in Bethlehem of Judaea in the days of Herod the king, behold, there came wise men from the east to Jerusalem,
 
-3. When King Herod heard it, he was troubled, and all Jerusalem with him.
+2 Saying, Where is he that is born King of the Jews? for we have seen his star in the east, and are come to worship him.
 
-4. Gathering together all the chief priests and scribes of the people, he asked them where the Christ would be born.
+3 When Herod the king had heard these things, he was troubled, and all Jerusalem with him.
 
-5. They said to him, "In Bethlehem of Judea, for this is written through the prophet,
+4 And when he had gathered all the chief priests and scribes of the people together, he demanded of them where Christ should be born.
 
-6. 'You Bethlehem, land of Judah,    are in no way least among the princes of Judah: for out of you shall come forth a governor,    who shall shepherd my people, Israel.'"
+5 And they said unto him, In Bethlehem of Judaea: for thus it is written by the prophet,
 
-7. Then Herod secretly called the wise men, and learned from them exactly what time the star appeared.
+6 And thou Bethlehem, in the land of Juda, art not the least among the princes of Juda: for out of thee shall come a Governor, that shall rule my people Israel.
 
-8. He sent them to Bethlehem, and said, "Go and search diligently for the young child. When you have found him, bring me word, so that I also may come and worship him."
+7 Then Herod, when he had privily called the wise men, enquired of them diligently what time the star appeared.
 
-9. They, having heard the king, went their way; and behold, the star, which they saw in the east, went before them, until it came and stood over where the young child was.
+8 And he sent them to Bethlehem, and said, Go and search diligently for the young child; and when ye have found him, bring me word again, that I may come and worship him also.
 
-10. When they saw the star, they rejoiced with exceedingly great joy.
+9 When they had heard the king, they departed; and, lo, the star, which they saw in the east, went before them, till it came and stood over where the young child was.
 
-11. They came into the house and saw the young child with Mary, his mother, and they fell down and worshiped him. Opening their treasures, they offered to him gifts: gold, frankincense, and myrrh.
+10 When they saw the star, they rejoiced with exceeding great joy.
 
-12. Being warned in a dream that they shouldn't return to Herod, they went back to their own country another way.
+11 And when they were come into the house, they saw the young child with Mary his mother, and fell down, and worshipped him: and when they had opened their treasures, they presented unto him gifts; gold, and frankincense and myrrh.
 
-13. Now when they had departed, behold, an angel of the Lord appeared to Joseph in a dream, saying, "Arise and take the young child and his mother, and flee into Egypt, and stay there until I tell you, for Herod will seek the young child to destroy him."
+12 And being warned of God in a dream that they should not return to Herod, they departed into their own country another way.
 
-14. He arose and took the young child and his mother by night, and departed into Egypt,
+13 And when they were departed, behold, the angel of the Lord appeareth to Joseph in a dream, saying, Arise, and take the young child and his mother, and flee into Egypt, and be thou there until I bring thee word: for Herod will seek the young child to destroy him.
 
-15. and was there until the death of Herod; that it might be fulfilled which was spoken by the Lord through the prophet, saying, "Out of Egypt I called my son."
+14 When he arose, he took the young child and his mother by night, and departed into Egypt:
 
-16. Then Herod, when he saw that he was mocked by the wise men, was exceedingly angry, and sent out, and killed all the male children who were in Bethlehem and in all the surrounding countryside, from two years old and under, according to the exact time which he had learned from the wise men.
+15 And was there until the death of Herod: that it might be fulfilled which was spoken of the Lord by the prophet, saying, Out of Egypt have I called my son.
 
-17. Then that which was spoken by Jeremiah the prophet was fulfilled, saying,
+16 Then Herod, when he saw that he was mocked of the wise men, was exceeding wroth, and sent forth, and slew all the children that were in Bethlehem, and in all the coasts thereof, from two years old and under, according to the time which he had diligently inquired of the wise men.
 
-18. "A voice was heard in Ramah,    lamentation, weeping and great mourning, Rachel weeping for her children;    she wouldn't be comforted,    because they are no more."
+17 Then was fulfilled that which was spoken by Jeremiah the prophet, saying,
 
-19. But when Herod was dead, behold, an angel of the Lord appeared in a dream to Joseph in Egypt, saying,
+18 In Rama was there a voice heard, lamentation, and weeping, and great mourning, Rachel weeping for her children, and would not be comforted, because they are not.
 
-20. "Arise and take the young child and his mother, and go into the land of Israel, for those who sought the young child's life are dead."
+19 But when Herod was dead, behold, an angel of the Lord appeareth in a dream to Joseph in Egypt,
 
-21. He arose and took the young child and his mother, and came into the land of Israel.
+20 Saying, Arise, and take the young child and his mother, and go into the land of Israel: for they are dead which sought the young child's life.
 
-22. But when he heard that Archelaus was reigning over Judea in the place of his father, Herod, he was afraid to go there. Being warned in a dream, he withdrew into the region of Galilee,
+21 And he arose, and took the young child and his mother, and came into the land of Israel.
 
-23. and came and lived in a city called Nazareth; that it might be fulfilled which was spoken through the prophets: "He will be called a Nazarene."
+22 But when he heard that Archelaus did reign in Judaea in the room of his father Herod, he was afraid to go thither: notwithstanding, being warned of God in a dream, he turned aside into the parts of Galilee:
 
+23 And he came and dwelt in a city called Nazareth: that it might be fulfilled which was spoken by the prophets, He shall be called a Nazarene.
 
-## Chapter 3
 
-1. In those days, John the Baptizer came, preaching in the wilderness of Judea, saying,
+## Matthew Chapter 3
 
-2. "Repent, for the Kingdom of Heaven is at hand!"
+1 In those days came John the Baptist, preaching in the wilderness of Judaea,
 
-3. For this is he who was spoken of by Isaiah the prophet, saying, "The voice of one crying in the wilderness,    make ready the way of the Lord.    Make his paths straight."
+2 And saying, Repent ye: for the kingdom of heaven is at hand.
 
-4. Now John himself wore clothing made of camel's hair, with a leather belt around his waist. His food was locusts and wild honey.
+3 For this is he that was spoken of by the prophet Esaias, saying, The voice of one crying in the wilderness, Prepare ye the way of the Lord, make his paths straight.
 
-5. Then people from Jerusalem, all of Judea, and all the region around the Jordan went out to him.
+4 And the same John had his raiment of camel's hair, and a leathern girdle about his loins; and his meat was locusts and wild honey.
 
-6. They were baptized by him in the Jordan, confessing their sins.
+5 Then went out to him Jerusalem, and all Judaea, and all the region round about Jordan,
 
-7. But when he saw many of the Pharisees and Sadducees coming for his baptism, he said to them, "You offspring of vipers, who warned you to flee from the wrath to come?
+6 And were baptized of him in Jordan, confessing their sins.
 
-8. Therefore bring forth fruit worthy of repentance!
+7 But when he saw many of the Pharisees and Sadducees come to his baptism, he said unto them, O generation of vipers, who hath warned you to flee from the wrath to come?
 
-9. Don't think to yourselves, 'We have Abraham for our father,' for I tell you that God is able to raise up children to Abraham from these stones.
+8 Bring forth therefore fruits meet for repentance:
 
-10. "Even now the axe lies at the root of the trees. Therefore, every tree that doesn't bring forth good fruit is cut down, and cast into the fire.
+9 And think not to say within yourselves, We have Abraham to our father: for I say unto you, that God is able of these stones to raise up children unto Abraham.
 
-11. I indeed baptize you in water for repentance, but he who comes after me is mightier than I, whose shoes I am not worthy to carry. He will baptize you in the Holy Spirit.
+10 And now also the axe is laid unto the root of the trees: therefore every tree which bringeth not forth good fruit is hewn down, and cast into the fire.
 
-12. His winnowing fork is in his hand, and he will thoroughly cleanse his threshing floor. He will gather his wheat into the barn, but the chaff he will burn up with unquenchable fire."
+11 I indeed baptize you with water unto repentance. but he that cometh after me is mightier than I, whose shoes I am not worthy to bear: he shall baptize you with the Holy Ghost, and with fire:
 
-13. Then Jesus came from Galilee to the Jordan to John, to be baptized by him.
+12 Whose fan is in his hand, and he will throughly purge his floor, and gather his wheat into the garner; but he will burn up the chaff with unquenchable fire.
 
-14. But John would have hindered him, saying, "I need to be baptized by you, and you come to me?"
+13 Then cometh Jesus from Galilee to Jordan unto John, to be baptized of him.
 
-15. But Jesus, answering, said to him, "Allow it now, for this is the fitting way for us to fulfill all righteousness." Then he allowed him.
+14 But John forbad him, saying, I have need to be baptized of thee, and comest thou to me?
 
-16. Jesus, when he was baptized, went up directly from the water: and behold, the heavens were opened to him. He saw the Spirit of God descending as a dove, and coming on him.
+15 And Jesus answering said unto him, Suffer it to be so now: for thus it becometh us to fulfil all righteousness. Then he suffered him.
 
-17. Behold, a voice out of the heavens said, "This is my beloved Son, with whom I am well pleased."
+16 And Jesus, when he was baptized, went up straightway out of the water: and, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him:
 
+17 And lo a voice from heaven, saying, This is my beloved Son, in whom I am well pleased.
 
-## Chapter 4
 
-1. Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil.
+## Matthew Chapter 4
 
-2. When he had fasted forty days and forty nights, he was hungry afterward.
+1 Then was Jesus led up of the Spirit into the wilderness to be tempted of the devil.
 
-3. The tempter came and said to him, "If you are the Son of God, command that these stones become bread."
+2 And when he had fasted forty days and forty nights, he was afterward an hungred.
 
-4. But he answered, "It is written, 'Man shall not live by bread alone, but by every word that proceeds out of the mouth of God.'"
+3 And when the tempter came to him, he said, If thou be the Son of God, command that these stones be made bread.
 
-5. Then the devil took him into the holy city. He set him on the pinnacle of the temple,
+4 But he answered and said, It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.
 
-6. and said to him, "If you are the Son of God, throw yourself down, for it is written, 'He will put his angels in charge of you.' and, 'On their hands they will bear you up,    so that you don't dash your foot against a stone.'"
+5 Then the devil taketh him up into the holy city, and setteth him on a pinnacle of the temple,
 
-7. Jesus said to him, "Again, it is written, 'You shall not test the Lord, your God.'"
+6 And saith unto him, If thou be the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and in their hands they shall bear thee up, lest at any time thou dash thy foot against a stone.
 
-8. Again, the devil took him to an exceedingly high mountain, and showed him all the kingdoms of the world, and their glory.
+7 Jesus said unto him, It is written again, Thou shalt not tempt the Lord thy God.
 
-9. He said to him, "I will give you all of these things, if you will fall down and worship me."
+8 Again, the devil taketh him up into an exceeding high mountain, and sheweth him all the kingdoms of the world, and the glory of them;
 
-10. Then Jesus said to him, "Get behind me, Satan! For it is written, 'You shall worship the Lord your God, and you shall serve him only.'"
+9 And saith unto him, All these things will I give thee, if thou wilt fall down and worship me.
 
-11. Then the devil left him, and behold, angels came and served him.
+10 Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
 
-12. Now when Jesus heard that John was delivered up, he withdrew into Galilee.
+11 Then the devil leaveth him, and, behold, angels came and ministered unto him.
 
-13. Leaving Nazareth, he came and lived in Capernaum, which is by the sea, in the region of Zebulun and Naphtali,
+12 Now when Jesus had heard that John was cast into prison, he departed into Galilee;
 
-14. that it might be fulfilled which was spoken through Isaiah the prophet, saying,
+13 And leaving Nazareth, he came and dwelt in Capernaum, which is upon the sea coast, in the borders of Zabulon and Nephthalim:
 
-15. "The land of Zebulun and the land of Naphtali,    toward the sea, beyond the Jordan,    Galilee of the Gentiles,
+14 That it might be fulfilled which was spoken by Esaias the prophet, saying,
 
-16. the people who sat in darkness saw a great light,    to those who sat in the region and shadow of death,    to them light has dawned."
+15 The land of Zabulon, and the land of Nephthalim, by the way of the sea, beyond Jordan, Galilee of the Gentiles;
 
-17. From that time, Jesus began to preach, and to say, "Repent! For the Kingdom of Heaven is at hand."
+16 The people which sat in darkness saw great light; and to them which sat in the region and shadow of death light is sprung up.
 
-18. Walking by the sea of Galilee, he saw two brothers: Simon, who is called Peter, and Andrew, his brother, casting a net into the sea; for they were fishermen.
+17 From that time Jesus began to preach, and to say, Repent: for the kingdom of heaven is at hand.
 
-19. He said to them, "Come after me, and I will make you fishers for men."
+18 And Jesus, walking by the sea of Galilee, saw two brethren, Simon called Peter, and Andrew his brother, casting a net into the sea: for they were fishers.
 
-20. They immediately left their nets and followed him.
+19 And he saith unto them, Follow me, and I will make you fishers of men.
 
-21. Going on from there, he saw two other brothers, James the son of Zebedee, and John his brother, in the boat with Zebedee their father, mending their nets. He called them.
+20 And they straightway left their nets, and followed him.
 
-22. They immediately left the boat and their father, and followed him.
+21 And going on from thence, he saw other two brethren, James the son of Zebedee, and John his brother, in a ship with Zebedee their father, mending their nets; and he called them.
 
-23. Jesus went about in all Galilee, teaching in their synagogues, preaching the Good News of the Kingdom, and healing every disease and every sickness among the people.
+22 And they immediately left the ship and their father, and followed him.
 
-24. The report about him went out into all Syria. They brought to him all who were sick, afflicted with various diseases and torments, possessed with demons, epileptics, and paralytics; and he healed them.
+23 And Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of sickness and all manner of disease among the people.
 
-25. Great multitudes from Galilee, Decapolis, Jerusalem, Judea and from beyond the Jordan followed him.
+24 And his fame went throughout all Syria: and they brought unto him all sick people that were taken with divers diseases and torments, and those which were possessed with devils, and those which were lunatick, and those that had the palsy; and he healed them.
 
+25 And there followed him great multitudes of people from Galilee, and from Decapolis, and from Jerusalem, and from Judaea, and from beyond Jordan.
 
-## Chapter 5
 
-1. Seeing the multitudes, he went up onto the mountain. When he had sat down, his disciples came to him.
+## Matthew Chapter 5
 
-2. He opened his mouth and taught them, saying,
+1 And seeing the multitudes, he went up into a mountain: and when he was set, his disciples came unto him:
 
-3. "Blessed are the poor in spirit,    for theirs is the Kingdom of Heaven.
+2 And he opened his mouth, and taught them, saying,
 
-4. Blessed are those who mourn,    for they shall be comforted.
+3 Blessed are the poor in spirit: for theirs is the kingdom of heaven.
 
-5. Blessed are the gentle,    for they shall inherit the earth.
+4 Blessed are they that mourn: for they shall be comforted.
 
-6. Blessed are those who hunger and thirst after righteousness,    for they shall be filled.
+5 Blessed are the meek: for they shall inherit the earth.
 
-7. Blessed are the merciful,    for they shall obtain mercy.
+6 Blessed are they which do hunger and thirst after righteousness: for they shall be filled.
 
-8. Blessed are the pure in heart,    for they shall see God.
+7 Blessed are the merciful: for they shall obtain mercy.
 
-9. Blessed are the peacemakers,    for they shall be called children of God.
+8 Blessed are the pure in heart: for they shall see God.
 
-10. Blessed are those who have been persecuted for righteousness'       sake,    for theirs is the Kingdom of Heaven.
+9 Blessed are the peacemakers: for they shall be called the children of God.
 
-11. "Blessed are you when people reproach you, persecute you, and say all kinds of evil against you falsely, for my sake.
+10 Blessed are they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven.
 
-12. Rejoice, and be exceedingly glad, for great is your reward in heaven. For that is how they persecuted the prophets who were before you.
+11 Blessed are ye, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for my sake.
 
-13. "You are the salt of the earth, but if the salt has lost its flavor, with what will it be salted? It is then good for nothing, but to be cast out and trodden under the feet of men.
+12 Rejoice, and be exceeding glad: for great is your reward in heaven: for so persecuted they the prophets which were before you.
 
-14. You are the light of the world. A city located on a hill can't be hidden.
+13 Ye are the salt of the earth: but if the salt have lost his savour, wherewith shall it be salted? it is thenceforth good for nothing, but to be cast out, and to be trodden under foot of men.
 
-15. Neither do you light a lamp, and put it under a measuring basket, but on a stand; and it shines to all who are in the house.
+14 Ye are the light of the world. A city that is set on an hill cannot be hid.
 
-16. Even so, let your light shine before men; that they may see your good works, and glorify your Father who is in heaven.
+15 Neither do men light a candle, and put it under a bushel, but on a candlestick; and it giveth light unto all that are in the house.
 
-17. "Don't think that I came to destroy the law or the prophets. I didn't come to destroy, but to fulfill.
+16 Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.
 
-18. For most certainly, I tell you, until heaven and earth pass away, not even one smallest letter or one tiny pen stroke shall in any way pass away from the law, until all things are accomplished.
+17 Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.
 
-19. Whoever, therefore, shall break one of these least commandments, and teach others to do so, shall be called least in the Kingdom of Heaven; but whoever shall do and teach them shall be called great in the Kingdom of Heaven.
+18 For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled.
 
-20. For I tell you that unless your righteousness exceeds that of the scribes and Pharisees, there is no way you will enter into the Kingdom of Heaven.
+19 Whosoever therefore shall break one of these least commandments, and shall teach men so, he shall be called the least in the kingdom of heaven: but whosoever shall do and teach them, the same shall be called great in the kingdom of heaven.
 
-21. "You have heard that it was said to the ancient ones, 'You shall not murder;' and 'Whoever shall murder shall be in danger of the judgment.'
+20 For I say unto you, That except your righteousness shall exceed the righteousness of the scribes and Pharisees, ye shall in no case enter into the kingdom of heaven.
 
-22. But I tell you, that everyone who is angry with his brother without a cause shall be in danger of the judgment; and whoever shall say to his brother, 'Raca!' shall be in danger of the council; and whoever shall say, 'You fool!' shall be in danger of the fire of Gehenna.
+21 Ye have heard that it was said of them of old time, Thou shalt not kill; and whosoever shall kill shall be in danger of the judgment:
 
-23. "If therefore you are offering your gift at the altar, and there remember that your brother has anything against you,
+22 But I say unto you, That whosoever is angry with his brother without a cause shall be in danger of the judgment: and whosoever shall say to his brother, Raca, shall be in danger of the council: but whosoever shall say, Thou fool, shall be in danger of hell fire.
 
-24. leave your gift there before the altar, and go your way. First be reconciled to your brother, and then come and offer your gift.
+23 Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;
 
-25. Agree with your adversary quickly, while you are with him in the way; lest perhaps the prosecutor deliver you to the judge, and the judge deliver you to the officer, and you be cast into prison.
+24 Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.
 
-26. Most certainly I tell you, you shall by no means get out of there, until you have paid the last penny.
+25 Agree with thine adversary quickly, whiles thou art in the way with him; lest at any time the adversary deliver thee to the judge, and the judge deliver thee to the officer, and thou be cast into prison.
 
-27. "You have heard that it was said,  'You shall not commit adultery;'
+26 Verily I say unto thee, Thou shalt by no means come out thence, till thou hast paid the uttermost farthing.
 
-28. but I tell you that everyone who gazes at a woman to lust after her has committed adultery with her already in his heart.
+27 Ye have heard that it was said by them of old time, Thou shalt not commit adultery:
 
-29. If your right eye causes you to stumble, pluck it out and throw it away from you. For it is more profitable for you that one of your members should perish, than for your whole body to be cast into Gehenna.
+28 But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.
 
-30. If your right hand causes you to stumble, cut it off, and throw it away from you. For it is more profitable for you that one of your members should perish, than for your whole body to be cast into Gehenna.
+29 And if thy right eye offend thee, pluck it out, and cast it from thee: for it is profitable for thee that one of thy members should perish, and not that thy whole body should be cast into hell.
 
-31. "It was also said, 'Whoever shall put away his wife, let him give her a writing of divorce,'
+30 And if thy right hand offend thee, cut it off, and cast it from thee: for it is profitable for thee that one of thy members should perish, and not that thy whole body should be cast into hell.
 
-32. but I tell you that whoever puts away his wife, except for the cause of sexual immorality, makes her an adulteress; and whoever marries her when she is put away commits adultery.
+31 It hath been said, Whosoever shall put away his wife, let him give her a writing of divorcement:
 
-33. "Again you have heard that it was said to them of old time, 'You shall not make false vows, but shall perform to the Lord your vows,'
+32 But I say unto you, That whosoever shall put away his wife, saving for the cause of fornication, causeth her to commit adultery: and whosoever shall marry her that is divorced committeth adultery.
 
-34. but I tell you, don't swear at all: neither by heaven, for it is the throne of God;
+33 Again, ye have heard that it hath been said by them of old time, Thou shalt not forswear thyself, but shalt perform unto the Lord thine oaths:
 
-35. nor by the earth, for it is the footstool of his feet; nor by Jerusalem, for it is the city of the great King.
+34 But I say unto you, Swear not at all; neither by heaven; for it is God's throne:
 
-36. Neither shall you swear by your head, for you can't make one hair white or black.
+35 Nor by the earth; for it is his footstool: neither by Jerusalem; for it is the city of the great King.
 
-37. But let your 'Yes' be 'Yes' and your 'No' be 'No.' Whatever is more than these is of the evil one.
+36 Neither shalt thou swear by thy head, because thou canst not make one hair white or black.
 
-38. "You have heard that it was said, 'An eye for an eye, and a tooth for a tooth.'
+37 But let your communication be, Yea, yea; Nay, nay: for whatsoever is more than these cometh of evil.
 
-39. But I tell you, don't resist him who is evil; but whoever strikes you on your right cheek, turn to him the other also.
+38 Ye have heard that it hath been said, An eye for an eye, and a tooth for a tooth:
 
-40. If anyone sues you to take away your coat, let him have your cloak also.
+39 But I say unto you, That ye resist not evil: but whosoever shall smite thee on thy right cheek, turn to him the other also.
 
-41. Whoever compels you to go one mile, go with him two.
+40 And if any man will sue thee at the law, and take away thy coat, let him have thy cloak also.
 
-42. Give to him who asks you, and don't turn away him who desires to borrow from you.
+41 And whosoever shall compel thee to go a mile, go with him twain.
 
-43. "You have heard that it was said, 'You shall love your neighbor, and hate your enemy.'
+42 Give to him that asketh thee, and from him that would borrow of thee turn not thou away.
 
-44. But I tell you, love your enemies, bless those who curse you, do good to those who hate you, and pray for those who mistreat you and persecute you,
+43 Ye have heard that it hath been said, Thou shalt love thy neighbour, and hate thine enemy.
 
-45. that you may be children of your Father who is in heaven. For he makes his sun to rise on the evil and the good, and sends rain on the just and the unjust.
+44 But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you;
 
-46. For if you love those who love you, what reward do you have? Don't even the tax collectors do the same?
+45 That ye may be the children of your Father which is in heaven: for he maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.
 
-47. If you only greet your friends, what more do you do than others? Don't even the tax collectors do the same?
+46 For if ye love them which love you, what reward have ye? do not even the publicans the same?
 
-48. Therefore you shall be perfect, just as your Father in heaven is perfect.
+47 And if ye salute your brethren only, what do ye more than others? do not even the publicans so?
 
+48 Be ye therefore perfect, even as your Father which is in heaven is perfect.
 
-## Chapter 6
 
-1. "Be careful that you don't do your charitable giving before men, to be seen by them, or else you have no reward from your Father who is in heaven.
+## Matthew Chapter 6
 
-2. Therefore when you do merciful deeds, don't sound a trumpet before yourself, as the hypocrites do in the synagogues and in the streets, that they may get glory from men. Most certainly I tell you, they have received their reward.
+1 Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven.
 
-3. But when you do merciful deeds, don't let your left hand know what your right hand does,
+2 Therefore when thou doest thine alms, do not sound a trumpet before thee, as the hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, They have their reward.
 
-4. so that your merciful deeds may be in secret, then your Father who sees in secret will reward you openly.
+3 But when thou doest alms, let not thy left hand know what thy right hand doeth:
 
-5. "When you pray, you shall not be as the hypocrites, for they love to stand and pray in the synagogues and in the corners of the streets, that they may be seen by men. Most certainly, I tell you, they have received their reward.
+4 That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.
 
-6. But you, when you pray, enter into your inner chamber, and having shut your door, pray to your Father who is in secret, and your Father who sees in secret will reward you openly.
+5 And when thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. Verily I say unto you, They have their reward.
 
-7. In praying, don't use vain repetitions, as the Gentiles do; for they think that they will be heard for their much speaking.
+6 But thou, when thou prayest, enter into thy closet, and when thou hast shut thy door, pray to thy Father which is in secret; and thy Father which seeth in secret shall reward thee openly.
 
-8. Therefore don't be like them, for your Father knows what things you need, before you ask him.
+7 But when ye pray, use not vain repetitions, as the heathen do: for they think that they shall be heard for their much speaking.
 
-9. Pray like this: 'Our Father in heaven, may your name be kept holy.
+8 Be not ye therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.
 
-10. Let your Kingdom come. Let your will be done, as in heaven, so on earth.
+9 After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.
 
-11. Give us today our daily bread.
+10 Thy kingdom come, Thy will be done in earth, as it is in heaven.
 
-12. Forgive us our debts, as we also forgive our debtors.
+11 Give us this day our daily bread.
 
-13. Bring us not into temptation, but deliver us from the evil one. For yours is the Kingdom, the power, and the glory forever. Amen.'
+12 And forgive us our debts, as we forgive our debtors.
 
-14. "For if you forgive men their trespasses, your heavenly Father will also forgive you.
+13 And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.
 
-15. But if you don't forgive men their trespasses, neither will your Father forgive your trespasses.
+14 For if ye forgive men their trespasses, your heavenly Father will also forgive you:
 
-16. "Moreover when you fast, don't be like the hypocrites, with sad faces. For they disfigure their faces, that they may be seen by men to be fasting. Most certainly I tell you, they have received their reward.
+15 But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.
 
-17. But you, when you fast, anoint your head, and wash your face;
+16 Moreover when ye fast, be not, as the hypocrites, of a sad countenance: for they disfigure their faces, that they may appear unto men to fast. Verily I say unto you, They have their reward.
 
-18. so that you are not seen by men to be fasting, but by your Father who is in secret, and your Father, who sees in secret, will reward you.
+17 But thou, when thou fastest, anoint thine head, and wash thy face;
 
-19. "Don't lay up treasures for yourselves on the earth, where moth and rust consume, and where thieves break through and steal;
+18 That thou appear not unto men to fast, but unto thy Father which is in secret: and thy Father, which seeth in secret, shall reward thee openly.
 
-20. but lay up for yourselves treasures in heaven, where neither moth nor rust consume, and where thieves don't break through and steal;
+19 Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal:
 
-21. for where your treasure is, there your heart will be also.
+20 But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal:
 
-22. "The lamp of the body is the eye. If therefore your eye is sound, your whole body will be full of light.
+21 For where your treasure is, there will your heart be also.
 
-23. But if your eye is evil, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great is the darkness!
+22 The light of the body is the eye: if therefore thine eye be single, thy whole body shall be full of light.
 
-24. "No one can serve two masters, for either he will hate the one and love the other; or else he will be devoted to one and despise the other. You can't serve both God and Mammon.
+23 But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great is that darkness!
 
-25. Therefore, I tell you, don't be anxious for your life: what you will eat, or what you will drink; nor yet for your body, what you will wear. Isn't life more than food, and the body more than clothing?
+24 No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.
 
-26. See the birds of the sky, that they don't sow, neither do they reap, nor gather into barns. Your heavenly Father feeds them. Aren't you of much more value than they?
+25 Therefore I say unto you, Take no thought for your life, what ye shall eat, or what ye shall drink; nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment?
 
-27. "Which of you, by being anxious, can add one moment to his lifespan?
+26 Behold the fowls of the air: for they sow not, neither do they reap, nor gather into barns; yet your heavenly Father feedeth them. Are ye not much better than they?
 
-28. Why are you anxious about clothing? Consider the lilies of the field, how they grow. They don't toil, neither do they spin,
+27 Which of you by taking thought can add one cubit unto his stature?
 
-29. yet I tell you that even Solomon in all his glory was not dressed like one of these.
+28 And why take ye thought for raiment? Consider the lilies of the field, how they grow; they toil not, neither do they spin:
 
-30. But if God so clothes the grass of the field, which today exists, and tomorrow is thrown into the oven, won't he much more clothe you, you of little faith?
+29 And yet I say unto you, That even Solomon in all his glory was not arrayed like one of these.
 
-31. "Therefore don't be anxious, saying, 'What will we eat?', 'What will we drink?' or, 'With what will we be clothed?'
+30 Wherefore, if God so clothe the grass of the field, which to day is, and to morrow is cast into the oven, shall he not much more clothe you, O ye of little faith?
 
-32. For the Gentiles seek after all these things, for your heavenly Father knows that you need all these things.
+31 Therefore take no thought, saying, What shall we eat? or, What shall we drink? or, Wherewithal shall we be clothed?
 
-33. But seek first God's Kingdom, and his righteousness; and all these things will be given to you as well.
+32 (For after all these things do the Gentiles seek:) for your heavenly Father knoweth that ye have need of all these things.
 
-34. Therefore don't be anxious for tomorrow, for tomorrow will be anxious for itself. Each day's own evil is sufficient.
+33 But seek ye first the kingdom of God, and his righteousness; and all these things shall be added unto you.
 
+34 Take therefore no thought for the morrow: for the morrow shall take thought for the things of itself. Sufficient unto the day is the evil thereof.
 
-## Chapter 7
 
-1. "Don't judge, so that you won't be judged.
+## Matthew Chapter 7
 
-2. For with whatever judgment you judge, you will be judged; and with whatever measure you measure, it will be measured to you.
+1 Judge not, that ye be not judged.
 
-3. Why do you see the speck that is in your brother's eye, but don't consider the beam that is in your own eye?
+2 For with what judgment ye judge, ye shall be judged: and with what measure ye mete, it shall be measured to you again.
 
-4. Or how will you tell your brother, 'Let me remove the speck from your eye;' and behold, the beam is in your own eye?
+3 And why beholdest thou the mote that is in thy brother's eye, but considerest not the beam that is in thine own eye?
 
-5. You hypocrite! First remove the beam out of your own eye, and then you can see clearly to remove the speck out of your brother's eye.
+4 Or how wilt thou say to thy brother, Let me pull out the mote out of thine eye; and, behold, a beam is in thine own eye?
 
-6. "Don't give that which is holy to the dogs, neither throw your pearls before the pigs, lest perhaps they trample them under their feet, and turn and tear you to pieces.
+5 Thou hypocrite, first cast out the beam out of thine own eye; and then shalt thou see clearly to cast out the mote out of thy brother's eye.
 
-7. "Ask, and it will be given you. Seek, and you will find. Knock, and it will be opened for you.
+6 Give not that which is holy unto the dogs, neither cast ye your pearls before swine, lest they trample them under their feet, and turn again and rend you.
 
-8. For everyone who asks receives. He who seeks finds. To him who knocks it will be opened.
+7 Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:
 
-9. Or who is there among you, who, if his son asks him for bread, will give him a stone?
+8 For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened.
 
-10. Or if he asks for a fish, who will give him a serpent?
+9 Or what man is there of you, whom if his son ask bread, will he give him a stone?
 
-11. If you then, being evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask him!
+10 Or if he ask a fish, will he give him a serpent?
 
-12. Therefore whatever you desire for men to do to you, you shall also do to them; for this is the law and the prophets.
+11 If ye then, being evil, know how to give good gifts unto your children, how much more shall your Father which is in heaven give good things to them that ask him?
 
-13. "Enter in by the narrow gate; for wide is the gate and broad is the way that leads to destruction, and many are those who enter in by it.
+12 Therefore all things whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.
 
-14. How narrow is the gate, and restricted is the way that leads to life! Few are those who find it.
+13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
 
-15. "Beware of false prophets, who come to you in sheep's clothing, but inwardly are ravening wolves.
+14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
 
-16. By their fruits you will know them. Do you gather grapes from thorns, or figs from thistles?
+15 Beware of false prophets, which come to you in sheep's clothing, but inwardly they are ravening wolves.
 
-17. Even so, every good tree produces good fruit; but the corrupt tree produces evil fruit.
+16 Ye shall know them by their fruits. Do men gather grapes of thorns, or figs of thistles?
 
-18. A good tree can't produce evil fruit, neither can a corrupt tree produce good fruit.
+17 Even so every good tree bringeth forth good fruit; but a corrupt tree bringeth forth evil fruit.
 
-19. Every tree that doesn't grow good fruit is cut down, and thrown into the fire.
+18 A good tree cannot bring forth evil fruit, neither can a corrupt tree bring forth good fruit.
 
-20. Therefore, by their fruits you will know them.
+19 Every tree that bringeth not forth good fruit is hewn down, and cast into the fire.
 
-21. Not everyone who says to me, 'Lord, Lord,' will enter into the Kingdom of Heaven; but he who does the will of my Father who is in heaven.
+20 Wherefore by their fruits ye shall know them.
 
-22. Many will tell me in that day, 'Lord, Lord, didn't we prophesy in your name, in your name cast out demons, and in your name do many mighty works?'
+21 Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.
 
-23. Then I will tell them, 'I never knew you. Depart from me, you who work iniquity.'
+22 Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works?
 
-24. "Everyone therefore who hears these words of mine, and does them, I will liken him to a wise man, who built his house on a rock.
+23 And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.
 
-25. The rain came down, the floods came, and the winds blew, and beat on that house; and it didn't fall, for it was founded on the rock.
+24 Therefore whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock:
 
-26. Everyone who hears these words of mine, and doesn't do them will be like a foolish man, who built his house on the sand.
+25 And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock.
 
-27. The rain came down, the floods came, and the winds blew, and beat on that house; and it fell--and great was its fall."
+26 And every one that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man, which built his house upon the sand:
 
-28. It happened, when Jesus had finished saying these things, that the multitudes were astonished at his teaching,
+27 And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.
 
-29. for he taught them with authority, and not like the scribes.
+28 And it came to pass, when Jesus had ended these sayings, the people were astonished at his doctrine:
 
+29 For he taught them as one having authority, and not as the scribes.
 
-## Chapter 8
 
-1. When he came down from the mountain, great multitudes followed him.
+## Matthew Chapter 8
 
-2. Behold, a leper came to him and worshiped him, saying, "Lord, if you want to, you can make me clean."
+1 When he was come down from the mountain, great multitudes followed him.
 
-3. Jesus stretched out his hand, and touched him, saying, "I want to. Be made clean." Immediately his leprosy was cleansed.
+2 And, behold, there came a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean.
 
-4. Jesus said to him, "See that you tell nobody, but go, show yourself to the priest, and offer the gift that Moses commanded, as a testimony to them."
+3 And Jesus put forth his hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.
 
-5. When he came into Capernaum, a centurion came to him, asking him,
+4 And Jesus saith unto him, See thou tell no man; but go thy way, shew thyself to the priest, and offer the gift that Moses commanded, for a testimony unto them.
 
-6. and saying, "Lord, my servant lies in the house paralyzed, grievously tormented."
+5 And when Jesus was entered into Capernaum, there came unto him a centurion, beseeching him,
 
-7. Jesus said to him, "I will come and heal him."
+6 And saying, Lord, my servant lieth at home sick of the palsy, grievously tormented.
 
-8. The centurion answered, "Lord, I'm not worthy for you to come under my roof. Just say the word, and my servant will be healed.
+7 And Jesus saith unto him, I will come and heal him.
 
-9. For I am also a man under authority, having under myself soldiers. I tell this one, 'Go,' and he goes; and tell another, 'Come,' and he comes; and tell my servant, 'Do this,' and he does it."
+8 The centurion answered and said, Lord, I am not worthy that thou shouldest come under my roof: but speak the word only, and my servant shall be healed.
 
-10. When Jesus heard it, he marveled, and said to those who followed, "Most certainly I tell you, I haven't found so great a faith, not even in Israel.
+9 For I am a man under authority, having soldiers under me: and I say to this man, Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth it.
 
-11. I tell you that many will come from the east and the west, and will sit down with Abraham, Isaac, and Jacob in the Kingdom of Heaven,
+10 When Jesus heard it, he marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel.
 
-12. but the children of the Kingdom will be thrown out into the outer darkness. There will be weeping and gnashing of teeth."
+11 And I say unto you, That many shall come from the east and west, and shall sit down with Abraham, and Isaac, and Jacob, in the kingdom of heaven.
 
-13. Jesus said to the centurion, "Go your way. Let it be done for you as you have believed." His servant was healed in that hour.
+12 But the children of the kingdom shall be cast out into outer darkness: there shall be weeping and gnashing of teeth.
 
-14. When Jesus came into Peter's house, he saw his wife's mother lying sick with a fever.
+13 And Jesus said unto the centurion, Go thy way; and as thou hast believed, so be it done unto thee. And his servant was healed in the selfsame hour.
 
-15. He touched her hand, and the fever left her. She got up and served him.
+14 And when Jesus was come into Peter's house, he saw his wife's mother laid, and sick of a fever.
 
-16. When evening came, they brought to him many possessed with demons. He cast out the spirits with a word, and healed all who were sick;
+15 And he touched her hand, and the fever left her: and she arose, and ministered unto them.
 
-17. that it might be fulfilled which was spoken through Isaiah the prophet, saying: "He took our infirmities, and bore our diseases."
+16 When the even was come, they brought unto him many that were possessed with devils: and he cast out the spirits with his word, and healed all that were sick:
 
-18. Now when Jesus saw great multitudes around him, he gave the order to depart to the other side.
+17 That it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare our sicknesses.
 
-19. A scribe came, and said to him, "Teacher, I will follow you wherever you go."
+18 Now when Jesus saw great multitudes about him, he gave commandment to depart unto the other side.
 
-20. Jesus said to him, "The foxes have holes, and the birds of the sky have nests, but the Son of Man has nowhere to lay his head."
+19 And a certain scribe came, and said unto him, Master, I will follow thee whithersoever thou goest.
 
-21. Another of his disciples said to him, "Lord, allow me first to go and bury my father."
+20 And Jesus saith unto him, The foxes have holes, and the birds of the air have nests; but the Son of man hath not where to lay his head.
 
-22. But Jesus said to him, "Follow me, and leave the dead to bury their own dead."
+21 And another of his disciples said unto him, Lord, suffer me first to go and bury my father.
 
-23. When he got into a boat, his disciples followed him.
+22 But Jesus said unto him, Follow me; and let the dead bury their dead.
 
-24. Behold, a violent storm came up on the sea, so much that the boat was covered with the waves, but he was asleep.
+23 And when he was entered into a ship, his disciples followed him.
 
-25. They came to him, and woke him up, saying, "Save us, Lord! We are dying!"
+24 And, behold, there arose a great tempest in the sea, insomuch that the ship was covered with the waves: but he was asleep.
 
-26. He said to them, "Why are you fearful, O you of little faith?" Then he got up, rebuked the wind and the sea, and there was a great calm.
+25 And his disciples came to him, and awoke him, saying, Lord, save us: we perish.
 
-27. The men marveled, saying, "What kind of man is this, that even the wind and the sea obey him?"
+26 And he saith unto them, Why are ye fearful, O ye of little faith? Then he arose, and rebuked the winds and the sea; and there was a great calm.
 
-28. When he came to the other side, into the country of the Gergesenes, two people possessed by demons met him there, coming out of the tombs, exceedingly fierce, so that nobody could pass that way.
+27 But the men marvelled, saying, What manner of man is this, that even the winds and the sea obey him!
 
-29. Behold, they cried out, saying, "What do we have to do with you, Jesus, Son of God? Have you come here to torment us before the time?"
+28 And when he was come to the other side into the country of the Gergesenes, there met him two possessed with devils, coming out of the tombs, exceeding fierce, so that no man might pass by that way.
 
-30. Now there was a herd of many pigs feeding far away from them.
+29 And, behold, they cried out, saying, What have we to do with thee, Jesus, thou Son of God? art thou come hither to torment us before the time?
 
-31. The demons begged him, saying, "If you cast us out, permit us to go away into the herd of pigs."
+30 And there was a good way off from them an herd of many swine feeding.
 
-32. He said to them, "Go!"     They came out, and went into the herd of pigs: and behold, the whole herd of pigs rushed down the cliff into the sea, and died in the water.
+31 So the devils besought him, saying, If thou cast us out, suffer us to go away into the herd of swine.
 
-33. Those who fed them fled, and went away into the city, and told everything, including what happened to those who were possessed with demons.
+32 And he said unto them, Go. And when they were come out, they went into the herd of swine: and, behold, the whole herd of swine ran violently down a steep place into the sea, and perished in the waters.
 
-34. Behold, all the city came out to meet Jesus. When they saw him, they begged that he would depart from their borders.
+33 And they that kept them fled, and went their ways into the city, and told every thing, and what was befallen to the possessed of the devils.
 
+34 And, behold, the whole city came out to meet Jesus: and when they saw him, they besought him that he would depart out of their coasts.
 
-## Chapter 9
 
-1. He entered into a boat, and crossed over, and came into his own city.
+## Matthew Chapter 9
 
-2. Behold, they brought to him a man who was paralyzed, lying on a bed. Jesus, seeing their faith, said to the paralytic, "Son, cheer up! Your sins are forgiven you."
+1 And he entered into a ship, and passed over, and came into his own city.
 
-3. Behold, some of the scribes said to themselves, "This man blasphemes."
+2 And, behold, they brought to him a man sick of the palsy, lying on a bed: and Jesus seeing their faith said unto the sick of the palsy; Son, be of good cheer; thy sins be forgiven thee.
 
-4. Jesus, knowing their thoughts, said, "Why do you think evil in your hearts?
+3 And, behold, certain of the scribes said within themselves, This man blasphemeth.
 
-5. For which is easier, to say, 'Your sins are forgiven;' or to say, 'Get up, and walk?'
+4 And Jesus knowing their thoughts said, Wherefore think ye evil in your hearts?
 
-6. But that you may know that the Son of Man has authority on earth to forgive sins..." (then he said to the paralytic), "Get up, and take up your mat, and go up to your house."
+5 For whether is easier, to say, Thy sins be forgiven thee; or to say, Arise, and walk?
 
-7. He arose and departed to his house.
+6 But that ye may know that the Son of man hath power on earth to forgive sins, (then saith he to the sick of the palsy,) Arise, take up thy bed, and go unto thine house.
 
-8. But when the multitudes saw it, they marveled and glorified God, who had given such authority to men.
+7 And he arose, and departed to his house.
 
-9. As Jesus passed by from there, he saw a man called Matthew sitting at the tax collection office. He said to him, "Follow me." He got up and followed him.
+8 But when the multitudes saw it, they marvelled, and glorified God, which had given such power unto men.
 
-10. It happened as he sat in the house, behold, many tax collectors and sinners came and sat down with Jesus and his disciples.
+9 And as Jesus passed forth from thence, he saw a man, named Matthew, sitting at the receipt of custom: and he saith unto him, Follow me. And he arose, and followed him.
 
-11. When the Pharisees saw it, they said to his disciples, "Why does your teacher eat with tax collectors and sinners?"
+10 And it came to pass, as Jesus sat at meat in the house, behold, many publicans and sinners came and sat down with him and his disciples.
 
-12. When Jesus heard it, he said to them, "Those who are healthy have no need for a physician, but those who are sick do.
+11 And when the Pharisees saw it, they said unto his disciples, Why eateth your Master with publicans and sinners?
 
-13. But you go and learn what this means: 'I desire mercy, and not sacrifice,' for I came not to call the righteous, but sinners to repentance."
+12 But when Jesus heard that, he said unto them, They that be whole need not a physician, but they that are sick.
 
-14. Then John's disciples came to him, saying, "Why do we and the Pharisees fast often, but your disciples don't fast?"
+13 But go ye and learn what that meaneth, I will have mercy, and not sacrifice: for I am not come to call the righteous, but sinners to repentance.
 
-15. Jesus said to them, "Can the friends of the bridegroom mourn, as long as the bridegroom is with them? But the days will come when the bridegroom will be taken away from them, and then they will fast.
+14 Then came to him the disciples of John, saying, Why do we and the Pharisees fast oft, but thy disciples fast not?
 
-16. No one puts a piece of unshrunk cloth on an old garment; for the patch would tear away from the garment, and a worse hole is made.
+15 And Jesus said unto them, Can the children of the bridechamber mourn, as long as the bridegroom is with them? but the days will come, when the bridegroom shall be taken from them, and then shall they fast.
 
-17. Neither do people put new wine into old wineskins, or else the skins would burst, and the wine be spilled, and the skins ruined. No, they put new wine into fresh wineskins, and both are preserved."
+16 No man putteth a piece of new cloth unto an old garment, for that which is put in to fill it up taketh from the garment, and the rent is made worse.
 
-18. While he told these things to them, behold, a ruler came and worshiped him, saying, "My daughter has just died, but come and lay your hand on her, and she will live."
+17 Neither do men put new wine into old bottles: else the bottles break, and the wine runneth out, and the bottles perish: but they put new wine into new bottles, and both are preserved.
 
-19. Jesus got up and followed him, as did his disciples.
+18 While he spake these things unto them, behold, there came a certain ruler, and worshipped him, saying, My daughter is even now dead: but come and lay thy hand upon her, and she shall live.
 
-20. Behold, a woman who had an issue of blood for twelve years came behind him, and touched the fringe of his garment;
+19 And Jesus arose, and followed him, and so did his disciples.
 
-21. for she said within herself, "If I just touch his garment, I will be made well."
+20 And, behold, a woman, which was diseased with an issue of blood twelve years, came behind him, and touched the hem of his garment:
 
-22. But Jesus, turning around and seeing her, said, "Daughter, cheer up! Your faith has made you well." And the woman was made well from that hour.
+21 For she said within herself, If I may but touch his garment, I shall be whole.
 
-23. When Jesus came into the ruler's house, and saw the flute players, and the crowd in noisy disorder,
+22 But Jesus turned him about, and when he saw her, he said, Daughter, be of good comfort; thy faith hath made thee whole. And the woman was made whole from that hour.
 
-24. he said to them, "Make room, because the girl isn't dead, but sleeping."     They were ridiculing him.
+23 And when Jesus came into the ruler's house, and saw the minstrels and the people making a noise,
 
-25. But when the crowd was put out, he entered in, took her by the hand, and the girl arose.
+24 He said unto them, Give place: for the maid is not dead, but sleepeth. And they laughed him to scorn.
 
-26. The report of this went out into all that land.
+25 But when the people were put forth, he went in, and took her by the hand, and the maid arose.
 
-27. As Jesus passed by from there, two blind men followed him, calling out and saying, "Have mercy on us, son of David!"
+26 And the fame hereof went abroad into all that land.
 
-28. When he had come into the house, the blind men came to him. Jesus said to them, "Do you believe that I am able to do this?"     They told him, "Yes, Lord."
+27 And when Jesus departed thence, two blind men followed him, crying, and saying, Thou son of David, have mercy on us.
 
-29. Then he touched their eyes, saying, "According to your faith be it done to you."
+28 And when he was come into the house, the blind men came to him: and Jesus saith unto them, Believe ye that I am able to do this? They said unto him, Yea, Lord.
 
-30. Their eyes were opened. Jesus strictly commanded them, saying, "See that no one knows about this."
+29 Then touched he their eyes, saying, According to your faith be it unto you.
 
-31. But they went out and spread abroad his fame in all that land.
+30 And their eyes were opened; and Jesus straitly charged them, saying, See that no man know it.
 
-32. As they went out, behold, a mute man who was demon possessed was brought to him.
+31 But they, when they were departed, spread abroad his fame in all that country.
 
-33. When the demon was cast out, the mute man spoke. The multitudes marveled, saying, "Nothing like this has ever been seen in Israel!"
+32 As they went out, behold, they brought to him a dumb man possessed with a devil.
 
-34. But the Pharisees said, "By the prince of the demons, he casts out demons."
+33 And when the devil was cast out, the dumb spake: and the multitudes marvelled, saying, It was never so seen in Israel.
 
-35. Jesus went about all the cities and the villages, teaching in their synagogues, and preaching the Good News of the Kingdom, and healing every disease and every sickness among the people.
+34 But the Pharisees said, He casteth out devils through the prince of the devils.
 
-36. But when he saw the multitudes, he was moved with compassion for them, because they were harassed and scattered, like sheep without a shepherd.
+35 And Jesus went about all the cities and villages, teaching in their synagogues, and preaching the gospel of the kingdom, and healing every sickness and every disease among the people.
 
-37. Then he said to his disciples, "The harvest indeed is plentiful, but the laborers are few.
+36 But when he saw the multitudes, he was moved with compassion on them, because they fainted, and were scattered abroad, as sheep having no shepherd.
 
-38. Pray therefore that the Lord of the harvest will send out laborers into his harvest."
+37 Then saith he unto his disciples, The harvest truly is plenteous, but the labourers are few;
 
+38 Pray ye therefore the Lord of the harvest, that he will send forth labourers into his harvest.
 
-## Chapter 10
 
-1. He called to himself his twelve disciples, and gave them authority over unclean spirits, to cast them out, and to heal every disease and every sickness.
+## Matthew Chapter 10
 
-2. Now the names of the twelve apostles are these. The first, Simon, who is called Peter; Andrew, his brother; James the son of Zebedee; John, his brother;
+1 And when he had called unto him his twelve disciples, he gave them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease.
 
-3. Philip; Bartholomew; Thomas; Matthew the tax collector; James the son of Alphaeus; Lebbaeus, whose surname was Thaddaeus;
+2 Now the names of the twelve apostles are these; The first, Simon, who is called Peter, and Andrew his brother; James the son of Zebedee, and John his brother;
 
-4. Simon the Canaanite; and Judas Iscariot, who also betrayed him.
+3 Philip, and Bartholomew; Thomas, and Matthew the publican; James the son of Alphaeus, and Lebbaeus, whose surname was Thaddaeus;
 
-5. Jesus sent these twelve out, and commanded them, saying, "Don't go among the Gentiles, and don't enter into any city of the Samaritans.
+4 Simon the Canaanite, and Judas Iscariot, who also betrayed him.
 
-6. Rather, go to the lost sheep of the house of Israel.
+5 These twelve Jesus sent forth, and commanded them, saying, Go not into the way of the Gentiles, and into any city of the Samaritans enter ye not:
 
-7. As you go, preach, saying, 'The Kingdom of Heaven is at hand!'
+6 But go rather to the lost sheep of the house of Israel.
 
-8. Heal the sick, cleanse the lepers, and cast out demons. Freely you received, so freely give.
+7 And as ye go, preach, saying, The kingdom of heaven is at hand.
 
-9. Don't take any gold, nor silver, nor brass in your money belts.
+8 Heal the sick, cleanse the lepers, raise the dead, cast out devils: freely ye have received, freely give.
 
-10. Take no bag for your journey, neither two coats, nor shoes, nor staff: for the laborer is worthy of his food.
+9 Provide neither gold, nor silver, nor brass in your purses,
 
-11. Into whatever city or village you enter, find out who in it is worthy; and stay there until you go on.
+10 Nor scrip for your journey, neither two coats, neither shoes, nor yet staves: for the workman is worthy of his meat.
 
-12. As you enter into the household, greet it.
+11 And into whatsoever city or town ye shall enter, enquire who in it is worthy; and there abide till ye go thence.
 
-13. If the household is worthy, let your peace come on it, but if it isn't worthy, let your peace return to you.
+12 And when ye come into an house, salute it.
 
-14. Whoever doesn't receive you, nor hear your words, as you go out of that house or that city, shake off the dust from your feet.
+13 And if the house be worthy, let your peace come upon it: but if it be not worthy, let your peace return to you.
 
-15. Most certainly I tell you, it will be more tolerable for the land of Sodom and Gomorrah in the day of judgment than for that city.
+14 And whosoever shall not receive you, nor hear your words, when ye depart out of that house or city, shake off the dust of your feet.
 
-16. "Behold, I send you out as sheep in the midst of wolves. Therefore be wise as serpents, and harmless as doves.
+15 Verily I say unto you, It shall be more tolerable for the land of Sodom and Gomorrha in the day of judgment, than for that city.
 
-17. But beware of men: for they will deliver you up to councils, and in their synagogues they will scourge you.
+16 Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves.
 
-18. Yes, and you will be brought before governors and kings for my sake, for a testimony to them and to the nations.
+17 But beware of men: for they will deliver you up to the councils, and they will scourge you in their synagogues;
 
-19. But when they deliver you up, don't be anxious how or what you will say, for it will be given you in that hour what you will say.
+18 And ye shall be brought before governors and kings for my sake, for a testimony against them and the Gentiles.
 
-20. For it is not you who speak, but the Spirit of your Father who speaks in you.
+19 But when they deliver you up, take no thought how or what ye shall speak: for it shall be given you in that same hour what ye shall speak.
 
-21. "Brother will deliver up brother to death, and the father his child. Children will rise up against parents, and cause them to be put to death.
+20 For it is not ye that speak, but the Spirit of your Father which speaketh in you.
 
-22. You will be hated by all men for my name's sake, but he who endures to the end will be saved.
+21 And the brother shall deliver up the brother to death, and the father the child: and the children shall rise up against their parents, and cause them to be put to death.
 
-23. But when they persecute you in this city, flee into the next, for most certainly I tell you, you will not have gone through the cities of Israel, until the Son of Man has come.
+22 And ye shall be hated of all men for my name's sake: but he that endureth to the end shall be saved.
 
-24. "A disciple is not above his teacher, nor a servant above his lord.
+23 But when they persecute you in this city, flee ye into another: for verily I say unto you, Ye shall not have gone over the cities of Israel, till the Son of man be come.
 
-25. It is enough for the disciple that he be like his teacher, and the servant like his lord. If they have called the master of the house Beelzebul, how much more those of his household!
+24 The disciple is not above his master, nor the servant above his lord.
 
-26. Therefore don't be afraid of them, for there is nothing covered that will not be revealed; and hidden that will not be known.
+25 It is enough for the disciple that he be as his master, and the servant as his lord. If they have called the master of the house Beelzebub, how much more shall they call them of his household?
 
-27. What I tell you in the darkness, speak in the light; and what you hear whispered in the ear, proclaim on the housetops.
+26 Fear them not therefore: for there is nothing covered, that shall not be revealed; and hid, that shall not be known.
 
-28. Don't be afraid of those who kill the body, but are not able to kill the soul. Rather, fear him who is able to destroy both soul and body in Gehenna.
+27 What I tell you in darkness, that speak ye in light: and what ye hear in the ear, that preach ye upon the housetops.
 
-29. "Aren't two sparrows sold for an assarion coin? Not one of them falls on the ground apart from your Father's will,
+28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able to destroy both soul and body in hell.
 
-30. but the very hairs of your head are all numbered.
+29 Are not two sparrows sold for a farthing? and one of them shall not fall on the ground without your Father.
 
-31. Therefore don't be afraid. You are of more value than many sparrows.
+30 But the very hairs of your head are all numbered.
 
-32. Everyone therefore who confesses me before men, him I will also confess before my Father who is in heaven.
+31 Fear ye not therefore, ye are of more value than many sparrows.
 
-33. But whoever denies me before men, him I will also deny before my Father who is in heaven.
+32 Whosoever therefore shall confess me before men, him will I confess also before my Father which is in heaven.
 
-34. "Don't think that I came to send peace on the earth. I didn't come to send peace, but a sword.
+33 But whosoever shall deny me before men, him will I also deny before my Father which is in heaven.
 
-35. For I came to set a man at odds against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law.
+34 Think not that I am come to send peace on earth: I came not to send peace, but a sword.
 
-36. A man's foes will be those of his own household.
+35 For I am come to set a man at variance against his father, and the daughter against her mother, and the daughter in law against her mother in law.
 
-37. He who loves father or mother more than me is not worthy of me; and he who loves son or daughter more than me isn't worthy of me.
+36 And a man's foes shall be they of his own household.
 
-38. He who doesn't take his cross and follow after me, isn't worthy of me.
+37 He that loveth father or mother more than me is not worthy of me: and he that loveth son or daughter more than me is not worthy of me.
 
-39. He who seeks his life will lose it; and he who loses his life for my sake will find it.
+38 And he that taketh not his cross, and followeth after me, is not worthy of me.
 
-40. He who receives you receives me, and he who receives me receives him who sent me.
+39 He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.
 
-41. He who receives a prophet in the name of a prophet will receive a prophet's reward. He who receives a righteous man in the name of a righteous man will receive a righteous man's reward.
+40 He that receiveth you receiveth me, and he that receiveth me receiveth him that sent me.
 
-42. Whoever gives one of these little ones just a cup of cold water to drink in the name of a disciple, most certainly I tell you he will in no way lose his reward."
+41 He that receiveth a prophet in the name of a prophet shall receive a prophet's reward; and he that receiveth a righteous man in the name of a righteous man shall receive a righteous man's reward.
 
+42 And whosoever shall give to drink unto one of these little ones a cup of cold water only in the name of a disciple, verily I say unto you, he shall in no wise lose his reward.
 
-## Chapter 11
 
-1. It happened that when Jesus had finished directing his twelve disciples, he departed from there to teach and preach in their cities.
+## Matthew Chapter 11
 
-2. Now when John heard in the prison the works of Christ, he sent two of his disciples
+1 And it came to pass, when Jesus had made an end of commanding his twelve disciples, he departed thence to teach and to preach in their cities.
 
-3. and said to him, "Are you he who comes, or should we look for another?"
+2 Now when John had heard in the prison the works of Christ, he sent two of his disciples,
 
-4. Jesus answered them, "Go and tell John the things which you hear and see:
+3 And said unto him, Art thou he that should come, or do we look for another?
 
-5. the blind receive their sight, the lame walk, the lepers are cleansed, the deaf hear, the dead are raised up, and the poor have good news preached to them.
+4 Jesus answered and said unto them, Go and shew John again those things which ye do hear and see:
 
-6. Blessed is he who finds no occasion for stumbling in me."
+5 The blind receive their sight, and the lame walk, the lepers are cleansed, and the deaf hear, the dead are raised up, and the poor have the gospel preached to them.
 
-7. As these went their way, Jesus began to say to the multitudes concerning John, "What did you go out into the wilderness to see? A reed shaken by the wind?
+6 And blessed is he, whosoever shall not be offended in me.
 
-8. But what did you go out to see? A man in soft clothing? Behold, those who wear soft clothing are in king's houses.
+7 And as they departed, Jesus began to say unto the multitudes concerning John, What went ye out into the wilderness to see? A reed shaken with the wind?
 
-9. But why did you go out? To see a prophet? Yes, I tell you, and much more than a prophet.
+8 But what went ye out for to see? A man clothed in soft raiment? behold, they that wear soft clothing are in kings' houses.
 
-10. For this is he, of whom it is written, 'Behold, I send my messenger before your face, who will prepare your way before you.'
+9 But what went ye out for to see? A prophet? yea, I say unto you, and more than a prophet.
 
-11. Most certainly I tell you, among those who are born of women there has not arisen anyone greater than John the Baptizer; yet he who is least in the Kingdom of Heaven is greater than he.
+10 For this is he, of whom it is written, Behold, I send my messenger before thy face, which shall prepare thy way before thee.
 
-12. From the days of John the Baptizer until now, the Kingdom of Heaven suffers violence, and the violent take it by force.
+11 Verily I say unto you, Among them that are born of women there hath not risen a greater than John the Baptist: notwithstanding he that is least in the kingdom of heaven is greater than he.
 
-13. For all the prophets and the law prophesied until John.
+12 And from the days of John the Baptist until now the kingdom of heaven suffereth violence, and the violent take it by force.
 
-14. If you are willing to receive it, this is Elijah, who is to come.
+13 For all the prophets and the law prophesied until John.
 
-15. He who has ears to hear, let him hear.
+14 And if ye will receive it, this is Elias, which was for to come.
 
-16. "But to what shall I compare this generation? It is like children sitting in the marketplaces, who call to their companions
+15 He that hath ears to hear, let him hear.
 
-17. and say, 'We played the flute for you, and you didn't dance. We mourned for you, and you didn't lament.'
+16 But whereunto shall I liken this generation? It is like unto children sitting in the markets, and calling unto their fellows,
 
-18. For John came neither eating nor drinking, and they say, 'He has a demon.'
+17 And saying, We have piped unto you, and ye have not danced; we have mourned unto you, and ye have not lamented.
 
-19. The Son of Man came eating and drinking, and they say, 'Behold, a gluttonous man and a drunkard, a friend of tax collectors and sinners!' But wisdom is justified by her children."
+18 For John came neither eating nor drinking, and they say, He hath a devil.
 
-20. Then he began to denounce the cities in which most of his mighty works had been done, because they didn't repent.
+19 The Son of man came eating and drinking, and they say, Behold a man gluttonous, and a winebibber, a friend of publicans and sinners. But wisdom is justified of her children.
 
-21. "Woe to you, Chorazin! Woe to you, Bethsaida! For if the mighty works had been done in Tyre and Sidon which were done in you, they would have repented long ago in sackcloth and ashes.
+20 Then began he to upbraid the cities wherein most of his mighty works were done, because they repented not:
 
-22. But I tell you, it will be more tolerable for Tyre and Sidon on the day of judgment than for you.
+21 Woe unto thee, Chorazin! woe unto thee, Bethsaida! for if the mighty works, which were done in you, had been done in Tyre and Sidon, they would have repented long ago in sackcloth and ashes.
 
-23. You, Capernaum, who are exalted to heaven, you will go down to Hades. For if the mighty works had been done in Sodom which were done in you, it would have remained until this day.
+22 But I say unto you, It shall be more tolerable for Tyre and Sidon at the day of judgment, than for you.
 
-24. But I tell you that it will be more tolerable for the land of Sodom, on the day of judgment, than for you."
+23 And thou, Capernaum, which art exalted unto heaven, shalt be brought down to hell: for if the mighty works, which have been done in thee, had been done in Sodom, it would have remained until this day.
 
-25. At that time, Jesus answered, "I thank you, Father, Lord of heaven and earth, that you hid these things from the wise and understanding, and revealed them to infants.
+24 But I say unto you, That it shall be more tolerable for the land of Sodom in the day of judgment, than for thee.
 
-26. Yes, Father, for so it was well-pleasing in your sight.
+25 At that time Jesus answered and said, I thank thee, O Father, Lord of heaven and earth, because thou hast hid these things from the wise and prudent, and hast revealed them unto babes.
 
-27. All things have been delivered to me by my Father. No one knows the Son, except the Father; neither does anyone know the Father, except the Son, and he to whom the Son desires to reveal him.
+26 Even so, Father: for so it seemed good in thy sight.
 
-28. "Come to me, all you who labor and are heavily burdened, and I will give you rest.
+27 All things are delivered unto me of my Father: and no man knoweth the Son, but the Father; neither knoweth any man the Father, save the Son, and he to whomsoever the Son will reveal him.
 
-29. Take my yoke upon you, and learn from me, for I am gentle and lowly in heart; and you will find rest for your souls.
+28 Come unto me, all ye that labour and are heavy laden, and I will give you rest.
 
-30. For my yoke is easy, and my burden is light."
+29 Take my yoke upon you, and learn of me; for I am meek and lowly in heart: and ye shall find rest unto your souls.
 
+30 For my yoke is easy, and my burden is light.
 
-## Chapter 12
 
-1. At that time, Jesus went on the Sabbath day through the grain fields. His disciples were hungry and began to pluck heads of grain and to eat.
+## Matthew Chapter 12
 
-2. But the Pharisees, when they saw it, said to him, "Behold, your disciples do what is not lawful to do on the Sabbath."
+1 At that time Jesus went on the sabbath day through the corn; and his disciples were an hungred, and began to pluck the ears of corn and to eat.
 
-3. But he said to them, "Haven't you read what David did, when he was hungry, and those who were with him;
+2 But when the Pharisees saw it, they said unto him, Behold, thy disciples do that which is not lawful to do upon the sabbath day.
 
-4. how he entered into the house of God, and ate the show bread, which was not lawful for him to eat, neither for those who were with him, but only for the priests?
+3 But he said unto them, Have ye not read what David did, when he was an hungred, and they that were with him;
 
-5. Or have you not read in the law, that on the Sabbath day, the priests in the temple profane the Sabbath, and are guiltless?
+4 How he entered into the house of God, and did eat the shewbread, which was not lawful for him to eat, neither for them which were with him, but only for the priests?
 
-6. But I tell you that one greater than the temple is here.
+5 Or have ye not read in the law, how that on the sabbath days the priests in the temple profane the sabbath, and are blameless?
 
-7. But if you had known what this means, 'I desire mercy, and not sacrifice,' you would not have condemned the guiltless.
+6 But I say unto you, That in this place is one greater than the temple.
 
-8. For the Son of Man is Lord of the Sabbath."
+7 But if ye had known what this meaneth, I will have mercy, and not sacrifice, ye would not have condemned the guiltless.
 
-9. He departed there, and went into their synagogue.
+8 For the Son of man is Lord even of the sabbath day.
 
-10. And behold there was a man with a withered hand. They asked him, "Is it lawful to heal on the Sabbath day?" that they might accuse him.
+9 And when he was departed thence, he went into their synagogue:
 
-11. He said to them, "What man is there among you, who has one sheep, and if this one falls into a pit on the Sabbath day, won't he grab on to it, and lift it out?
+10 And, behold, there was a man which had his hand withered. And they asked him, saying, Is it lawful to heal on the sabbath days? that they might accuse him.
 
-12. Of how much more value then is a man than a sheep! Therefore it is lawful to do good on the Sabbath day."
+11 And he said unto them, What man shall there be among you, that shall have one sheep, and if it fall into a pit on the sabbath day, will he not lay hold on it, and lift it out?
 
-13. Then he told the man, "Stretch out your hand." He stretched it out; and it was restored whole, just like the other.
+12 How much then is a man better than a sheep? Wherefore it is lawful to do well on the sabbath days.
 
-14. But the Pharisees went out, and conspired against him, how they might destroy him.
+13 Then saith he to the man, Stretch forth thine hand. And he stretched it forth; and it was restored whole, like as the other.
 
-15. Jesus, perceiving that, withdrew from there. Great multitudes followed him; and he healed them all,
+14 Then the Pharisees went out, and held a council against him, how they might destroy him.
 
-16. and commanded them that they should not make him known:
+15 But when Jesus knew it, he withdrew himself from thence: and great multitudes followed him, and he healed them all;
 
-17. that it might be fulfilled which was spoken through Isaiah the prophet, saying,
+16 And charged them that they should not make him known:
 
-18. "Behold, my servant whom I have chosen;    my beloved in whom my soul is well pleased: I will put my Spirit on him.    He will proclaim justice to the nations.
+17 That it might be fulfilled which was spoken by Esaias the prophet, saying,
 
-19. He will not strive, nor shout;    neither will anyone hear his voice in the streets.
+18 Behold my servant, whom I have chosen; my beloved, in whom my soul is well pleased: I will put my spirit upon him, and he shall shew judgment to the Gentiles.
 
-20. He won't break a bruised reed.    He won't quench a smoking flax, until he leads justice to victory.
+19 He shall not strive, nor cry; neither shall any man hear his voice in the streets.
 
-21. In his name, the nations will hope."
+20 A bruised reed shall he not break, and smoking flax shall he not quench, till he send forth judgment unto victory.
 
-22. Then one possessed by a demon, blind and mute, was brought to him and he healed him, so that the blind and mute man both spoke and saw.
+21 And in his name shall the Gentiles trust.
 
-23. All the multitudes were amazed, and said, "Can this be the son of David?"
+22 Then was brought unto him one possessed with a devil, blind, and dumb: and he healed him, insomuch that the blind and dumb both spake and saw.
 
-24. But when the Pharisees heard it, they said, "This man does not cast out demons, except by Beelzebul, the prince of the demons."
+23 And all the people were amazed, and said, Is not this the son of David?
 
-25. Knowing their thoughts, Jesus said to them, "Every kingdom divided against itself is brought to desolation, and every city or house divided against itself will not stand.
+24 But when the Pharisees heard it, they said, This fellow doth not cast out devils, but by Beelzebub the prince of the devils.
 
-26. If Satan casts out Satan, he is divided against himself. How then will his kingdom stand?
+25 And Jesus knew their thoughts, and said unto them, Every kingdom divided against itself is brought to desolation; and every city or house divided against itself shall not stand:
 
-27. If I by Beelzebul cast out demons, by whom do your children cast them out? Therefore they will be your judges.
+26 And if Satan cast out Satan, he is divided against himself; how shall then his kingdom stand?
 
-28. But if I by the Spirit of God cast out demons, then the Kingdom of God has come upon you.
+27 And if I by Beelzebub cast out devils, by whom do your children cast them out? therefore they shall be your judges.
 
-29. Or how can one enter into the house of the strong man, and plunder his goods, unless he first bind the strong man? Then he will plunder his house.
+28 But if I cast out devils by the Spirit of God, then the kingdom of God is come unto you.
 
-30. "He who is not with me is against me, and he who doesn't gather with me, scatters.
+29 Or else how can one enter into a strong man's house, and spoil his goods, except he first bind the strong man? and then he will spoil his house.
 
-31. Therefore I tell you, every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven men.
+30 He that is not with me is against me; and he that gathereth not with me scattereth abroad.
 
-32. Whoever speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, neither in this age, nor in that which is to come.
+31 Wherefore I say unto you, All manner of sin and blasphemy shall be forgiven unto men: but the blasphemy against the Holy Ghost shall not be forgiven unto men.
 
-33. "Either make the tree good, and its fruit good, or make the tree corrupt, and its fruit corrupt; for the tree is known by its fruit.
+32 And whosoever speaketh a word against the Son of man, it shall be forgiven him: but whosoever speaketh against the Holy Ghost, it shall not be forgiven him, neither in this world, neither in the world to come.
 
-34. You offspring of vipers, how can you, being evil, speak good things? For out of the abundance of the heart, the mouth speaks.
+33 Either make the tree good, and his fruit good; or else make the tree corrupt, and his fruit corrupt: for the tree is known by his fruit.
 
-35. The good man out of his good treasure brings out good things, and the evil man out of his evil treasure brings out evil things.
+34 O generation of vipers, how can ye, being evil, speak good things? for out of the abundance of the heart the mouth speaketh.
 
-36. I tell you that every idle word that men speak, they will give account of it in the day of judgment.
+35 A good man out of the good treasure of the heart bringeth forth good things: and an evil man out of the evil treasure bringeth forth evil things.
 
-37. For by your words you will be justified, and by your words you will be condemned."
+36 But I say unto you, That every idle word that men shall speak, they shall give account thereof in the day of judgment.
 
-38. Then certain of the scribes and Pharisees answered, "Teacher, we want to see a sign from you."
+37 For by thy words thou shalt be justified, and by thy words thou shalt be condemned.
 
-39. But he answered them, "An evil and adulterous generation seeks after a sign, but no sign will be given it but the sign of Jonah the prophet.
+38 Then certain of the scribes and of the Pharisees answered, saying, Master, we would see a sign from thee.
 
-40. For as Jonah was three days and three nights in the belly of the whale, so will the Son of Man be three days and three nights in the heart of the earth.
+39 But he answered and said unto them, An evil and adulterous generation seeketh after a sign; and there shall no sign be given to it, but the sign of the prophet Jonas:
 
-41. The men of Nineveh will stand up in the judgment with this generation, and will condemn it, for they repented at the preaching of Jonah; and behold, someone greater than Jonah is here.
+40 For as Jonas was three days and three nights in the whale's belly; so shall the Son of man be three days and three nights in the heart of the earth.
 
-42. The queen of the south will rise up in the judgment with this generation, and will condemn it, for she came from the ends of the earth to hear the wisdom of Solomon; and behold, someone greater than Solomon is here.
+41 The men of Nineveh shall rise in judgment with this generation, and shall condemn it: because they repented at the preaching of Jonas; and, behold, a greater than Jonas is here.
 
-43. But the unclean spirit, when he is gone out of the man, passes through waterless places, seeking rest, and doesn't find it.
+42 The queen of the south shall rise up in the judgment with this generation, and shall condemn it: for she came from the uttermost parts of the earth to hear the wisdom of Solomon; and, behold, a greater than Solomon is here.
 
-44. Then he says, 'I will return into my house from which I came out,' and when he has come back, he finds it empty, swept, and put in order.
+43 When the unclean spirit is gone out of a man, he walketh through dry places, seeking rest, and findeth none.
 
-45. Then he goes, and takes with himself seven other spirits more evil than he is, and they enter in and dwell there. The last state of that man becomes worse than the first. Even so will it be also to this evil generation."
+44 Then he saith, I will return into my house from whence I came out; and when he is come, he findeth it empty, swept, and garnished.
 
-46. While he was yet speaking to the multitudes, behold, his mother and his brothers stood outside, seeking to speak to him.
+45 Then goeth he, and taketh with himself seven other spirits more wicked than himself, and they enter in and dwell there: and the last state of that man is worse than the first. Even so shall it be also unto this wicked generation.
 
-47. One said to him, "Behold, your mother and your brothers stand outside, seeking to speak to you."
+46 While he yet talked to the people, behold, his mother and his brethren stood without, desiring to speak with him.
 
-48. But he answered him who spoke to him, "Who is my mother? Who are my brothers?"
+47 Then one said unto him, Behold, thy mother and thy brethren stand without, desiring to speak with thee.
 
-49. He stretched out his hand towards his disciples, and said, "Behold, my mother and my brothers!
+48 But he answered and said unto him that told him, Who is my mother? and who are my brethren?
 
-50. For whoever does the will of my Father who is in heaven, he is my brother, and sister, and mother."
+49 And he stretched forth his hand toward his disciples, and said, Behold my mother and my brethren!
 
+50 For whosoever shall do the will of my Father which is in heaven, the same is my brother, and sister, and mother.
 
-## Chapter 13
 
-1. On that day Jesus went out of the house, and sat by the seaside.
+## Matthew Chapter 13
 
-2. Great multitudes gathered to him, so that he entered into a boat, and sat, and all the multitude stood on the beach.
+1 The same day went Jesus out of the house, and sat by the sea side.
 
-3. He spoke to them many things in parables, saying, "Behold, a farmer went out to sow.
+2 And great multitudes were gathered together unto him, so that he went into a ship, and sat; and the whole multitude stood on the shore.
 
-4. As he sowed, some seeds fell by the roadside, and the birds came and devoured them.
+3 And he spake many things unto them in parables, saying, Behold, a sower went forth to sow;
 
-5. Others fell on rocky ground, where they didn't have much soil, and immediately they sprang up, because they had no depth of earth.
+4 And when he sowed, some seeds fell by the way side, and the fowls came and devoured them up:
 
-6. When the sun had risen, they were scorched. Because they had no root, they withered away.
+5 Some fell upon stony places, where they had not much earth: and forthwith they sprung up, because they had no deepness of earth:
 
-7. Others fell among thorns. The thorns grew up and choked them.
+6 And when the sun was up, they were scorched; and because they had no root, they withered away.
 
-8. Others fell on good soil, and yielded fruit: some one hundred times as much, some sixty, and some thirty.
+7 And some fell among thorns; and the thorns sprung up, and choked them:
 
-9. He who has ears to hear, let him hear."
+8 But other fell into good ground, and brought forth fruit, some an hundredfold, some sixtyfold, some thirtyfold.
 
-10. The disciples came, and said to him, "Why do you speak to them in parables?"
+9 Who hath ears to hear, let him hear.
 
-11. He answered them, "To you it is given to know the mysteries of the Kingdom of Heaven, but it is not given to them.
+10 And the disciples came, and said unto him, Why speakest thou unto them in parables?
 
-12. For whoever has, to him will be given, and he will have abundance, but whoever doesn't have, from him will be taken away even that which he has.
+11 He answered and said unto them, Because it is given unto you to know the mysteries of the kingdom of heaven, but to them it is not given.
 
-13. Therefore I speak to them in parables, because seeing they don't see, and hearing, they don't hear, neither do they understand.
+12 For whosoever hath, to him shall be given, and he shall have more abundance: but whosoever hath not, from him shall be taken away even that he hath.
 
-14. In them the prophecy of Isaiah is fulfilled, which says, 'By hearing you will hear,    and will in no way understand; Seeing you will see,    and will in no way perceive:
+13 Therefore speak I to them in parables: because they seeing see not; and hearing they hear not, neither do they understand.
 
-15. for this people's heart has grown callous,    their ears are dull of hearing,    they have closed their eyes; or else perhaps they might perceive with their eyes,    hear with their ears,    understand with their heart, and should turn again;    and I would heal them.'
+14 And in them is fulfilled the prophecy of Esaias, which saith, By hearing ye shall hear, and shall not understand; and seeing ye shall see, and shall not perceive:
 
-16. "But blessed are your eyes, for they see; and your ears, for they hear.
+15 For this people's heart is waxed gross, and their ears are dull of hearing, and their eyes they have closed; lest at any time they should see with their eyes and hear with their ears, and should understand with their heart, and should be converted, and I should heal them.
 
-17. For most certainly I tell you that many prophets and righteous men desired to see the things which you see, and didn't see them; and to hear the things which you hear, and didn't hear them.
+16 But blessed are your eyes, for they see: and your ears, for they hear.
 
-18. "Hear, then, the parable of the farmer.
+17 For verily I say unto you, That many prophets and righteous men have desired to see those things which ye see, and have not seen them; and to hear those things which ye hear, and have not heard them.
 
-19. When anyone hears the word of the Kingdom, and doesn't understand it, the evil one comes, and snatches away that which has been sown in his heart. This is what was sown by the roadside.
+18 Hear ye therefore the parable of the sower.
 
-20. What was sown on the rocky places, this is he who hears the word, and immediately with joy receives it;
+19 When any one heareth the word of the kingdom, and understandeth it not, then cometh the wicked one, and catcheth away that which was sown in his heart. This is he which received seed by the way side.
 
-21. yet he has no root in himself, but endures for a while. When oppression or persecution arises because of the word, immediately he stumbles.
+20 But he that received the seed into stony places, the same is he that heareth the word, and anon with joy receiveth it;
 
-22. What was sown among the thorns, this is he who hears the word, but the cares of this age and the deceitfulness of riches choke the word, and he becomes unfruitful.
+21 Yet hath he not root in himself, but dureth for a while: for when tribulation or persecution ariseth because of the word, by and by he is offended.
 
-23. What was sown on the good ground, this is he who hears the word, and understands it, who most certainly bears fruit, and brings forth, some one hundred times as much, some sixty, and some thirty."
+22 He also that received seed among the thorns is he that heareth the word; and the care of this world, and the deceitfulness of riches, choke the word, and he becometh unfruitful.
 
-24. He set another parable before them, saying, "The Kingdom of Heaven is like a man who sowed good seed in his field,
+23 But he that received seed into the good ground is he that heareth the word, and understandeth it; which also beareth fruit, and bringeth forth, some an hundredfold, some sixty, some thirty.
 
-25. but while people slept, his enemy came and sowed darnel weeds also among the wheat, and went away.
+24 Another parable put he forth unto them, saying, The kingdom of heaven is likened unto a man which sowed good seed in his field:
 
-26. But when the blade sprang up and brought forth fruit, then the darnel weeds appeared also.
+25 But while men slept, his enemy came and sowed tares among the wheat, and went his way.
 
-27. The servants of the householder came and said to him, 'Sir, didn't you sow good seed in your field? Where did this darnel come from?'
+26 But when the blade was sprung up, and brought forth fruit, then appeared the tares also.
 
-28. "He said to them, 'An enemy has done this.'     "The servants asked him, 'Do you want us to go and gather them up?'
+27 So the servants of the householder came and said unto him, Sir, didst not thou sow good seed in thy field? from whence then hath it tares?
 
-29. "But he said, 'No, lest perhaps while you gather up the darnel weeds, you root up the wheat with them.
+28 He said unto them, An enemy hath done this. The servants said unto him, Wilt thou then that we go and gather them up?
 
-30. Let both grow together until the harvest, and in the harvest time I will tell the reapers, "First, gather up the darnel weeds, and bind them in bundles to burn them; but gather the wheat into my barn."'"
+29 But he said, Nay; lest while ye gather up the tares, ye root up also the wheat with them.
 
-31. He set another parable before them, saying, "The Kingdom of Heaven is like a grain of mustard seed, which a man took, and sowed in his field;
+30 Let both grow together until the harvest: and in the time of harvest I will say to the reapers, Gather ye together first the tares, and bind them in bundles to burn them: but gather the wheat into my barn.
 
-32. which indeed is smaller than all seeds. But when it is grown, it is greater than the herbs, and becomes a tree, so that the birds of the air come and lodge in its branches."
+31 Another parable put he forth unto them, saying, The kingdom of heaven is like to a grain of mustard seed, which a man took, and sowed in his field:
 
-33. He spoke another parable to them. "The Kingdom of Heaven is like yeast, which a woman took, and hid in three measures of meal, until it was all leavened."
+32 Which indeed is the least of all seeds: but when it is grown, it is the greatest among herbs, and becometh a tree, so that the birds of the air come and lodge in the branches thereof.
 
-34. Jesus spoke all these things in parables to the multitudes; and without a parable, he didn't speak to them,
+33 Another parable spake he unto them; The kingdom of heaven is like unto leaven, which a woman took, and hid in three measures of meal, till the whole was leavened.
 
-35. that it might be fulfilled which was spoken through the prophet, saying, "I will open my mouth in parables;    I will utter things hidden from the foundation of the world."
+34 All these things spake Jesus unto the multitude in parables; and without a parable spake he not unto them:
 
-36. Then Jesus sent the multitudes away, and went into the house. His disciples came to him, saying, "Explain to us the parable of the darnel weeds of the field."
+35 That it might be fulfilled which was spoken by the prophet, saying, I will open my mouth in parables; I will utter things which have been kept secret from the foundation of the world.
 
-37. He answered them, "He who sows the good seed is the Son of Man,
+36 Then Jesus sent the multitude away, and went into the house: and his disciples came unto him, saying, Declare unto us the parable of the tares of the field.
 
-38. the field is the world; and the good seed, these are the children of the Kingdom; and the darnel weeds are the children of the evil one.
+37 He answered and said unto them, He that soweth the good seed is the Son of man;
 
-39. The enemy who sowed them is the devil. The harvest is the end of the age, and the reapers are angels.
+38 The field is the world; the good seed are the children of the kingdom; but the tares are the children of the wicked one;
 
-40. As therefore the darnel weeds are gathered up and burned with fire; so will it be at the end of this age.
+39 The enemy that sowed them is the devil; the harvest is the end of the world; and the reapers are the angels.
 
-41. The Son of Man will send out his angels, and they will gather out of his Kingdom all things that cause stumbling, and those who do iniquity,
+40 As therefore the tares are gathered and burned in the fire; so shall it be in the end of this world.
 
-42. and will cast them into the furnace of fire. There will be weeping and the gnashing of teeth.
+41 The Son of man shall send forth his angels, and they shall gather out of his kingdom all things that offend, and them which do iniquity;
 
-43. Then the righteous will shine forth like the sun in the Kingdom of their Father. He who has ears to hear, let him hear.
+42 And shall cast them into a furnace of fire: there shall be wailing and gnashing of teeth.
 
-44. "Again, the Kingdom of Heaven is like a treasure hidden in the field, which a man found, and hid. In his joy, he goes and sells all that he has, and buys that field.
+43 Then shall the righteous shine forth as the sun in the kingdom of their Father. Who hath ears to hear, let him hear.
 
-45. "Again, the Kingdom of Heaven is like a man who is a merchant seeking fine pearls,
+44 Again, the kingdom of heaven is like unto treasure hid in a field; the which when a man hath found, he hideth, and for joy thereof goeth and selleth all that he hath, and buyeth that field.
 
-46. who having found one pearl of great price, he went and sold all that he had, and bought it.
+45 Again, the kingdom of heaven is like unto a merchant man, seeking goodly pearls:
 
-47. "Again, the Kingdom of Heaven is like a dragnet, that was cast into the sea, and gathered some fish of every kind,
+46 Who, when he had found one pearl of great price, went and sold all that he had, and bought it.
 
-48. which, when it was filled, they drew up on the beach. They sat down, and gathered the good into containers, but the bad they threw away.
+47 Again, the kingdom of heaven is like unto a net, that was cast into the sea, and gathered of every kind:
 
-49. So will it be in the end of the world. The angels will come forth, and separate the wicked from among the righteous,
+48 Which, when it was full, they drew to shore, and sat down, and gathered the good into vessels, but cast the bad away.
 
-50. and will cast them into the furnace of fire. There will be the weeping and the gnashing of teeth."
+49 So shall it be at the end of the world: the angels shall come forth, and sever the wicked from among the just,
 
-51. Jesus said to them, "Have you understood all these things?"     They answered him, "Yes, Lord."
+50 And shall cast them into the furnace of fire: there shall be wailing and gnashing of teeth.
 
-52. He said to them, "Therefore, every scribe who has been made a disciple in the Kingdom of Heaven is like a man who is a householder, who brings out of his treasure new and old things."
+51 Jesus saith unto them, Have ye understood all these things? They say unto him, Yea, Lord.
 
-53. It happened that when Jesus had finished these parables, he departed from there.
+52 Then said he unto them, Therefore every scribe which is instructed unto the kingdom of heaven is like unto a man that is an householder, which bringeth forth out of his treasure things new and old.
 
-54. Coming into his own country, he taught them in their synagogue, so that they were astonished, and said, "Where did this man get this wisdom, and these mighty works?
+53 And it came to pass, that when Jesus had finished these parables, he departed thence.
 
-55. Isn't this the carpenter's son? Isn't his mother called Mary, and his brothers, James, Joses, Simon, and Judas?
+54 And when he was come into his own country, he taught them in their synagogue, insomuch that they were astonished, and said, Whence hath this man this wisdom, and these mighty works?
 
-56. Aren't all of his sisters with us? Where then did this man get all of these things?"
+55 Is not this the carpenter's son? is not his mother called Mary? and his brethren, James, and Joses, and Simon, and Judas?
 
-57. They were offended by him.     But Jesus said to them, "A prophet is not without honor, except in his own country, and in his own house."
+56 And his sisters, are they not all with us? Whence then hath this man all these things?
 
-58. He didn't do many mighty works there because of their unbelief.
+57 And they were offended in him. But Jesus said unto them, A prophet is not without honour, save in his own country, and in his own house.
 
+58 And he did not many mighty works there because of their unbelief.
 
-## Chapter 14
 
-1. At that time, Herod the tetrarch heard the report concerning Jesus,
+## Matthew Chapter 14
 
-2. and said to his servants, "This is John the Baptizer. He is risen from the dead. That is why these powers work in him."
+1 At that time Herod the tetrarch heard of the fame of Jesus,
 
-3. For Herod had laid hold of John, and bound him, and put him in prison for the sake of Herodias, his brother Philip's wife.
+2 And said unto his servants, This is John the Baptist; he is risen from the dead; and therefore mighty works do shew forth themselves in him.
 
-4. For John said to him, "It is not lawful for you to have her."
+3 For Herod had laid hold on John, and bound him, and put him in prison for Herodias' sake, his brother Philip's wife.
 
-5. When he would have put him to death, he feared the multitude, because they counted him as a prophet.
+4 For John said unto him, It is not lawful for thee to have her.
 
-6. But when Herod's birthday came, the daughter of Herodias danced among them and pleased Herod.
+5 And when he would have put him to death, he feared the multitude, because they counted him as a prophet.
 
-7. Whereupon he promised with an oath to give her whatever she should ask.
+6 But when Herod's birthday was kept, the daughter of Herodias danced before them, and pleased Herod.
 
-8. She, being prompted by her mother, said, "Give me here on a platter the head of John the Baptizer."
+7 Whereupon he promised with an oath to give her whatsoever she would ask.
 
-9. The king was grieved, but for the sake of his oaths, and of those who sat at the table with him, he commanded it to be given,
+8 And she, being before instructed of her mother, said, Give me here John Baptist's head in a charger.
 
-10. and he sent and beheaded John in the prison.
+9 And the king was sorry: nevertheless for the oath's sake, and them which sat with him at meat, he commanded it to be given her.
 
-11. His head was brought on a platter, and given to the young lady: and she brought it to her mother.
+10 And he sent, and beheaded John in the prison.
 
-12. His disciples came, and took the body, and buried it; and they went and told Jesus.
+11 And his head was brought in a charger, and given to the damsel: and she brought it to her mother.
 
-13. Now when Jesus heard this, he withdrew from there in a boat, to a deserted place apart. When the multitudes heard it, they followed him on foot from the cities.
+12 And his disciples came, and took up the body, and buried it, and went and told Jesus.
 
-14. Jesus went out, and he saw a great multitude. He had compassion on them, and healed their sick.
+13 When Jesus heard of it, he departed thence by ship into a desert place apart: and when the people had heard thereof, they followed him on foot out of the cities.
 
-15. When evening had come, his disciples came to him, saying, "This place is deserted, and the hour is already late. Send the multitudes away, that they may go into the villages, and buy themselves food."
+14 And Jesus went forth, and saw a great multitude, and was moved with compassion toward them, and he healed their sick.
 
-16. But Jesus said to them, "They don't need to go away. You give them something to eat."
+15 And when it was evening, his disciples came to him, saying, This is a desert place, and the time is now past; send the multitude away, that they may go into the villages, and buy themselves victuals.
 
-17. They told him, "We only have here five loaves and two fish."
+16 But Jesus said unto them, They need not depart; give ye them to eat.
 
-18. He said, "Bring them here to me."
+17 And they say unto him, We have here but five loaves, and two fishes.
 
-19. He commanded the multitudes to sit down on the grass; and he took the five loaves and the two fish, and looking up to heaven, he blessed, broke and gave the loaves to the disciples, and the disciples gave to the multitudes.
+18 He said, Bring them hither to me.
 
-20. They all ate, and were filled. They took up twelve baskets full of that which remained left over from the broken pieces.
+19 And he commanded the multitude to sit down on the grass, and took the five loaves, and the two fishes, and looking up to heaven, he blessed, and brake, and gave the loaves to his disciples, and the disciples to the multitude.
 
-21. Those who ate were about five thousand men, besides women and children.
+20 And they did all eat, and were filled: and they took up of the fragments that remained twelve baskets full.
 
-22. Immediately Jesus made the disciples get into the boat, and to go ahead of him to the other side, while he sent the multitudes away.
+21 And they that had eaten were about five thousand men, beside women and children.
 
-23. After he had sent the multitudes away, he went up into the mountain by himself to pray. When evening had come, he was there alone.
+22 And straightway Jesus constrained his disciples to get into a ship, and to go before him unto the other side, while he sent the multitudes away.
 
-24. But the boat was now in the middle of the sea, distressed by the waves, for the wind was contrary.
+23 And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.
 
-25. In the fourth watch of the night, Jesus came to them, walking on the sea.
+24 But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.
 
-26. When the disciples saw him walking on the sea, they were troubled, saying, "It's a ghost!" and they cried out for fear.
+25 And in the fourth watch of the night Jesus went unto them, walking on the sea.
 
-27. But immediately Jesus spoke to them, saying "Cheer up! It is I! Don't be afraid."
+26 And when the disciples saw him walking on the sea, they were troubled, saying, It is a spirit; and they cried out for fear.
 
-28. Peter answered him and said, "Lord, if it is you, command me to come to you on the waters."
+27 But straightway Jesus spake unto them, saying, Be of good cheer; it is I; be not afraid.
 
-29. He said, "Come!"     Peter stepped down from the boat, and walked on the waters to come to Jesus.
+28 And Peter answered him and said, Lord, if it be thou, bid me come unto thee on the water.
 
-30. But when he saw that the wind was strong, he was afraid, and beginning to sink, he cried out, saying, "Lord, save me!"
+29 And he said, Come. And when Peter was come down out of the ship, he walked on the water, to go to Jesus.
 
-31. Immediately Jesus stretched out his hand, took hold of him, and said to him, "You of little faith, why did you doubt?"
+30 But when he saw the wind boisterous, he was afraid; and beginning to sink, he cried, saying, Lord, save me.
 
-32. When they got up into the boat, the wind ceased.
+31 And immediately Jesus stretched forth his hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?
 
-33. Those who were in the boat came and worshiped him, saying, "You are truly the Son of God!"
+32 And when they were come into the ship, the wind ceased.
 
-34. When they had crossed over, they came to the land of Gennesaret.
+33 Then they that were in the ship came and worshipped him, saying, Of a truth thou art the Son of God.
 
-35. When the people of that place recognized him, they sent into all that surrounding region, and brought to him all who were sick,
+34 And when they were gone over, they came into the land of Gennesaret.
 
-36. and they begged him that they might just touch the fringe of his garment. As many as touched it were made whole.
+35 And when the men of that place had knowledge of him, they sent out into all that country round about, and brought unto him all that were diseased;
 
+36 And besought him that they might only touch the hem of his garment: and as many as touched were made perfectly whole.
 
-## Chapter 15
 
-1. Then Pharisees and scribes came to Jesus from Jerusalem, saying,
+## Matthew Chapter 15
 
-2. "Why do your disciples disobey the tradition of the elders? For they don't wash their hands when they eat bread."
+1 Then came to Jesus scribes and Pharisees, which were of Jerusalem, saying,
 
-3. He answered them, "Why do you also disobey the commandment of God because of your tradition?
+2 Why do thy disciples transgress the tradition of the elders? for they wash not their hands when they eat bread.
 
-4. For God commanded, 'Honor your father and your mother,' and, 'He who speaks evil of father or mother, let him be put to death.'
+3 But he answered and said unto them, Why do ye also transgress the commandment of God by your tradition?
 
-5. But you say, 'Whoever may tell his father or his mother, "Whatever help you might otherwise have gotten from me is a gift devoted to God,"
+4 For God commanded, saying, Honour thy father and mother: and, He that curseth father or mother, let him die the death.
 
-6. he shall not honor his father or mother.' You have made the commandment of God void because of your tradition.
+5 But ye say, Whosoever shall say to his father or his mother, It is a gift, by whatsoever thou mightest be profited by me;
 
-7. You hypocrites! Well did Isaiah prophesy of you, saying,
+6 And honour not his father or his mother, he shall be free. Thus have ye made the commandment of God of none effect by your tradition.
 
-8. 'These people draw near to me with their mouth,    and honor me with their lips;    but their heart is far from me.
+7 Ye hypocrites, well did Esaias prophesy of you, saying,
 
-9. And in vain do they worship me,    teaching as doctrine rules made by men.'"
+8 This people draweth nigh unto me with their mouth, and honoureth me with their lips; but their heart is far from me.
 
-10. He summoned the multitude, and said to them, "Hear, and understand.
+9 But in vain they do worship me, teaching for doctrines the commandments of men.
 
-11. That which enters into the mouth doesn't defile the man; but that which proceeds out of the mouth, this defiles the man."
+10 And he called the multitude, and said unto them, Hear, and understand:
 
-12. Then the disciples came, and said to him, "Do you know that the Pharisees were offended, when they heard this saying?"
+11 Not that which goeth into the mouth defileth a man; but that which cometh out of the mouth, this defileth a man.
 
-13. But he answered, "Every plant which my heavenly Father didn't plant will be uprooted.
+12 Then came his disciples, and said unto him, Knowest thou that the Pharisees were offended, after they heard this saying?
 
-14. Leave them alone. They are blind guides of the blind. If the blind guide the blind, both will fall into a pit."
+13 But he answered and said, Every plant, which my heavenly Father hath not planted, shall be rooted up.
 
-15. Peter answered him, "Explain the parable to us."
+14 Let them alone: they be blind leaders of the blind. And if the blind lead the blind, both shall fall into the ditch.
 
-16. So Jesus said, "Do you also still not understand?
+15 Then answered Peter and said unto him, Declare unto us this parable.
 
-17. Don't you understand that whatever goes into the mouth passes into the belly, and then out of the body?
+16 And Jesus said, Are ye also yet without understanding?
 
-18. But the things which proceed out of the mouth come out of the heart, and they defile the man.
+17 Do not ye yet understand, that whatsoever entereth in at the mouth goeth into the belly, and is cast out into the draught?
 
-19. For out of the heart come forth evil thoughts, murders, adulteries, sexual sins, thefts, false testimony, and blasphemies.
+18 But those things which proceed out of the mouth come forth from the heart; and they defile the man.
 
-20. These are the things which defile the man; but to eat with unwashed hands doesn't defile the man."
+19 For out of the heart proceed evil thoughts, murders, adulteries, fornications, thefts, false witness, blasphemies:
 
-21. Jesus went out from there, and withdrew into the region of Tyre and Sidon.
+20 These are the things which defile a man: but to eat with unwashen hands defileth not a man.
 
-22. Behold, a Canaanite woman came out from those borders, and cried, saying, "Have mercy on me, Lord, you son of David! My daughter is severely demonized!"
+21 Then Jesus went thence, and departed into the coasts of Tyre and Sidon.
 
-23. But he answered her not a word.     His disciples came and begged him, saying, "Send her away; for she cries after us."
+22 And, behold, a woman of Canaan came out of the same coasts, and cried unto him, saying, Have mercy on me, O Lord, thou son of David; my daughter is grievously vexed with a devil.
 
-24. But he answered, "I wasn't sent to anyone but the lost sheep of the house of Israel."
+23 But he answered her not a word. And his disciples came and besought him, saying, Send her away; for she crieth after us.
 
-25. But she came and worshiped him, saying, "Lord, help me."
+24 But he answered and said, I am not sent but unto the lost sheep of the house of Israel.
 
-26. But he answered, "It is not appropriate to take the children's bread and throw it to the dogs."
+25 Then came she and worshipped him, saying, Lord, help me.
 
-27. But she said, "Yes, Lord, but even the dogs eat the crumbs which fall from their masters' table."
+26 But he answered and said, It is not meet to take the children's bread, and to cast it to dogs.
 
-28. Then Jesus answered her, "Woman, great is your faith! Be it done to you even as you desire." And her daughter was healed from that hour.
+27 And she said, Truth, Lord: yet the dogs eat of the crumbs which fall from their masters' table.
 
-29. Jesus departed there, and came near to the sea of Galilee; and he went up into the mountain, and sat there.
+28 Then Jesus answered and said unto her, O woman, great is thy faith: be it unto thee even as thou wilt. And her daughter was made whole from that very hour.
 
-30. Great multitudes came to him, having with them the lame, blind, mute, maimed, and many others, and they put them down at his feet. He healed them,
+29 And Jesus departed from thence, and came nigh unto the sea of Galilee; and went up into a mountain, and sat down there.
 
-31. so that the multitude wondered when they saw the mute speaking, injured whole, lame walking, and blind seeing--and they glorified the God of Israel.
+30 And great multitudes came unto him, having with them those that were lame, blind, dumb, maimed, and many others, and cast them down at Jesus' feet; and he healed them:
 
-32. Jesus summoned his disciples and said, "I have compassion on the multitude, because they continue with me now three days and have nothing to eat. I don't want to send them away fasting, or they might faint on the way."
+31 Insomuch that the multitude wondered, when they saw the dumb to speak, the maimed to be whole, the lame to walk, and the blind to see: and they glorified the God of Israel.
 
-33. The disciples said to him, "Where should we get so many loaves in a deserted place as to satisfy so great a multitude?"
+32 Then Jesus called his disciples unto him, and said, I have compassion on the multitude, because they continue with me now three days, and have nothing to eat: and I will not send them away fasting, lest they faint in the way.
 
-34. Jesus said to them, "How many loaves do you have?"     They said, "Seven, and a few small fish."
+33 And his disciples say unto him, Whence should we have so much bread in the wilderness, as to fill so great a multitude?
 
-35. He commanded the multitude to sit down on the ground;
+34 And Jesus saith unto them, How many loaves have ye? And they said, Seven, and a few little fishes.
 
-36. and he took the seven loaves and the fish. He gave thanks and broke them, and gave to the disciples, and the disciples to the multitudes.
+35 And he commanded the multitude to sit down on the ground.
 
-37. They all ate, and were filled. They took up seven baskets full of the broken pieces that were left over.
+36 And he took the seven loaves and the fishes, and gave thanks, and brake them, and gave to his disciples, and the disciples to the multitude.
 
-38. Those who ate were four thousand men, besides women and children.
+37 And they did all eat, and were filled: and they took up of the broken meat that was left seven baskets full.
 
-39. Then he sent away the multitudes, got into the boat, and came into the borders of Magdala.
+38 And they that did eat were four thousand men, beside women and children.
 
+39 And he sent away the multitude, and took ship, and came into the coasts of Magdala.
 
-## Chapter 16
 
-1. The Pharisees and Sadducees came, and testing him, asked him to show them a sign from heaven.
+## Matthew Chapter 16
 
-2. But he answered them, "When it is evening, you say, 'It will be fair weather, for the sky is red.'
+1 The Pharisees also with the Sadducees came, and tempting desired him that he would shew them a sign from heaven.
 
-3. In the morning, 'It will be foul weather today, for the sky is red and threatening.' Hypocrites! You know how to discern the appearance of the sky, but you can't discern the signs of the times!
+2 He answered and said unto them, When it is evening, ye say, It will be fair weather: for the sky is red.
 
-4. An evil and adulterous generation seeks after a sign, and there will be no sign given to it, except the sign of the prophet Jonah."     He left them, and departed.
+3 And in the morning, It will be foul weather to day: for the sky is red and lowering. O ye hypocrites, ye can discern the face of the sky; but can ye not discern the signs of the times?
 
-5. The disciples came to the other side and had forgotten to take bread.
+4 A wicked and adulterous generation seeketh after a sign; and there shall no sign be given unto it, but the sign of the prophet Jonas. And he left them, and departed.
 
-6. Jesus said to them, "Take heed and beware of the yeast of the Pharisees and Sadducees."
+5 And when his disciples were come to the other side, they had forgotten to take bread.
 
-7. They reasoned among themselves, saying, "We brought no bread."
+6 Then Jesus said unto them, Take heed and beware of the leaven of the Pharisees and of the Sadducees.
 
-8. Jesus, perceiving it, said, "Why do you reason among yourselves, you of little faith, 'because you have brought no bread?'
+7 And they reasoned among themselves, saying, It is because we have taken no bread.
 
-9. Don't you yet perceive, neither remember the five loaves for the five thousand, and how many baskets you took up?
+8 Which when Jesus perceived, he said unto them, O ye of little faith, why reason ye among yourselves, because ye have brought no bread?
 
-10. Nor the seven loaves for the four thousand, and how many baskets you took up?
+9 Do ye not yet understand, neither remember the five loaves of the five thousand, and how many baskets ye took up?
 
-11. How is it that you don't perceive that I didn't speak to you concerning bread? But beware of the yeast of the Pharisees and Sadducees."
+10 Neither the seven loaves of the four thousand, and how many baskets ye took up?
 
-12. Then they understood that he didn't tell them to beware of the yeast of bread, but of the teaching of the Pharisees and Sadducees.
+11 How is it that ye do not understand that I spake it not to you concerning bread, that ye should beware of the leaven of the Pharisees and of the Sadducees?
 
-13. Now when Jesus came into the parts of Caesarea Philippi, he asked his disciples, saying, "Who do men say that I, the Son of Man, am?"
+12 Then understood they how that he bade them not beware of the leaven of bread, but of the doctrine of the Pharisees and of the Sadducees.
 
-14. They said, "Some say John the Baptizer, some, Elijah, and others, Jeremiah, or one of the prophets."
+13 When Jesus came into the coasts of Caesarea Philippi, he asked his disciples, saying, Whom do men say that I the Son of man am?
 
-15. He said to them, "But who do you say that I am?"
+14 And they said, Some say that thou art John the Baptist: some, Elias; and others, Jeremias, or one of the prophets.
 
-16. Simon Peter answered, "You are the Christ, the Son of the living God."
+15 He saith unto them, But whom say ye that I am?
 
-17. Jesus answered him, "Blessed are you, Simon Bar Jonah, for flesh and blood has not revealed this to you, but my Father who is in heaven.
+16 And Simon Peter answered and said, Thou art the Christ, the Son of the living God.
 
-18. I also tell you that you are Peter, and on this rock I will build my assembly, and the gates of Hades will not prevail against it.
+17 And Jesus answered and said unto him, Blessed art thou, Simon Barjona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.
 
-19. I will give to you the keys of the Kingdom of Heaven, and whatever you bind on earth will have been bound in heaven; and whatever you release on earth will have been released in heaven."
+18 And I say also unto thee, That thou art Peter, and upon this rock I will build my church; and the gates of hell shall not prevail against it.
 
-20. Then he commanded the disciples that they should tell no one that he was Jesus the Christ.
+19 And I will give unto thee the keys of the kingdom of heaven: and whatsoever thou shalt bind on earth shall be bound in heaven: and whatsoever thou shalt loose on earth shall be loosed in heaven.
 
-21. From that time, Jesus began to show his disciples that he must go to Jerusalem and suffer many things from the elders, chief priests, and scribes, and be killed, and the third day be raised up.
+20 Then charged he his disciples that they should tell no man that he was Jesus the Christ.
 
-22. Peter took him aside, and began to rebuke him, saying, "Far be it from you, Lord! This will never be done to you."
+21 From that time forth began Jesus to shew unto his disciples, how that he must go unto Jerusalem, and suffer many things of the elders and chief priests and scribes, and be killed, and be raised again the third day.
 
-23. But he turned, and said to Peter, "Get behind me, Satan! You are a stumbling block to me, for you are not setting your mind on the things of God, but on the things of men."
+22 Then Peter took him, and began to rebuke him, saying, Be it far from thee, Lord: this shall not be unto thee.
 
-24. Then Jesus said to his disciples, "If anyone desires to come after me, let him deny himself, and take up his cross, and follow me.
+23 But he turned, and said unto Peter, Get thee behind me, Satan: thou art an offence unto me: for thou savourest not the things that be of God, but those that be of men.
 
-25. For whoever desires to save his life will lose it, and whoever will lose his life for my sake will find it.
+24 Then said Jesus unto his disciples, If any man will come after me, let him deny himself, and take up his cross, and follow me.
 
-26. For what will it profit a man, if he gains the whole world, and forfeits his life? Or what will a man give in exchange for his life?
+25 For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.
 
-27. For the Son of Man will come in the glory of his Father with his angels, and then he will render to everyone according to his deeds.
+26 For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?
 
-28. Most certainly I tell you, there are some standing here who will in no way taste of death, until they see the Son of Man coming in his Kingdom."
+27 For the Son of man shall come in the glory of his Father with his angels; and then he shall reward every man according to his works.
 
+28 Verily I say unto you, There be some standing here, which shall not taste of death, till they see the Son of man coming in his kingdom.
 
-## Chapter 17
 
-1. After six days, Jesus took with him Peter, James, and John his brother, and brought them up into a high mountain by themselves.
+## Matthew Chapter 17
 
-2. He was transfigured before them. His face shone like the sun, and his garments became as white as the light.
+1 And after six days Jesus taketh Peter, James, and John his brother, and bringeth them up into an high mountain apart,
 
-3. Behold, Moses and Elijah appeared to them talking with him.
+2 And was transfigured before them: and his face did shine as the sun, and his raiment was white as the light.
 
-4. Peter answered, and said to Jesus, "Lord, it is good for us to be here. If you want, let's make three tents here: one for you, one for Moses, and one for Elijah."
+3 And, behold, there appeared unto them Moses and Elias talking with him.
 
-5. While he was still speaking, behold, a bright cloud overshadowed them. Behold, a voice came out of the cloud, saying, "This is my beloved Son, in whom I am well pleased. Listen to him."
+4 Then answered Peter, and said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us make here three tabernacles; one for thee, and one for Moses, and one for Elias.
 
-6. When the disciples heard it, they fell on their faces, and were very afraid.
+5 While he yet spake, behold, a bright cloud overshadowed them: and behold a voice out of the cloud, which said, This is my beloved Son, in whom I am well pleased; hear ye him.
 
-7. Jesus came and touched them and said, "Get up, and don't be afraid."
+6 And when the disciples heard it, they fell on their face, and were sore afraid.
 
-8. Lifting up their eyes, they saw no one, except Jesus alone.
+7 And Jesus came and touched them, and said, Arise, and be not afraid.
 
-9. As they were coming down from the mountain, Jesus commanded them, saying, "Don't tell anyone what you saw, until the Son of Man has risen from the dead."
+8 And when they had lifted up their eyes, they saw no man, save Jesus only.
 
-10. His disciples asked him, saying, "Then why do the scribes say that Elijah must come first?"
+9 And as they came down from the mountain, Jesus charged them, saying, Tell the vision to no man, until the Son of man be risen again from the dead.
 
-11. Jesus answered them, "Elijah indeed comes first, and will restore all things,
+10 And his disciples asked him, saying, Why then say the scribes that Elias must first come?
 
-12. but I tell you that Elijah has come already, and they didn't recognize him, but did to him whatever they wanted to. Even so the Son of Man will also suffer by them."
+11 And Jesus answered and said unto them, Elias truly shall first come, and restore all things.
 
-13. Then the disciples understood that he spoke to them of John the Baptizer.
+12 But I say unto you, That Elias is come already, and they knew him not, but have done unto him whatsoever they listed. Likewise shall also the Son of man suffer of them.
 
-14. When they came to the multitude, a man came to him, kneeling down to him, saying,
+13 Then the disciples understood that he spake unto them of John the Baptist.
 
-15. "Lord, have mercy on my son, for he is epileptic, and suffers grievously; for he often falls into the fire, and often into the water.
+14 And when they were come to the multitude, there came to him a certain man, kneeling down to him, and saying,
 
-16. So I brought him to your disciples, and they could not cure him."
+15 Lord, have mercy on my son: for he is lunatick, and sore vexed: for ofttimes he falleth into the fire, and oft into the water.
 
-17. Jesus answered, "Faithless and perverse generation! How long will I be with you? How long will I bear with you? Bring him here to me."
+16 And I brought him to thy disciples, and they could not cure him.
 
-18. Jesus rebuked him, the demon went out of him, and the boy was cured from that hour.
+17 Then Jesus answered and said, O faithless and perverse generation, how long shall I be with you? how long shall I suffer you? bring him hither to me.
 
-19. Then the disciples came to Jesus privately, and said, "Why weren't we able to cast it out?"
+18 And Jesus rebuked the devil; and he departed out of him: and the child was cured from that very hour.
 
-20. He said to them, "Because of your unbelief. For most certainly I tell you, if you have faith as a grain of mustard seed, you will tell this mountain, 'Move from here to there,' and it will move; and nothing will be impossible for you.
+19 Then came the disciples to Jesus apart, and said, Why could not we cast him out?
 
-21. But this kind doesn't go out except by prayer and fasting."
+20 And Jesus said unto them, Because of your unbelief: for verily I say unto you, If ye have faith as a grain of mustard seed, ye shall say unto this mountain, Remove hence to yonder place; and it shall remove; and nothing shall be impossible unto you.
 
-22. While they were staying in Galilee, Jesus said to them, "The Son of Man is about to be delivered up into the hands of men,
+21 Howbeit this kind goeth not out but by prayer and fasting.
 
-23. and they will kill him, and the third day he will be raised up."     They were exceedingly sorry.
+22 And while they abode in Galilee, Jesus said unto them, The Son of man shall be betrayed into the hands of men:
 
-24. When they had come to Capernaum, those who collected the didrachma coins came to Peter, and said, "Doesn't your teacher pay the didrachma?"
+23 And they shall kill him, and the third day he shall be raised again. And they were exceeding sorry.
 
-25. He said, "Yes."     When he came into the house, Jesus anticipated him, saying, "What do you think, Simon? From whom do the kings of the earth receive toll or tribute? From their children, or from strangers?"
+24 And when they were come to Capernaum, they that received tribute money came to Peter, and said, Doth not your master pay tribute?
 
-26. Peter said to him, "From strangers."     Jesus said to him, "Therefore the children are exempt.
+25 He saith, Yes. And when he was come into the house, Jesus prevented him, saying, What thinkest thou, Simon? of whom do the kings of the earth take custom or tribute? of their own children, or of strangers?
 
-27. But, lest we cause them to stumble, go to the sea, cast a hook, and take up the first fish that comes up. When you have opened its mouth, you will find a stater coin. Take that, and give it to them for me and you."
+26 Peter saith unto him, Of strangers. Jesus saith unto him, Then are the children free.
 
+27 Notwithstanding, lest we should offend them, go thou to the sea, and cast an hook, and take up the fish that first cometh up; and when thou hast opened his mouth, thou shalt find a piece of money: that take, and give unto them for me and thee.
 
-## Chapter 18
 
-1. In that hour the disciples came to Jesus, saying, "Who then is greatest in the Kingdom of Heaven?"
+## Matthew Chapter 18
 
-2. Jesus called a little child to himself, and set him in the midst of them,
+1 At the same time came the disciples unto Jesus, saying, Who is the greatest in the kingdom of heaven?
 
-3. and said, "Most certainly I tell you, unless you turn, and become as little children, you will in no way enter into the Kingdom of Heaven.
+2 And Jesus called a little child unto him, and set him in the midst of them,
 
-4. Whoever therefore humbles himself as this little child, the same is the greatest in the Kingdom of Heaven.
+3 And said, Verily I say unto you, Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.
 
-5. Whoever receives one such little child in my name receives me,
+4 Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven.
 
-6. but whoever causes one of these little ones who believe in me to stumble, it would be better for him that a huge millstone should be hung around his neck, and that he should be sunk in the depths of the sea.
+5 And whoso shall receive one such little child in my name receiveth me.
 
-7. "Woe to the world because of occasions of stumbling! For it must be that the occasions come, but woe to that person through whom the occasion comes!
+6 But whoso shall offend one of these little ones which believe in me, it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.
 
-8. If your hand or your foot causes you to stumble, cut it off, and cast it from you. It is better for you to enter into life maimed or crippled, rather than having two hands or two feet to be cast into the eternal fire.
+7 Woe unto the world because of offences! for it must needs be that offences come; but woe to that man by whom the offence cometh!
 
-9. If your eye causes you to stumble, pluck it out, and cast it from you. It is better for you to enter into life with one eye, rather than having two eyes to be cast into the Gehenna of fire.
+8 Wherefore if thy hand or thy foot offend thee, cut them off, and cast them from thee: it is better for thee to enter into life halt or maimed, rather than having two hands or two feet to be cast into everlasting fire.
 
-10. See that you don't despise one of these little ones, for I tell you that in heaven their angels always see the face of my Father who is in heaven.
+9 And if thine eye offend thee, pluck it out, and cast it from thee: it is better for thee to enter into life with one eye, rather than having two eyes to be cast into hell fire.
 
-11. For the Son of Man came to save that which was lost.
+10 Take heed that ye despise not one of these little ones; for I say unto you, That in heaven their angels do always behold the face of my Father which is in heaven.
 
-12. "What do you think? If a man has one hundred sheep, and one of them goes astray, doesn't he leave the ninety-nine, go to the mountains, and seek that which has gone astray?
+11 For the Son of man is come to save that which was lost.
 
-13. If he finds it, most certainly I tell you, he rejoices over it more than over the ninety-nine which have not gone astray.
+12 How think ye? if a man have an hundred sheep, and one of them be gone astray, doth he not leave the ninety and nine, and goeth into the mountains, and seeketh that which is gone astray?
 
-14. Even so it is not the will of your Father who is in heaven that one of these little ones should perish.
+13 And if so be that he find it, verily I say unto you, he rejoiceth more of that sheep, than of the ninety and nine which went not astray.
 
-15. "If your brother sins against you, go, show him his fault between you and him alone. If he listens to you, you have gained back your brother.
+14 Even so it is not the will of your Father which is in heaven, that one of these little ones should perish.
 
-16. But if he doesn't listen, take one or two more with you, that at the mouth of two or three witnesses every word may be established.
+15 Moreover if thy brother shall trespass against thee, go and tell him his fault between thee and him alone: if he shall hear thee, thou hast gained thy brother.
 
-17. If he refuses to listen to them, tell it to the assembly. If he refuses to hear the assembly also, let him be to you as a Gentile or a tax collector.
+16 But if he will not hear thee, then take with thee one or two more, that in the mouth of two or three witnesses every word may be established.
 
-18. Most certainly I tell you, whatever things you bind on earth will have been bound in heaven, and whatever things you release on earth will have been released in heaven.
+17 And if he shall neglect to hear them, tell it unto the church: but if he neglect to hear the church, let him be unto thee as an heathen man and a publican.
 
-19. Again, assuredly I tell you, that if two of you will agree on earth concerning anything that they will ask, it will be done for them by my Father who is in heaven.
+18 Verily I say unto you, Whatsoever ye shall bind on earth shall be bound in heaven: and whatsoever ye shall loose on earth shall be loosed in heaven.
 
-20. For where two or three are gathered together in my name, there I am in the midst of them."
+19 Again I say unto you, That if two of you shall agree on earth as touching any thing that they shall ask, it shall be done for them of my Father which is in heaven.
 
-21. Then Peter came and said to him, "Lord, how often shall my brother sin against me, and I forgive him? Until seven times?"
+20 For where two or three are gathered together in my name, there am I in the midst of them.
 
-22. Jesus said to him, "I don't tell you until seven times, but, until seventy times seven.
+21 Then came Peter to him, and said, Lord, how oft shall my brother sin against me, and I forgive him? till seven times?
 
-23. Therefore the Kingdom of Heaven is like a certain king, who wanted to reconcile accounts with his servants.
+22 Jesus saith unto him, I say not unto thee, Until seven times: but, Until seventy times seven.
 
-24. When he had begun to reconcile, one was brought to him who owed him ten thousand talents.
+23 Therefore is the kingdom of heaven likened unto a certain king, which would take account of his servants.
 
-25. But because he couldn't pay, his lord commanded him to be sold, with his wife, his children, and all that he had, and payment to be made.
+24 And when he had begun to reckon, one was brought unto him, which owed him ten thousand talents.
 
-26. The servant therefore fell down and kneeled before him, saying, 'Lord, have patience with me, and I will repay you all!'
+25 But forasmuch as he had not to pay, his lord commanded him to be sold, and his wife, and children, and all that he had, and payment to be made.
 
-27. The lord of that servant, being moved with compassion, released him, and forgave him the debt.
+26 The servant therefore fell down, and worshipped him, saying, Lord, have patience with me, and I will pay thee all.
 
-28. "But that servant went out, and found one of his fellow servants, who owed him one hundred denarii, and he grabbed him, and took him by the throat, saying, 'Pay me what you owe!'
+27 Then the lord of that servant was moved with compassion, and loosed him, and forgave him the debt.
 
-29. "So his fellow servant fell down at his feet and begged him, saying, 'Have patience with me, and I will repay you!'
+28 But the same servant went out, and found one of his fellowservants, which owed him an hundred pence: and he laid hands on him, and took him by the throat, saying, Pay me that thou owest.
 
-30. He would not, but went and cast him into prison, until he should pay back that which was due.
+29 And his fellowservant fell down at his feet, and besought him, saying, Have patience with me, and I will pay thee all.
 
-31. So when his fellow servants saw what was done, they were exceedingly sorry, and came and told to their lord all that was done.
+30 And he would not: but went and cast him into prison, till he should pay the debt.
 
-32. Then his lord called him in, and said to him, 'You wicked servant! I forgave you all that debt, because you begged me.
+31 So when his fellowservants saw what was done, they were very sorry, and came and told unto their lord all that was done.
 
-33. Shouldn't you also have had mercy on your fellow servant, even as I had mercy on you?'
+32 Then his lord, after that he had called him, said unto him, O thou wicked servant, I forgave thee all that debt, because thou desiredst me:
 
-34. His lord was angry, and delivered him to the tormentors, until he should pay all that was due to him.
+33 Shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee?
 
-35. So my heavenly Father will also do to you, if you don't each forgive your brother from your hearts for his misdeeds."
+34 And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due unto him.
 
+35 So likewise shall my heavenly Father do also unto you, if ye from your hearts forgive not every one his brother their trespasses.
 
-## Chapter 19
 
-1. It happened when Jesus had finished these words, he departed from Galilee, and came into the borders of Judea beyond the Jordan.
+## Matthew Chapter 19
 
-2. Great multitudes followed him, and he healed them there.
+1 And it came to pass, that when Jesus had finished these sayings, he departed from Galilee, and came into the coasts of Judaea beyond Jordan;
 
-3. Pharisees came to him, testing him, and saying, "Is it lawful for a man to divorce his wife for any reason?"
+2 And great multitudes followed him; and he healed them there.
 
-4. He answered, "Haven't you read that he who made them from the beginning made them male and female,
+3 The Pharisees also came unto him, tempting him, and saying unto him, Is it lawful for a man to put away his wife for every cause?
 
-5. and said, 'For this cause a man shall leave his father and mother, and shall join to his wife; and the two shall become one flesh?'
+4 And he answered and said unto them, Have ye not read, that he which made them at the beginning made them male and female,
 
-6. So that they are no more two, but one flesh. What therefore God has joined together, don't let man tear apart."
+5 And said, For this cause shall a man leave father and mother, and shall cleave to his wife: and they twain shall be one flesh?
 
-7. They asked him, "Why then did Moses command us to give her a bill of divorce, and divorce her?"
+6 Wherefore they are no more twain, but one flesh. What therefore God hath joined together, let not man put asunder.
 
-8. He said to them, "Moses, because of the hardness of your hearts, allowed you to divorce your wives, but from the beginning it has not been so.
+7 They say unto him, Why did Moses then command to give a writing of divorcement, and to put her away?
 
-9. I tell you that whoever divorces his wife, except for sexual immorality, and marries another, commits adultery; and he who marries her when she is divorced commits adultery."
+8 He saith unto them, Moses because of the hardness of your hearts suffered you to put away your wives: but from the beginning it was not so.
 
-10. His disciples said to him, "If this is the case of the man with his wife, it is not expedient to marry."
+9 And I say unto you, Whosoever shall put away his wife, except it be for fornication, and shall marry another, committeth adultery: and whoso marrieth her which is put away doth commit adultery.
 
-11. But he said to them, "Not all men can receive this saying, but those to whom it is given.
+10 His disciples say unto him, If the case of the man be so with his wife, it is not good to marry.
 
-12. For there are eunuchs who were born that way from their mother's womb, and there are eunuchs who were made eunuchs by men; and there are eunuchs who made themselves eunuchs for the Kingdom of Heaven's sake. He who is able to receive it, let him receive it."
+11 But he said unto them, All men cannot receive this saying, save they to whom it is given.
 
-13. Then little children were brought to him, that he should lay his hands on them and pray; and the disciples rebuked them.
+12 For there are some eunuchs, which were so born from their mother's womb: and there are some eunuchs, which were made eunuchs of men: and there be eunuchs, which have made themselves eunuchs for the kingdom of heaven's sake. He that is able to receive it, let him receive it.
 
-14. But Jesus said, "Allow the little children, and don't forbid them to come to me; for the Kingdom of Heaven belongs to ones like these."
+13 Then were there brought unto him little children, that he should put his hands on them, and pray: and the disciples rebuked them.
 
-15. He laid his hands on them, and departed from there.
+14 But Jesus said, Suffer little children, and forbid them not, to come unto me: for of such is the kingdom of heaven.
 
-16. Behold, one came to him and said, "Good teacher, what good thing shall I do, that I may have eternal life?"
+15 And he laid his hands on them, and departed thence.
 
-17. He said to him, "Why do you call me good? No one is good but one, that is, God. But if you want to enter into life, keep the commandments."
+16 And, behold, one came and said unto him, Good Master, what good thing shall I do, that I may have eternal life?
 
-18. He said to him, "Which ones?"     Jesus said, "'You shall not murder.' 'You shall not commit adultery.' 'You shall not steal.' 'You shall not offer false testimony.'
+17 And he said unto him, Why callest thou me good? there is none good but one, that is, God: but if thou wilt enter into life, keep the commandments.
 
-19. 'Honor your father and mother.' And, 'You shall love your neighbor as yourself.'"
+18 He saith unto him, Which? Jesus said, Thou shalt do no murder, Thou shalt not commit adultery, Thou shalt not steal, Thou shalt not bear false witness,
 
-20. The young man said to him, "All these things I have observed from my youth. What do I still lack?"
+19 Honour thy father and thy mother: and, Thou shalt love thy neighbour as thyself.
 
-21. Jesus said to him, "If you want to be perfect, go, sell what you have, and give to the poor, and you will have treasure in heaven; and come, follow me."
+20 The young man saith unto him, All these things have I kept from my youth up: what lack I yet?
 
-22. But when the young man heard the saying, he went away sad, for he was one who had great possessions.
+21 Jesus said unto him, If thou wilt be perfect, go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.
 
-23. Jesus said to his disciples, "Most certainly I say to you, a rich man will enter into the Kingdom of Heaven with difficulty.
+22 But when the young man heard that saying, he went away sorrowful: for he had great possessions.
 
-24. Again I tell you, it is easier for a camel to go through a needle's eye, than for a rich man to enter into the Kingdom of God."
+23 Then said Jesus unto his disciples, Verily I say unto you, That a rich man shall hardly enter into the kingdom of heaven.
 
-25. When the disciples heard it, they were exceedingly astonished, saying, "Who then can be saved?"
+24 And again I say unto you, It is easier for a camel to go through the eye of a needle, than for a rich man to enter into the kingdom of God.
 
-26. Looking at them, Jesus said, "With men this is impossible, but with God all things are possible."
+25 When his disciples heard it, they were exceedingly amazed, saying, Who then can be saved?
 
-27. Then Peter answered, "Behold, we have left everything, and followed you. What then will we have?"
+26 But Jesus beheld them, and said unto them, With men this is impossible; but with God all things are possible.
 
-28. Jesus said to them, "Most certainly I tell you that you who have followed me, in the regeneration when the Son of Man will sit on the throne of his glory, you also will sit on twelve thrones, judging the twelve tribes of Israel.
+27 Then answered Peter and said unto him, Behold, we have forsaken all, and followed thee; what shall we have therefore?
 
-29. Everyone who has left houses, or brothers, or sisters, or father, or mother, or wife, or children, or lands, for my name's sake, will receive one hundred times, and will inherit eternal life.
+28 And Jesus said unto them, Verily I say unto you, That ye which have followed me, in the regeneration when the Son of man shall sit in the throne of his glory, ye also shall sit upon twelve thrones, judging the twelve tribes of Israel.
 
-30. But many will be last who are first; and first who are last.
+29 And every one that hath forsaken houses, or brethren, or sisters, or father, or mother, or wife, or children, or lands, for my name's sake, shall receive an hundredfold, and shall inherit everlasting life.
 
+30 But many that are first shall be last; and the last shall be first.
 
-## Chapter 20
 
-1. "For the Kingdom of Heaven is like a man who was the master of a household, who went out early in the morning to hire laborers for his vineyard.
+## Matthew Chapter 20
 
-2. When he had agreed with the laborers for a denarius a day, he sent them into his vineyard.
+1 For the kingdom of heaven is like unto a man that is an householder, which went out early in the morning to hire labourers into his vineyard.
 
-3. He went out about the third hour, and saw others standing idle in the marketplace.
+2 And when he had agreed with the labourers for a penny a day, he sent them into his vineyard.
 
-4. To them he said, 'You also go into the vineyard, and whatever is right I will give you.' So they went their way.
+3 And he went out about the third hour, and saw others standing idle in the marketplace,
 
-5. Again he went out about the sixth and the ninth hour, and did likewise.
+4 And said unto them; Go ye also into the vineyard, and whatsoever is right I will give you. And they went their way.
 
-6. About the eleventh hour he went out, and found others standing idle. He said to them, 'Why do you stand here all day idle?'
+5 Again he went out about the sixth and ninth hour, and did likewise.
 
-7. "They said to him, 'Because no one has hired us.'     "He said to them, 'You also go into the vineyard, and you will receive whatever is right.'
+6 And about the eleventh hour he went out, and found others standing idle, and saith unto them, Why stand ye here all the day idle?
 
-8. When evening had come, the lord of the vineyard said to his manager, 'Call the laborers and pay them their wages, beginning from the last to the first.'
+7 They say unto him, Because no man hath hired us. He saith unto them, Go ye also into the vineyard; and whatsoever is right, that shall ye receive.
 
-9. "When those who were hired at about the eleventh hour came, they each received a denarius.
+8 So when even was come, the lord of the vineyard saith unto his steward, Call the labourers, and give them their hire, beginning from the last unto the first.
 
-10. When the first came, they supposed that they would receive more; and they likewise each received a denarius.
+9 And when they came that were hired about the eleventh hour, they received every man a penny.
 
-11. When they received it, they murmured against the master of the household,
+10 But when the first came, they supposed that they should have received more; and they likewise received every man a penny.
 
-12. saying, 'These last have spent one hour, and you have made them equal to us, who have borne the burden of the day and the scorching heat!'
+11 And when they had received it, they murmured against the goodman of the house,
 
-13. "But he answered one of them, 'Friend, I am doing you no wrong. Didn't you agree with me for a denarius?
+12 Saying, These last have wrought but one hour, and thou hast made them equal unto us, which have borne the burden and heat of the day.
 
-14. Take that which is yours, and go your way. It is my desire to give to this last just as much as to you.
+13 But he answered one of them, and said, Friend, I do thee no wrong: didst not thou agree with me for a penny?
 
-15. Isn't it lawful for me to do what I want to with what I own? Or is your eye evil, because I am good?'
+14 Take that thine is, and go thy way: I will give unto this last, even as unto thee.
 
-16. So the last will be first, and the first last. For many are called, but few are chosen."
+15 Is it not lawful for me to do what I will with mine own? Is thine eye evil, because I am good?
 
-17. As Jesus was going up to Jerusalem, he took the twelve disciples aside, and on the way he said to them,
+16 So the last shall be first, and the first last: for many be called, but few chosen.
 
-18. "Behold, we are going up to Jerusalem, and the Son of Man will be delivered to the chief priests and scribes, and they will condemn him to death,
+17 And Jesus going up to Jerusalem took the twelve disciples apart in the way, and said unto them,
 
-19. and will hand him over to the Gentiles to mock, to scourge, and to crucify; and the third day he will be raised up."
+18 Behold, we go up to Jerusalem; and the Son of man shall be betrayed unto the chief priests and unto the scribes, and they shall condemn him to death,
 
-20. Then the mother of the sons of Zebedee came to him with her sons, kneeling and asking a certain thing of him.
+19 And shall deliver him to the Gentiles to mock, and to scourge, and to crucify him: and the third day he shall rise again.
 
-21. He said to her, "What do you want?"     She said to him, "Command that these, my two sons, may sit, one on your right hand, and one on your left hand, in your Kingdom."
+20 Then came to him the mother of Zebedees children with her sons, worshipping him, and desiring a certain thing of him.
 
-22. But Jesus answered, "You don't know what you are asking. Are you able to drink the cup that I am about to drink, and be baptized with the baptism that I am baptized with?"     They said to him, "We are able."
+21 And he said unto her, What wilt thou? She saith unto him, Grant that these my two sons may sit, the one on thy right hand, and the other on the left, in thy kingdom.
 
-23. He said to them, "You will indeed drink my cup, and be baptized with the baptism that I am baptized with, but to sit on my right hand and on my left hand is not mine to give; but it is for whom it has been prepared by my Father."
+22 But Jesus answered and said, Ye know not what ye ask. Are ye able to drink of the cup that I shall drink of, and to be baptized with the baptism that I am baptized with? They say unto him, We are able.
 
-24. When the ten heard it, they were indignant with the two brothers.
+23 And he saith unto them, Ye shall drink indeed of my cup, and be baptized with the baptism that I am baptized with: but to sit on my right hand, and on my left, is not mine to give, but it shall be given to them for whom it is prepared of my Father.
 
-25. But Jesus summoned them, and said, "You know that the rulers of the nations lord it over them, and their great ones exercise authority over them.
+24 And when the ten heard it, they were moved with indignation against the two brethren.
 
-26. It shall not be so among you, but whoever desires to become great among you shall be your servant.
+25 But Jesus called them unto him, and said, Ye know that the princes of the Gentiles exercise dominion over them, and they that are great exercise authority upon them.
 
-27. Whoever desires to be first among you shall be your bondservant,
+26 But it shall not be so among you: but whosoever will be great among you, let him be your minister;
 
-28. even as the Son of Man came not to be served, but to serve, and to give his life as a ransom for many."
+27 And whosoever will be chief among you, let him be your servant:
 
-29. As they went out from Jericho, a great multitude followed him.
+28 Even as the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.
 
-30. Behold, two blind men sitting by the road, when they heard that Jesus was passing by, cried out, "Lord, have mercy on us, you son of David!"
+29 And as they departed from Jericho, a great multitude followed him.
 
-31. The multitude rebuked them, telling them that they should be quiet, but they cried out even more, "Lord, have mercy on us, you son of David!"
+30 And, behold, two blind men sitting by the way side, when they heard that Jesus passed by, cried out, saying, Have mercy on us, O Lord, thou son of David.
 
-32. Jesus stood still, and called them, and asked, "What do you want me to do for you?"
+31 And the multitude rebuked them, because they should hold their peace: but they cried the more, saying, Have mercy on us, O Lord, thou son of David.
 
-33. They told him, "Lord, that our eyes may be opened."
+32 And Jesus stood still, and called them, and said, What will ye that I shall do unto you?
 
-34. Jesus, being moved with compassion, touched their eyes; and immediately their eyes received their sight, and they followed him.
+33 They say unto him, Lord, that our eyes may be opened.
 
+34 So Jesus had compassion on them, and touched their eyes: and immediately their eyes received sight, and they followed him.
 
-## Chapter 21
 
-1. When they drew near to Jerusalem, and came to Bethsphage, to the Mount of Olives, then Jesus sent two disciples,
+## Matthew Chapter 21
 
-2. saying to them, "Go into the village that is opposite you, and immediately you will find a donkey tied, and a colt with her. Untie them, and bring them to me.
+1 And when they drew nigh unto Jerusalem, and were come to Bethphage, unto the mount of Olives, then sent Jesus two disciples,
 
-3. If anyone says anything to you, you shall say, 'The Lord needs them,' and immediately he will send them."
+2 Saying unto them, Go into the village over against you, and straightway ye shall find an ass tied, and a colt with her: loose them, and bring them unto me.
 
-4. All this was done, that it might be fulfilled which was spoken through the prophet, saying,
+3 And if any man say ought unto you, ye shall say, The Lord hath need of them; and straightway he will send them.
 
-5. "Tell the daughter of Zion,    behold, your King comes to you,    humble, and riding on a donkey,    on a colt, the foal of a donkey."
+4 All this was done, that it might be fulfilled which was spoken by the prophet, saying,
 
-6. The disciples went, and did just as Jesus commanded them,
+5 Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek, and sitting upon an ass, and a colt the foal of an ass.
 
-7. and brought the donkey and the colt, and laid their clothes on them; and he sat on them.
+6 And the disciples went, and did as Jesus commanded them,
 
-8. A very great multitude spread their clothes on the road. Others cut branches from the trees, and spread them on the road.
+7 And brought the ass, and the colt, and put on them their clothes, and they set him thereon.
 
-9. The multitudes who went before him, and who followed kept shouting, "Hosanna to the son of David! Blessed is he who comes in the name of the Lord! Hosanna in the highest!"
+8 And a very great multitude spread their garments in the way; others cut down branches from the trees, and strawed them in the way.
 
-10. When he had come into Jerusalem, all the city was stirred up, saying, "Who is this?"
+9 And the multitudes that went before, and that followed, cried, saying, Hosanna to the son of David: Blessed is he that cometh in the name of the Lord; Hosanna in the highest.
 
-11. The multitudes said, "This is the prophet, Jesus, from Nazareth of Galilee."
+10 And when he was come into Jerusalem, all the city was moved, saying, Who is this?
 
-12. Jesus entered into the temple of God, and drove out all of those who sold and bought in the temple, and overthrew the money changers' tables and the seats of those who sold the doves.
+11 And the multitude said, This is Jesus the prophet of Nazareth of Galilee.
 
-13. He said to them, "It is written, 'My house shall be called a house of prayer,' but you have made it a den of robbers!"
+12 And Jesus went into the temple of God, and cast out all them that sold and bought in the temple, and overthrew the tables of the moneychangers, and the seats of them that sold doves,
 
-14. The blind and the lame came to him in the temple, and he healed them.
+13 And said unto them, It is written, My house shall be called the house of prayer; but ye have made it a den of thieves.
 
-15. But when the chief priests and the scribes saw the wonderful things that he did, and the children who were crying in the temple and saying, "Hosanna to the son of David!" they were indignant,
+14 And the blind and the lame came to him in the temple; and he healed them.
 
-16. and said to him, "Do you hear what these are saying?"     Jesus said to them, "Yes. Did you never read, 'Out of the mouth of babes and nursing babies you have perfected praise?'"[100]
+15 And when the chief priests and scribes saw the wonderful things that he did, and the children crying in the temple, and saying, Hosanna to the son of David; they were sore displeased,
 
-17. He left them, and went out of the city to Bethany, and lodged there.
+16 And said unto him, Hearest thou what these say? And Jesus saith unto them, Yea; have ye never read, Out of the mouth of babes and sucklings thou hast perfected praise?
 
-18. Now in the morning, as he returned to the city, he was hungry.
+17 And he left them, and went out of the city into Bethany; and he lodged there.
 
-19. Seeing a fig tree by the road, he came to it, and found nothing on it but leaves. He said to it, "Let there be no fruit from you forever!"     Immediately the fig tree withered away.
+18 Now in the morning as he returned into the city, he hungered.
 
-20. When the disciples saw it, they marveled, saying, "How did the fig tree immediately wither away?"
+19 And when he saw a fig tree in the way, he came to it, and found nothing thereon, but leaves only, and said unto it, Let no fruit grow on thee henceforward for ever. And presently the fig tree withered away.
 
-21. Jesus answered them, "Most certainly I tell you, if you have faith, and don't doubt, you will not only do what was done to the fig tree, but even if you told this mountain, 'Be taken up and cast into the sea,' it would be done.
+20 And when the disciples saw it, they marvelled, saying, How soon is the fig tree withered away!
 
-22. All things, whatever you ask in prayer, believing, you will receive."
+21 Jesus answered and said unto them, Verily I say unto you, If ye have faith, and doubt not, ye shall not only do this which is done to the fig tree, but also if ye shall say unto this mountain, Be thou removed, and be thou cast into the sea; it shall be done.
 
-23. When he had come into the temple, the chief priests and the elders of the people came to him as he was teaching, and said, "By what authority do you do these things? Who gave you this authority?"
+22 And all things, whatsoever ye shall ask in prayer, believing, ye shall receive.
 
-24. Jesus answered them, "I also will ask you one question, which if you tell me, I likewise will tell you by what authority I do these things.
+23 And when he was come into the temple, the chief priests and the elders of the people came unto him as he was teaching, and said, By what authority doest thou these things? and who gave thee this authority?
 
-25. The baptism of John, where was it from? From heaven or from men?"     They reasoned with themselves, saying, "If we say, 'From heaven,' he will ask us, 'Why then did you not believe him?'
+24 And Jesus answered and said unto them, I also will ask you one thing, which if ye tell me, I in like wise will tell you by what authority I do these things.
 
-26. But if we say, 'From men,' we fear the multitude, for all hold John as a prophet."
+25 The baptism of John, whence was it? from heaven, or of men? And they reasoned with themselves, saying, If we shall say, From heaven; he will say unto us, Why did ye not then believe him?
 
-27. They answered Jesus, and said, "We don't know."     He also said to them, "Neither will I tell you by what authority I do these things.
+26 But if we shall say, Of men; we fear the people; for all hold John as a prophet.
 
-28. But what do you think? A man had two sons, and he came to the first, and said, 'Son, go work today in my vineyard.'
+27 And they answered Jesus, and said, We cannot tell. And he said unto them, Neither tell I you by what authority I do these things.
 
-29. He answered, 'I will not,' but afterward he changed his mind, and went.
+28 But what think ye? A certain man had two sons; and he came to the first, and said, Son, go work to day in my vineyard.
 
-30. He came to the second, and said the same thing. He answered, 'I go, sir,' but he didn't go.
+29 He answered and said, I will not: but afterward he repented, and went.
 
-31. Which of the two did the will of his father?"     They said to him, "The first."     Jesus said to them, "Most certainly I tell you that the tax collectors and the prostitutes are entering into the Kingdom of God before you.
+30 And he came to the second, and said likewise. And he answered and said, I go, sir: and went not.
 
-32. For John came to you in the way of righteousness, and you didn't believe him, but the tax collectors and the prostitutes believed him. When you saw it, you didn't even repent afterward, that you might believe him.
+31 Whether of them twain did the will of his father? They say unto him, The first. Jesus saith unto them, Verily I say unto you, That the publicans and the harlots go into the kingdom of God before you.
 
-33. "Hear another parable. There was a man who was a master of a household, who planted a vineyard, set a hedge about it, dug a winepress in it, built a tower, leased it out to farmers, and went into another country.
+32 For John came unto you in the way of righteousness, and ye believed him not: but the publicans and the harlots believed him: and ye, when ye had seen it, repented not afterward, that ye might believe him.
 
-34. When the season for the fruit drew near, he sent his servants to the farmers, to receive his fruit.
+33 Hear another parable: There was a certain householder, which planted a vineyard, and hedged it round about, and digged a winepress in it, and built a tower, and let it out to husbandmen, and went into a far country:
 
-35. The farmers took his servants, beat one, killed another, and stoned another.
+34 And when the time of the fruit drew near, he sent his servants to the husbandmen, that they might receive the fruits of it.
 
-36. Again, he sent other servants more than the first: and they treated them the same way.
+35 And the husbandmen took his servants, and beat one, and killed another, and stoned another.
 
-37. But afterward he sent to them his son, saying, 'They will respect my son.'
+36 Again, he sent other servants more than the first: and they did unto them likewise.
 
-38. But the farmers, when they saw the son, said among themselves, 'This is the heir. Come, let's kill him, and seize his inheritance.'
+37 But last of all he sent unto them his son, saying, They will reverence my son.
 
-39. So they took him, and threw him out of the vineyard, and killed him.
+38 But when the husbandmen saw the son, they said among themselves, This is the heir; come, let us kill him, and let us seize on his inheritance.
 
-40. When therefore the lord of the vineyard comes, what will he do to those farmers?"
+39 And they caught him, and cast him out of the vineyard, and slew him.
 
-41. They told him, "He will miserably destroy those miserable men, and will lease out the vineyard to other farmers, who will give him the fruit in its season."
+40 When the lord therefore of the vineyard cometh, what will he do unto those husbandmen?
 
-42. Jesus said to them, "Did you never read in the Scriptures, 'The stone which the builders rejected,    the same was made the head of the corner. This was from the Lord.    It is marvelous in our eyes?'[101]
+41 They say unto him, He will miserably destroy those wicked men, and will let out his vineyard unto other husbandmen, which shall render him the fruits in their seasons.
 
-43. "Therefore I tell you, the Kingdom of God will be taken away from you, and will be given to a nation bringing forth its fruit.
+42 Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, the same is become the head of the corner: this is the Lord's doing, and it is marvellous in our eyes?
 
-44. He who falls on this stone will be broken to pieces, but on whoever it will fall, it will scatter him as dust."
+43 Therefore say I unto you, The kingdom of God shall be taken from you, and given to a nation bringing forth the fruits thereof.
 
-45. When the chief priests and the Pharisees heard his parables, they perceived that he spoke about them.
+44 And whosoever shall fall on this stone shall be broken: but on whomsoever it shall fall, it will grind him to powder.
 
-46. When they sought to seize him, they feared the multitudes, because they considered him to be a prophet.
+45 And when the chief priests and Pharisees had heard his parables, they perceived that he spake of them.
 
+46 But when they sought to lay hands on him, they feared the multitude, because they took him for a prophet.
 
-## Chapter 22
 
-1. Jesus answered and spoke again in parables to them, saying,
+## Matthew Chapter 22
 
-2. "The Kingdom of Heaven is like a certain king, who made a marriage feast for his son,
+1 And Jesus answered and spake unto them again by parables, and said,
 
-3. and sent out his servants to call those who were invited to the marriage feast, but they would not come.
+2 The kingdom of heaven is like unto a certain king, which made a marriage for his son,
 
-4. Again he sent out other servants, saying, 'Tell those who are invited, "Behold, I have made ready my dinner. My cattle and my fatlings are killed, and all things are ready. Come to the marriage feast!"'
+3 And sent forth his servants to call them that were bidden to the wedding: and they would not come.
 
-5. But they made light of it, and went their ways, one to his own farm, another to his merchandise,
+4 Again, he sent forth other servants, saying, Tell them which are bidden, Behold, I have prepared my dinner: my oxen and my fatlings are killed, and all things are ready: come unto the marriage.
 
-6. and the rest grabbed his servants, and treated them shamefully, and killed them.
+5 But they made light of it, and went their ways, one to his farm, another to his merchandise:
 
-7. When the king heard that, he was angry, and sent his armies, destroyed those murderers, and burned their city.
+6 And the remnant took his servants, and entreated them spitefully, and slew them.
 
-8. "Then he said to his servants, 'The wedding is ready, but those who were invited weren't worthy.
+7 But when the king heard thereof, he was wroth: and he sent forth his armies, and destroyed those murderers, and burned up their city.
 
-9. Go therefore to the intersections of the highways, and as many as you may find, invite to the marriage feast.'
+8 Then saith he to his servants, The wedding is ready, but they which were bidden were not worthy.
 
-10. Those servants went out into the highways, and gathered together as many as they found, both bad and good. The wedding was filled with guests.
+9 Go ye therefore into the highways, and as many as ye shall find, bid to the marriage.
 
-11. But when the king came in to see the guests, he saw there a man who didn't have on wedding clothing,
+10 So those servants went out into the highways, and gathered together all as many as they found, both bad and good: and the wedding was furnished with guests.
 
-12. and he said to him, 'Friend, how did you come in here not wearing wedding clothing?' He was speechless.
+11 And when the king came in to see the guests, he saw there a man which had not on a wedding garment:
 
-13. Then the king said to the servants, 'Bind him hand and foot, take him away, and throw him into the outer darkness; there is where the weeping and grinding of teeth will be.'
+12 And he saith unto him, Friend, how camest thou in hither not having a wedding garment? And he was speechless.
 
-14. For many are called, but few chosen."
+13 Then said the king to the servants, Bind him hand and foot, and take him away, and cast him into outer darkness, there shall be weeping and gnashing of teeth.
 
-15. Then the Pharisees went and took counsel how they might entrap him in his talk.
+14 For many are called, but few are chosen.
 
-16. They sent their disciples to him, along with the Herodians, saying, "Teacher, we know that you are honest, and teach the way of God in truth, no matter who you teach, for you aren't partial to anyone.
+15 Then went the Pharisees, and took counsel how they might entangle him in his talk.
 
-17. Tell us therefore, what do you think? Is it lawful to pay taxes to Caesar, or not?"
+16 And they sent out unto him their disciples with the Herodians, saying, Master, we know that thou art true, and teachest the way of God in truth, neither carest thou for any man: for thou regardest not the person of men.
 
-18. But Jesus perceived their wickedness, and said, "Why do you test me, you hypocrites?
+17 Tell us therefore, What thinkest thou? Is it lawful to give tribute unto Caesar, or not?
 
-19. Show me the tax money."     They brought to him a denarius.
+18 But Jesus perceived their wickedness, and said, Why tempt ye me, ye hypocrites?
 
-20. He asked them, "Whose is this image and inscription?"
+19 Shew me the tribute money. And they brought unto him a penny.
 
-21. They said to him, "Caesar's."     Then he said to them, "Give therefore to Caesar the things that are Caesar's, and to God the things that are God's."
+20 And he saith unto them, Whose is this image and superscription?
 
-22. When they heard it, they marveled, and left him, and went away.
+21 They say unto him, Caesar's. Then saith he unto them, Render therefore unto Caesar the things which are Caesar's; and unto God the things that are God's.
 
-23. On that day Sadducees (those who say that there is no resurrection) came to him. They asked him,
+22 When they had heard these words, they marvelled, and left him, and went their way.
 
-24. saying, "Teacher, Moses said, 'If a man dies, having no children, his brother shall marry his wife, and raise up seed for his brother.'
+23 The same day came to him the Sadducees, which say that there is no resurrection, and asked him,
 
-25. Now there were with us seven brothers. The first married and died, and having no seed left his wife to his brother.
+24 Saying, Master, Moses said, If a man die, having no children, his brother shall marry his wife, and raise up seed unto his brother.
 
-26. In like manner the second also, and the third, to the seventh.
+25 Now there were with us seven brethren: and the first, when he had married a wife, deceased, and, having no issue, left his wife unto his brother:
 
-27. After them all, the woman died.
+26 Likewise the second also, and the third, unto the seventh.
 
-28. In the resurrection therefore, whose wife will she be of the seven? For they all had her."
+27 And last of all the woman died also.
 
-29. But Jesus answered them, "You are mistaken, not knowing the Scriptures, nor the power of God.
+28 Therefore in the resurrection whose wife shall she be of the seven? for they all had her.
 
-30. For in the resurrection they neither marry, nor are given in marriage, but are like God's angels in heaven.
+29 Jesus answered and said unto them, Ye do err, not knowing the scriptures, nor the power of God.
 
-31. But concerning the resurrection of the dead, haven't you read that which was spoken to you by God, saying,
+30 For in the resurrection they neither marry, nor are given in marriage, but are as the angels of God in heaven.
 
-32. 'I am the God of Abraham, and the God of Isaac, and the God of Jacob?'[102] God is not the God of the dead, but of the living."
+31 But as touching the resurrection of the dead, have ye not read that which was spoken unto you by God, saying,
 
-33. When the multitudes heard it, they were astonished at his teaching.
+32 I am the God of Abraham, and the God of Isaac, and the God of Jacob? God is not the God of the dead, but of the living.
 
-34. But the Pharisees, when they heard that he had silenced the Sadducees, gathered themselves together.
+33 And when the multitude heard this, they were astonished at his doctrine.
 
-35. One of them, a lawyer, asked him a question, testing him.
+34 But when the Pharisees had heard that he had put the Sadducees to silence, they were gathered together.
 
-36. "Teacher, which is the greatest commandment in the law?"
+35 Then one of them, which was a lawyer, asked him a question, tempting him, and saying,
 
-37. Jesus said to him, "'You shall love the Lord your God with all your heart, with all your soul, and with all your mind.'[103]
+36 Master, which is the great commandment in the law?
 
-38. This is the first and great commandment.
+37 Jesus said unto him, Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
 
-39. A second likewise is this, 'You shall love your neighbor as yourself.'[104]
+38 This is the first and great commandment.
 
-40. The whole law and the prophets depend on these two commandments."
+39 And the second is like unto it, Thou shalt love thy neighbour as thyself.
 
-41. Now while the Pharisees were gathered together, Jesus asked them a question,
+40 On these two commandments hang all the law and the prophets.
 
-42. saying, "What do you think of the Christ? Whose son is he?"     They said to him, "Of David."
+41 While the Pharisees were gathered together, Jesus asked them,
 
-43. He said to them, "How then does David in the Spirit call him Lord, saying,
+42 Saying, What think ye of Christ? whose son is he? They say unto him, The son of David.
 
-44. 'The Lord said to my Lord,    sit on my right hand,    until I make your enemies a footstool for your feet?'[105]
+43 He saith unto them, How then doth David in spirit call him Lord, saying,
 
-45. "If then David calls him Lord, how is he his son?"
+44 The Lord said unto my Lord, Sit thou on my right hand, till I make thine enemies thy footstool?
 
-46. No one was able to answer him a word, neither did any man dare ask him any more questions from that day forth.
+45 If David then call him Lord, how is he his son?
 
+46 And no man was able to answer him a word, neither durst any man from that day forth ask him any more questions.
 
-## Chapter 23
 
-1. Then Jesus spoke to the multitudes and to his disciples,
+## Matthew Chapter 23
 
-2. saying, "The scribes and the Pharisees sat on Moses' seat.
+1 Then spake Jesus to the multitude, and to his disciples,
 
-3. All things therefore whatever they tell you to observe, observe and do, but don't do their works; for they say, and don't do.
+2 Saying The scribes and the Pharisees sit in Moses' seat:
 
-4. For they bind heavy burdens that are grievous to be borne, and lay them on men's shoulders; but they themselves will not lift a finger to help them.
+3 All therefore whatsoever they bid you observe, that observe and do; but do not ye after their works: for they say, and do not.
 
-5. But all their works they do to be seen by men. They make their [106>]phylacteries[<106] broad, enlarge the [107>]fringes[<107] of their garments,
+4 For they bind heavy burdens and grievous to be borne, and lay them on men's shoulders; but they themselves will not move them with one of their fingers.
 
-6. and love the place of honor at feasts, the best seats in the synagogues,
+5 But all their works they do for to be seen of men: they make broad their phylacteries, and enlarge the borders of their garments,
 
-7. the salutations in the marketplaces, and to be called 'Rabbi, Rabbi' by men.
+6 And love the uppermost rooms at feasts, and the chief seats in the synagogues,
 
-8. But don't you be called 'Rabbi,' for one is your teacher, the Christ, and all of you are brothers.
+7 And greetings in the markets, and to be called of men, Rabbi, Rabbi.
 
-9. Call no man on the earth your father, for one is your Father, he who is in heaven.
+8 But be not ye called Rabbi: for one is your Master, even Christ; and all ye are brethren.
 
-10. Neither be called masters, for one is your master, the Christ.
+9 And call no man your father upon the earth: for one is your Father, which is in heaven.
 
-11. But he who is greatest among you will be your servant.
+10 Neither be ye called masters: for one is your Master, even Christ.
 
-12. Whoever exalts himself will be humbled, and whoever humbles himself will be exalted.
+11 But he that is greatest among you shall be your servant.
 
-13. [108>]"Woe to you, scribes and Pharisees, hypocrites! For you devour widows' houses, and as a pretense you make long prayers. Therefore you will receive greater condemnation.
+12 And whosoever shall exalt himself shall be abased; and he that shall humble himself shall be exalted.
 
-14. "But woe to you, scribes and Pharisees, hypocrites! Because you shut up the Kingdom of Heaven against men; for you don't enter in yourselves, neither do you allow those who are entering in to enter.[<108]
+13 But woe unto you, scribes and Pharisees, hypocrites! for ye shut up the kingdom of heaven against men: for ye neither go in yourselves, neither suffer ye them that are entering to go in.
 
-15. Woe to you, scribes and Pharisees, hypocrites! For you travel around by sea and land to make one proselyte; and when he becomes one, you make him twice as much of a son of [109>]Gehenna[<109] as yourselves.
+14 Woe unto you, scribes and Pharisees, hypocrites! for ye devour widows' houses, and for a pretence make long prayer: therefore ye shall receive the greater damnation.
 
-16. "Woe to you, you blind guides, who say, 'Whoever swears by the temple, it is nothing; but whoever swears by the gold of the temple, he is obligated.'
+15 Woe unto you, scribes and Pharisees, hypocrites! for ye compass sea and land to make one proselyte, and when he is made, ye make him twofold more the child of hell than yourselves.
 
-17. You blind fools! For which is greater, the gold, or the temple that sanctifies the gold?
+16 Woe unto you, ye blind guides, which say, Whosoever shall swear by the temple, it is nothing; but whosoever shall swear by the gold of the temple, he is a debtor!
 
-18. 'Whoever swears by the altar, it is nothing; but whoever swears by the gift that is on it, he is obligated?'
+17 Ye fools and blind: for whether is greater, the gold, or the temple that sanctifieth the gold?
 
-19. You blind fools! For which is greater, the gift, or the altar that sanctifies the gift?
+18 And, Whosoever shall swear by the altar, it is nothing; but whosoever sweareth by the gift that is upon it, he is guilty.
 
-20. He therefore who swears by the altar, swears by it, and by everything on it.
+19 Ye fools and blind: for whether is greater, the gift, or the altar that sanctifieth the gift?
 
-21. He who swears by the temple, swears by it, and by him who was living in it.
+20 Whoso therefore shall swear by the altar, sweareth by it, and by all things thereon.
 
-22. He who swears by heaven, swears by the throne of God, and by him who sits on it.
+21 And whoso shall swear by the temple, sweareth by it, and by him that dwelleth therein.
 
-23. "Woe to you, scribes and Pharisees, hypocrites! For you tithe mint, dill, and [110>]cumin,[<110] and have left undone the weightier matters of the law: justice, mercy, and faith. But you ought to have done these, and not to have left the other undone.
+22 And he that shall swear by heaven, sweareth by the throne of God, and by him that sitteth thereon.
 
-24. You blind guides, who strain out a gnat, and swallow a camel!
+23 Woe unto you, scribes and Pharisees, hypocrites! for ye pay tithe of mint and anise and cummin, and have omitted the weightier matters of the law, judgment, mercy, and faith: these ought ye to have done, and not to leave the other undone.
 
-25. "Woe to you, scribes and Pharisees, hypocrites! For you clean the outside of the cup and of the platter, but within they are full of extortion and [111>]unrighteousness.[<111]
+24 Ye blind guides, which strain at a gnat, and swallow a camel.
 
-26. You blind Pharisee, first clean the inside of the cup and of the platter, that its outside may become clean also.
+25 Woe unto you, scribes and Pharisees, hypocrites! for ye make clean the outside of the cup and of the platter, but within they are full of extortion and excess.
 
-27. "Woe to you, scribes and Pharisees, hypocrites! For you are like whitened tombs, which outwardly appear beautiful, but inwardly are full of dead men's bones, and of all uncleanness.
+26 Thou blind Pharisee, cleanse first that which is within the cup and platter, that the outside of them may be clean also.
 
-28. Even so you also outwardly appear righteous to men, but inwardly you are full of hypocrisy and iniquity.
+27 Woe unto you, scribes and Pharisees, hypocrites! for ye are like unto whited sepulchres, which indeed appear beautiful outward, but are within full of dead men's bones, and of all uncleanness.
 
-29. "Woe to you, scribes and Pharisees, hypocrites! For you build the tombs of the prophets, and decorate the tombs of the righteous,
+28 Even so ye also outwardly appear righteous unto men, but within ye are full of hypocrisy and iniquity.
 
-30. and say, 'If we had lived in the days of our fathers, we wouldn't have been partakers with them in the blood of the prophets.'
+29 Woe unto you, scribes and Pharisees, hypocrites! because ye build the tombs of the prophets, and garnish the sepulchres of the righteous,
 
-31. Therefore you testify to yourselves that you are children of those who killed the prophets.
+30 And say, If we had been in the days of our fathers, we would not have been partakers with them in the blood of the prophets.
 
-32. Fill up, then, the measure of your fathers.
+31 Wherefore ye be witnesses unto yourselves, that ye are the children of them which killed the prophets.
 
-33. You serpents, you offspring of vipers, how will you escape the judgment of [112>]Gehenna[<112]?
+32 Fill ye up then the measure of your fathers.
 
-34. Therefore, behold, I send to you prophets, wise men, and scribes. Some of them you will kill and crucify; and some of them you will scourge in your synagogues, and persecute from city to city;
+33 Ye serpents, ye generation of vipers, how can ye escape the damnation of hell?
 
-35. that on you may come all the righteous blood shed on the earth, from the blood of righteous Abel to the blood of Zachariah son of Barachiah, whom you killed between the sanctuary and the altar.
+34 Wherefore, behold, I send unto you prophets, and wise men, and scribes: and some of them ye shall kill and crucify; and some of them shall ye scourge in your synagogues, and persecute them from city to city:
 
-36. Most certainly I tell you, all these things will come upon this generation.
+35 That upon you may come all the righteous blood shed upon the earth, from the blood of righteous Abel unto the blood of Zacharias son of Barachias, whom ye slew between the temple and the altar.
 
-37. "Jerusalem, Jerusalem, who kills the prophets, and stones those who are sent to her! How often I would have gathered your children together, even as a hen gathers her chicks under her wings, and you would not!
+36 Verily I say unto you, All these things shall come upon this generation.
 
-38. Behold, your house is left to you desolate.
+37 O Jerusalem, Jerusalem, thou that killest the prophets, and stonest them which are sent unto thee, how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!
 
-39. For I tell you, you will not see me from now on, until you say, 'Blessed is he who comes in the name of the Lord!'"[113]
+38 Behold, your house is left unto you desolate.
 
+39 For I say unto you, Ye shall not see me henceforth, till ye shall say, Blessed is he that cometh in the name of the Lord.
 
-## Chapter 24
 
-1. Jesus went out from the temple, and was going on his way. His disciples came to him to show him the buildings of the temple.
+## Matthew Chapter 24
 
-2. But he answered them, "You see all of these things, don't you? Most certainly I tell you, there will not be left here one stone on another, that will not be thrown down."
+1 And Jesus went out, and departed from the temple: and his disciples came to him for to shew him the buildings of the temple.
 
-3. As he sat on the Mount of Olives, the disciples came to him privately, saying, "Tell us, when will these things be? What is the sign of your coming, and of the end of the age?"
+2 And Jesus said unto them, See ye not all these things? verily I say unto you, There shall not be left here one stone upon another, that shall not be thrown down.
 
-4. Jesus answered them, "Be careful that no one leads you astray.
+3 And as he sat upon the mount of Olives, the disciples came unto him privately, saying, Tell us, when shall these things be? and what shall be the sign of thy coming, and of the end of the world?
 
-5. For many will come in my name, saying, 'I am the Christ,' and will lead many astray.
+4 And Jesus answered and said unto them, Take heed that no man deceive you.
 
-6. You will hear of wars and rumors of wars. See that you aren't troubled, for all this must happen, but the end is not yet.
+5 For many shall come in my name, saying, I am Christ; and shall deceive many.
 
-7. For nation will rise against nation, and kingdom against kingdom; and there will be famines, plagues, and earthquakes in various places.
+6 And ye shall hear of wars and rumours of wars: see that ye be not troubled: for all these things must come to pass, but the end is not yet.
 
-8. But all these things are the beginning of birth pains.
+7 For nation shall rise against nation, and kingdom against kingdom: and there shall be famines, and pestilences, and earthquakes, in divers places.
 
-9. Then they will deliver you up to oppression, and will kill you. You will be hated by all of the nations for my name's sake.
+8 All these are the beginning of sorrows.
 
-10. Then many will stumble, and will deliver up one another, and will hate one another.
+9 Then shall they deliver you up to be afflicted, and shall kill you: and ye shall be hated of all nations for my name's sake.
 
-11. Many false prophets will arise, and will lead many astray.
+10 And then shall many be offended, and shall betray one another, and shall hate one another.
 
-12. Because iniquity will be multiplied, the love of many will grow cold.
+11 And many false prophets shall rise, and shall deceive many.
 
-13. But he who endures to the end, the same will be saved.
+12 And because iniquity shall abound, the love of many shall wax cold.
 
-14. This Good News of the Kingdom will be preached in the whole world for a testimony to all the nations, and then the end will come.
+13 But he that shall endure unto the end, the same shall be saved.
 
-15. "When, therefore, you see the abomination of desolation,[114] which was spoken of through Daniel the prophet, standing in the holy place (let the reader understand),
+14 And this gospel of the kingdom shall be preached in all the world for a witness unto all nations; and then shall the end come.
 
-16. then let those who are in Judea flee to the mountains.
+15 When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)
 
-17. Let him who is on the housetop not go down to take out things that are in his house.
+16 Then let them which be in Judaea flee into the mountains:
 
-18. Let him who is in the field not return back to get his clothes.
+17 Let him which is on the housetop not come down to take any thing out of his house:
 
-19. But woe to those who are with child and to nursing mothers in those days!
+18 Neither let him which is in the field return back to take his clothes.
 
-20. Pray that your flight will not be in the winter, nor on a Sabbath,
+19 And woe unto them that are with child, and to them that give suck in those days!
 
-21. for then there will be great oppression, such as has not been from the beginning of the world until now, no, nor ever will be.
+20 But pray ye that your flight be not in the winter, neither on the sabbath day:
 
-22. Unless those days had been shortened, no flesh would have been saved. But for the sake of the chosen ones, those days will be shortened.
+21 For then shall be great tribulation, such as was not since the beginning of the world to this time, no, nor ever shall be.
 
-23. "Then if any man tells you, 'Behold, here is the Christ,' or, 'There,' don't believe it.
+22 And except those days should be shortened, there should no flesh be saved: but for the elect's sake those days shall be shortened.
 
-24. For there will arise false christs, and false prophets, and they will show great signs and wonders, so as to lead astray, if possible, even the chosen ones.
+23 Then if any man shall say unto you, Lo, here is Christ, or there; believe it not.
 
-25. "Behold, I have told you beforehand.
+24 For there shall arise false Christs, and false prophets, and shall shew great signs and wonders; insomuch that, if it were possible, they shall deceive the very elect.
 
-26. If therefore they tell you, 'Behold, he is in the wilderness,' don't go out; 'Behold, he is in the inner chambers,' don't believe it.
+25 Behold, I have told you before.
 
-27. For as the lightning flashes from the east, and is seen even to the west, so will be the coming of the Son of Man.
+26 Wherefore if they shall say unto you, Behold, he is in the desert; go not forth: behold, he is in the secret chambers; believe it not.
 
-28. For wherever the carcass is, there is where the [115>]vultures[<115] gather together.
+27 For as the lightning cometh out of the east, and shineth even unto the west; so shall also the coming of the Son of man be.
 
-29. But immediately after the oppression of those days, the sun will be darkened, the moon will not give its light, the stars will fall from the sky, and the powers of the heavens will be shaken;[116]
+28 For wheresoever the carcase is, there will the eagles be gathered together.
 
-30. and then the sign of the Son of Man will appear in the sky. Then all the tribes of the earth will mourn, and they will see the Son of Man coming on the clouds of the sky with power and great glory.
+29 Immediately after the tribulation of those days shall the sun be darkened, and the moon shall not give her light, and the stars shall fall from heaven, and the powers of the heavens shall be shaken:
 
-31. He will send out his angels with a great sound of a trumpet, and they will gather together his chosen ones from the four winds, from one end of the sky to the other.
+30 And then shall appear the sign of the Son of man in heaven: and then shall all the tribes of the earth mourn, and they shall see the Son of man coming in the clouds of heaven with power and great glory.
 
-32. "Now from the fig tree learn this parable. When its branch has now become tender, and puts forth its leaves, you know that the summer is near.
+31 And he shall send his angels with a great sound of a trumpet, and they shall gather together his elect from the four winds, from one end of heaven to the other.
 
-33. Even so you also, when you see all these things, know that it is near, even at the doors.
+32 Now learn a parable of the fig tree; When his branch is yet tender, and putteth forth leaves, ye know that summer is nigh:
 
-34. Most certainly I tell you, this [117>]generation[<117] will not pass away, until all these things are accomplished.
+33 So likewise ye, when ye shall see all these things, know that it is near, even at the doors.
 
-35. Heaven and earth will pass away, but my words will not pass away.
+34 Verily I say unto you, This generation shall not pass, till all these things be fulfilled.
 
-36. But no one knows of that day and hour, not even the angels of heaven,[118] but my Father only.
+35 Heaven and earth shall pass away, but my words shall not pass away.
 
-37. "As the days of Noah were, so will be the coming of the Son of Man.
+36 But of that day and hour knoweth no man, no, not the angels of heaven, but my Father only.
 
-38. For as in those days which were before the flood they were eating and drinking, marrying and giving in marriage, until the day that Noah entered into the ship,
+37 But as the days of Noah were, so shall also the coming of the Son of man be.
 
-39. and they didn't know until the flood came, and took them all away, so will be the coming of the Son of Man.
+38 For as in the days that were before the flood they were eating and drinking, marrying and giving in marriage, until the day that Noe entered into the ark,
 
-40. Then two men will be in the field: one will be taken and one will be left;
+39 And knew not until the flood came, and took them all away; so shall also the coming of the Son of man be.
 
-41. two women grinding at the mill, one will be taken and one will be left.
+40 Then shall two be in the field; the one shall be taken, and the other left.
 
-42. Watch therefore, for you don't know in what hour your Lord comes.
+41 Two women shall be grinding at the mill; the one shall be taken, and the other left.
 
-43. But know this, that if the master of the house had known in what watch of the night the thief was coming, he would have watched, and would not have allowed his house to be broken into.
+42 Watch therefore: for ye know not what hour your Lord doth come.
 
-44. Therefore also be ready, for in an hour that you don't expect, the Son of Man will come.
+43 But know this, that if the goodman of the house had known in what watch the thief would come, he would have watched, and would not have suffered his house to be broken up.
 
-45. "Who then is the faithful and wise servant, whom his lord has set over his household, to give them their food in due season?
+44 Therefore be ye also ready: for in such an hour as ye think not the Son of man cometh.
 
-46. Blessed is that servant whom his lord finds doing so when he comes.
+45 Who then is a faithful and wise servant, whom his lord hath made ruler over his household, to give them meat in due season?
 
-47. Most certainly I tell you that he will set him over all that he has.
+46 Blessed is that servant, whom his lord when he cometh shall find so doing.
 
-48. But if that evil servant should say in his heart, 'My lord is delaying his coming,'
+47 Verily I say unto you, That he shall make him ruler over all his goods.
 
-49. and begins to beat his fellow servants, and eat and drink with the drunkards,
+48 But and if that evil servant shall say in his heart, My lord delayeth his coming;
 
-50. the lord of that servant will come in a day when he doesn't expect it, and in an hour when he doesn't know it,
+49 And shall begin to smite his fellowservants, and to eat and drink with the drunken;
 
-51. and will cut him in pieces, and appoint his portion with the hypocrites. There is where the weeping and grinding of teeth will be.
+50 The lord of that servant shall come in a day when he looketh not for him, and in an hour that he is not aware of,
 
+51 And shall cut him asunder, and appoint him his portion with the hypocrites: there shall be weeping and gnashing of teeth.
 
-## Chapter 25
 
-1. "Then the Kingdom of Heaven will be like ten virgins, who took their lamps, and went out to meet the bridegroom.
+## Matthew Chapter 25
 
-2. Five of them were foolish, and five were wise.
+1 Then shall the kingdom of heaven be likened unto ten virgins, which took their lamps, and went forth to meet the bridegroom.
 
-3. Those who were foolish, when they took their lamps, took no oil with them,
+2 And five of them were wise, and five were foolish.
 
-4. but the wise took oil in their vessels with their lamps.
+3 They that were foolish took their lamps, and took no oil with them:
 
-5. Now while the bridegroom delayed, they all slumbered and slept.
+4 But the wise took oil in their vessels with their lamps.
 
-6. But at midnight there was a cry, 'Behold! The bridegroom is coming! Come out to meet him!'
+5 While the bridegroom tarried, they all slumbered and slept.
 
-7. Then all those virgins arose, and [119>]trimmed their lamps.[<119]
+6 And at midnight there was a cry made, Behold, the bridegroom cometh; go ye out to meet him.
 
-8. The foolish said to the wise, 'Give us  some of your oil, for our lamps are going out.'
+7 Then all those virgins arose, and trimmed their lamps.
 
-9. But the wise answered, saying, 'What if there isn't enough for us and you? You go rather to those who sell, and buy for yourselves.'
+8 And the foolish said unto the wise, Give us of your oil; for our lamps are gone out.
 
-10. While they went away to buy, the bridegroom came, and those who were ready went in with him to the marriage feast, and the door was shut.
+9 But the wise answered, saying, Not so; lest there be not enough for us and you: but go ye rather to them that sell, and buy for yourselves.
 
-11. Afterward the other virgins also came, saying, 'Lord, Lord, open to us.'
+10 And while they went to buy, the bridegroom came; and they that were ready went in with him to the marriage: and the door was shut.
 
-12. But he answered, 'Most certainly I tell you, I don't know you.'
+11 Afterward came also the other virgins, saying, Lord, Lord, open to us.
 
-13. Watch therefore, for you don't know the day nor the hour in which the Son of Man is coming.
+12 But he answered and said, Verily I say unto you, I know you not.
 
-14. "For it is like a man, going into another country, who called his own servants, and entrusted his goods to them.
+13 Watch therefore, for ye know neither the day nor the hour wherein the Son of man cometh.
 
-15. To one he gave five talents, to another two, to another one; to each according to his own ability. Then he went on his journey.
+14 For the kingdom of heaven is as a man travelling into a far country, who called his own servants, and delivered unto them his goods.
 
-16. Immediately he who received the five talents went and traded with them, and made another five talents.
+15 And unto one he gave five talents, to another two, and to another one; to every man according to his several ability; and straightway took his journey.
 
-17. In like manner he also who got the two gained another two.
+16 Then he that had received the five talents went and traded with the same, and made them other five talents.
 
-18. But he who received the one went away and dug in the earth, and hid his lord's money.
+17 And likewise he that had received two, he also gained other two.
 
-19. "Now after a long time the lord of those servants came, and reconciled accounts with them.
+18 But he that had received one went and digged in the earth, and hid his lord's money.
 
-20. He who received the five talents came and brought another five talents, saying, 'Lord, you delivered to me five talents. Behold, I have gained another five talents besides them.'
+19 After a long time the lord of those servants cometh, and reckoneth with them.
 
-21. "His lord said to him, 'Well done, good and faithful servant. You have been faithful over a few things, I will set you over many things. Enter into the joy of your lord.'
+20 And so he that had received five talents came and brought other five talents, saying, Lord, thou deliveredst unto me five talents: behold, I have gained beside them five talents more.
 
-22. "He also who got the two talents came and said, 'Lord, you delivered to me two talents. Behold, I have gained another two talents besides them.'
+21 His lord said unto him, Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.
 
-23. "His lord said to him, 'Well done, good and faithful servant. You have been faithful over a few things, I will set you over many things. Enter into the joy of your lord.'
+22 He also that had received two talents came and said, Lord, thou deliveredst unto me two talents: behold, I have gained two other talents beside them.
 
-24. "He also who had received the one talent came and said, 'Lord, I knew you that you are a hard man, reaping where you did not sow, and gathering where you did not scatter.
+23 His lord said unto him, Well done, good and faithful servant; thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.
 
-25. I was afraid, and went away and hid your talent in the earth. Behold, you have what is yours.'
+24 Then he which had received the one talent came and said, Lord, I knew thee that thou art an hard man, reaping where thou hast not sown, and gathering where thou hast not strawed:
 
-26. "But his lord answered him, 'You wicked and slothful servant. You knew that I reap where I didn't sow, and gather where I didn't scatter.
+25 And I was afraid, and went and hid thy talent in the earth: lo, there thou hast that is thine.
 
-27. You ought therefore to have deposited my money with the bankers, and at my coming I should have received back my own with interest.
+26 His lord answered and said unto him, Thou wicked and slothful servant, thou knewest that I reap where I sowed not, and gather where I have not strawed:
 
-28. Take away therefore the talent from him, and give it to him who has the ten talents.
+27 Thou oughtest therefore to have put my money to the exchangers, and then at my coming I should have received mine own with usury.
 
-29. For to everyone who has will be given, and he will have abundance, but from him who doesn't have, even that which he has will be taken away.
+28 Take therefore the talent from him, and give it unto him which hath ten talents.
 
-30. Throw out the unprofitable servant into the outer darkness, where there will be weeping and gnashing of teeth.'
+29 For unto every one that hath shall be given, and he shall have abundance: but from him that hath not shall be taken away even that which he hath.
 
-31. "But when the Son of Man comes in his glory, and all the holy angels with him, then he will sit on the throne of his glory.
+30 And cast ye the unprofitable servant into outer darkness: there shall be weeping and gnashing of teeth.
 
-32. Before him all the nations will be gathered, and he will separate them one from another, as a shepherd separates the sheep from the goats.
+31 When the Son of man shall come in his glory, and all the holy angels with him, then shall he sit upon the throne of his glory:
 
-33. He will set the sheep on his right hand, but the goats on the left.
+32 And before him shall be gathered all nations: and he shall separate them one from another, as a shepherd divideth his sheep from the goats:
 
-34. Then the King will tell those on his right hand, 'Come, blessed of my Father, inherit the Kingdom prepared for you from the foundation of the world;
+33 And he shall set the sheep on his right hand, but the goats on the left.
 
-35. for I was hungry, and you gave me food to eat. I was thirsty, and you gave me drink. I was a stranger, and you took me in.
+34 Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
 
-36. I was naked, and you clothed me. I was sick, and you visited me. I was in prison, and you came to me.'
+35 For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-37. "Then the righteous will answer him, saying, 'Lord, when did we see you hungry, and feed you; or thirsty, and give you a drink?
+36 Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.
 
-38. When did we see you as a stranger, and take you in; or naked, and clothe you?
+37 Then shall the righteous answer him, saying, Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
 
-39. When did we see you sick, or in prison, and come to you?'
+38 When saw we thee a stranger, and took thee in? or naked, and clothed thee?
 
-40. "The King will answer them, 'Most certainly I tell you, inasmuch as you did it to one of the least of these my [120>]brothers[<120], you did it to me.'
+39 Or when saw we thee sick, or in prison, and came unto thee?
 
-41. Then he will say also to those on the left hand, 'Depart from me, you cursed, into the eternal fire which is prepared for the devil and his angels;
+40 And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.
 
-42. for I was hungry, and you didn't give me food to eat; I was thirsty, and you gave me no drink;
+41 Then shall he say also unto them on the left hand, Depart from me, ye cursed, into everlasting fire, prepared for the devil and his angels:
 
-43. I was a stranger, and you didn't take me in; naked, and you didn't clothe me; sick, and in prison, and you didn't visit me.'
+42 For I was an hungred, and ye gave me no meat: I was thirsty, and ye gave me no drink:
 
-44. "Then they will also answer, saying, 'Lord, when did we see you hungry, or thirsty, or a stranger, or naked, or sick, or in prison, and didn't help you?'
+43 I was a stranger, and ye took me not in: naked, and ye clothed me not: sick, and in prison, and ye visited me not.
 
-45. "Then he will answer them, saying, 'Most certainly I tell you, inasmuch as you didn't do it to one of the least of these, you didn't do it to me.'
+44 Then shall they also answer him, saying, Lord, when saw we thee an hungred, or athirst, or a stranger, or naked, or sick, or in prison, and did not minister unto thee?
 
-46. These will go away into eternal punishment, but the righteous into eternal life."
+45 Then shall he answer them, saying, Verily I say unto you, Inasmuch as ye did it not to one of the least of these, ye did it not to me.
 
+46 And these shall go away into everlasting punishment: but the righteous into life eternal.
 
-## Chapter 26
 
-1. It happened, when Jesus had finished all these words, that he said to his disciples,
+## Matthew Chapter 26
 
-2. "You know that after two days the Passover is coming, and the Son of Man will be delivered up to be crucified."
+1 And it came to pass, when Jesus had finished all these sayings, he said unto his disciples,
 
-3. Then the chief priests, the scribes, and the elders of the people were gathered together in the court of the high priest, who was called Caiaphas.
+2 Ye know that after two days is the feast of the passover, and the Son of man is betrayed to be crucified.
 
-4. They took counsel together that they might take Jesus by deceit, and kill him.
+3 Then assembled together the chief priests, and the scribes, and the elders of the people, unto the palace of the high priest, who was called Caiaphas,
 
-5. But they said, "Not during the feast, lest a riot occur among the people."
+4 And consulted that they might take Jesus by subtilty, and kill him.
 
-6. Now when Jesus was in Bethany, in the house of Simon the leper,
+5 But they said, Not on the feast day, lest there be an uproar among the people.
 
-7. a woman came to him having an alabaster jar of very expensive ointment, and she poured it on his head as he sat at the table.
+6 Now when Jesus was in Bethany, in the house of Simon the leper,
 
-8. But when his disciples saw this, they were indignant, saying, "Why this waste?
+7 There came unto him a woman having an alabaster box of very precious ointment, and poured it on his head, as he sat at meat.
 
-9. For this ointment might have been sold for much, and given to the poor."
+8 But when his disciples saw it, they had indignation, saying, To what purpose is this waste?
 
-10. However, knowing this, Jesus said to them, "Why do you trouble the woman? Because she has done a good work for me.
+9 For this ointment might have been sold for much, and given to the poor.
 
-11. For you always have the poor with you; but you don't always have me.
+10 When Jesus understood it, he said unto them, Why trouble ye the woman? for she hath wrought a good work upon me.
 
-12. For in pouring this ointment on my body, she did it to prepare me for burial.
+11 For ye have the poor always with you; but me ye have not always.
 
-13. Most certainly I tell you, wherever this Good News is preached in the whole world, what this woman has done will also be spoken of as a memorial of her."
+12 For in that she hath poured this ointment on my body, she did it for my burial.
 
-14. Then one of the twelve, who was called Judas Iscariot, went to the chief priests,
+13 Verily I say unto you, Wheresoever this gospel shall be preached in the whole world, there shall also this, that this woman hath done, be told for a memorial of her.
 
-15. and said, "What are you willing to give me, that I should deliver him to you?" They weighed out for him thirty pieces of silver.
+14 Then one of the twelve, called Judas Iscariot, went unto the chief priests,
 
-16. From that time he sought opportunity to betray him.
+15 And said unto them, What will ye give me, and I will deliver him unto you? And they covenanted with him for thirty pieces of silver.
 
-17. Now on the first day of unleavened bread, the disciples came to Jesus, saying to him, "Where do you want us to prepare for you to eat the Passover?"
+16 And from that time he sought opportunity to betray him.
 
-18. He said, "Go into the city to a certain person, and tell him, 'The Teacher says, "My time is at hand. I will keep the Passover at your house with my disciples."'"
+17 Now the first day of the feast of unleavened bread the disciples came to Jesus, saying unto him, Where wilt thou that we prepare for thee to eat the passover?
 
-19. The disciples did as Jesus commanded them, and they prepared the Passover.
+18 And he said, Go into the city to such a man, and say unto him, The Master saith, My time is at hand; I will keep the passover at thy house with my disciples.
 
-20. Now when evening had come, he was reclining at the table with the twelve disciples.
+19 And the disciples did as Jesus had appointed them; and they made ready the passover.
 
-21. As they were eating, he said, "Most certainly I tell you that one of you will betray me."
+20 Now when the even was come, he sat down with the twelve.
 
-22. They were exceedingly sorrowful, and each began to ask him, "It isn't me, is it, Lord?"
+21 And as they did eat, he said, Verily I say unto you, that one of you shall betray me.
 
-23. He answered, "He who dipped his hand with me in the dish, the same will betray me.
+22 And they were exceeding sorrowful, and began every one of them to say unto him, Lord, is it I?
 
-24. The Son of Man goes, even as it is written of him, but woe to that man through whom the Son of Man is betrayed! It would be better for that man if he had not been born."
+23 And he answered and said, He that dippeth his hand with me in the dish, the same shall betray me.
 
-25. Judas, who betrayed him, answered, "It isn't me, is it, Rabbi?"     He said to him, "You said it."
+24 The Son of man goeth as it is written of him: but woe unto that man by whom the Son of man is betrayed! it had been good for that man if he had not been born.
 
-26. As they were eating, Jesus took bread, [121>]gave thanks for[<121] it, and broke it. He gave to the disciples, and said, "Take, eat; this is my body."
+25 Then Judas, which betrayed him, answered and said, Master, is it I? He said unto him, Thou hast said.
 
-27. He took the cup, gave thanks, and gave to them, saying, "All of you drink it,
+26 And as they were eating, Jesus took bread, and blessed it, and brake it, and gave it to the disciples, and said, Take, eat; this is my body.
 
-28. for this is my blood of the new covenant, which is poured out for many for the remission of sins.
+27 And he took the cup, and gave thanks, and gave it to them, saying, Drink ye all of it;
 
-29. But I tell you that I will not drink of this fruit of the vine from now on, until that day when I drink it anew with you in my Father's Kingdom."
+28 For this is my blood of the new testament, which is shed for many for the remission of sins.
 
-30. When they had sung a hymn, they went out to the Mount of Olives.
+29 But I say unto you, I will not drink henceforth of this fruit of the vine, until that day when I drink it new with you in my Father's kingdom.
 
-31. Then Jesus said to them, "All of you will be made to stumble because of me tonight, for it is written, 'I will strike the shepherd, and the sheep of the flock will be scattered.'[122]
+30 And when they had sung an hymn, they went out into the mount of Olives.
 
-32. But after I am raised up, I will go before you into Galilee."
+31 Then saith Jesus unto them, All ye shall be offended because of me this night: for it is written, I will smite the shepherd, and the sheep of the flock shall be scattered abroad.
 
-33. But Peter answered him, "Even if all will be made to stumble because of you, I will never be made to stumble."
+32 But after I am risen again, I will go before you into Galilee.
 
-34. Jesus said to him, "Most certainly I tell you that tonight, before the rooster crows, you will deny me three times."
+33 Peter answered and said unto him, Though all men shall be offended because of thee, yet will I never be offended.
 
-35. Peter said to him, "Even if I must die with you, I will not deny you." All of the disciples also said likewise.
+34 Jesus said unto him, Verily I say unto thee, That this night, before the cock crow, thou shalt deny me thrice.
 
-36. Then Jesus came with them to a place called Gethsemane, and said to his disciples, "Sit here, while I go there and pray."
+35 Peter said unto him, Though I should die with thee, yet will I not deny thee. Likewise also said all the disciples.
 
-37. He took with him Peter and the two sons of Zebedee, and began to be sorrowful and severely troubled.
+36 Then cometh Jesus with them unto a place called Gethsemane, and saith unto the disciples, Sit ye here, while I go and pray yonder.
 
-38. Then he said to them, "My soul is exceedingly sorrowful, even to death. Stay here, and watch with me."
+37 And he took with him Peter and the two sons of Zebedee, and began to be sorrowful and very heavy.
 
-39. He went forward a little, fell on his face, and prayed, saying, "My Father, if it is possible, let this cup pass away from me; nevertheless, not what I desire, but what you desire."
+38 Then saith he unto them, My soul is exceeding sorrowful, even unto death: tarry ye here, and watch with me.
 
-40. He came to the disciples, and found them sleeping, and said to Peter, "What, couldn't you watch with me for one hour?
+39 And he went a little farther, and fell on his face, and prayed, saying, O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.
 
-41. Watch and pray, that you don't enter into temptation. The spirit indeed is willing, but the flesh is weak."
+40 And he cometh unto the disciples, and findeth them asleep, and saith unto Peter, What, could ye not watch with me one hour?
 
-42. Again, a second time he went away, and prayed, saying, "My Father, if this cup can't pass away from me unless I drink it, your desire be done."
+41 Watch and pray, that ye enter not into temptation: the spirit indeed is willing, but the flesh is weak.
 
-43. He came again and found them sleeping, for their eyes were heavy.
+42 He went away again the second time, and prayed, saying, O my Father, if this cup may not pass away from me, except I drink it, thy will be done.
 
-44. He left them again, went away, and prayed a third time, saying the same words.
+43 And he came and found them asleep again: for their eyes were heavy.
 
-45. Then he came to his disciples, and said to them, "Sleep on now, and take your rest. Behold, the hour is at hand, and the Son of Man is betrayed into the hands of sinners.
+44 And he left them, and went away again, and prayed the third time, saying the same words.
 
-46. Arise, let's be going. Behold, he who betrays me is at hand."
+45 Then cometh he to his disciples, and saith unto them, Sleep on now, and take your rest: behold, the hour is at hand, and the Son of man is betrayed into the hands of sinners.
 
-47. While he was still speaking, behold, Judas, one of the twelve, came, and with him a great multitude with swords and clubs, from the chief priest and elders of the people.
+46 Rise, let us be going: behold, he is at hand that doth betray me.
 
-48. Now he who betrayed him gave them a sign, saying, "Whoever I kiss, he is the one. Seize him."
+47 And while he yet spake, lo, Judas, one of the twelve, came, and with him a great multitude with swords and staves, from the chief priests and elders of the people.
 
-49. Immediately he came to Jesus, and said, "Hail, Rabbi!" and kissed him.
+48 Now he that betrayed him gave them a sign, saying, Whomsoever I shall kiss, that same is he: hold him fast.
 
-50. Jesus said to him, "Friend, why are you here?" Then they came and laid hands on Jesus, and took him.
+49 And forthwith he came to Jesus, and said, Hail, master; and kissed him.
 
-51. Behold, one of those who were with Jesus stretched out his hand, and drew his sword, and struck the servant of the high priest, and struck off his ear.
+50 And Jesus said unto him, Friend, wherefore art thou come? Then came they, and laid hands on Jesus and took him.
 
-52. Then Jesus said to him, "Put your sword back into its place, for all those who take the sword will die by the sword.
+51 And, behold, one of them which were with Jesus stretched out his hand, and drew his sword, and struck a servant of the high priest's, and smote off his ear.
 
-53. Or do you think that I couldn't ask my Father, and he would even now send me more than twelve legions of angels?
+52 Then said Jesus unto him, Put up again thy sword into his place: for all they that take the sword shall perish with the sword.
 
-54. How then would the Scriptures be fulfilled that it must be so?"
+53 Thinkest thou that I cannot now pray to my Father, and he shall presently give me more than twelve legions of angels?
 
-55. In that hour Jesus said to the multitudes, "Have you come out as against a robber with swords and clubs to seize me? I sat daily in the temple teaching, and you didn't arrest me.
+54 But how then shall the scriptures be fulfilled, that thus it must be?
 
-56. But all this has happened, that the Scriptures of the prophets might be fulfilled."     Then all the disciples left him, and fled.
+55 In that same hour said Jesus to the multitudes, Are ye come out as against a thief with swords and staves for to take me? I sat daily with you teaching in the temple, and ye laid no hold on me.
 
-57. Those who had taken Jesus led him away to Caiaphas the high priest, where the scribes and the elders were gathered together.
+56 But all this was done, that the scriptures of the prophets might be fulfilled. Then all the disciples forsook him, and fled.
 
-58. But Peter followed him from a distance, to the court of the high priest, and entered in and sat with the officers, to see the end.
+57 And they that had laid hold on Jesus led him away to Caiaphas the high priest, where the scribes and the elders were assembled.
 
-59. Now the chief priests, the elders, and the whole council sought false testimony against Jesus, that they might put him to death;
+58 But Peter followed him afar off unto the high priest's palace, and went in, and sat with the servants, to see the end.
 
-60. and they found none. Even though many false witnesses came forward, they found none. But at last two false witnesses came forward,
+59 Now the chief priests, and elders, and all the council, sought false witness against Jesus, to put him to death;
 
-61. and said, "This man said, 'I am able to destroy the temple of God, and to build it in three days.'"
+60 But found none: yea, though many false witnesses came, yet found they none. At the last came two false witnesses,
 
-62. The high priest stood up, and said to him, "Have you no answer? What is this that these testify against you?"
+61 And said, This fellow said, I am able to destroy the temple of God, and to build it in three days.
 
-63. But Jesus held his peace. The high priest answered him, "I adjure you by the living God, that you tell us whether you are the Christ, the Son of God."
+62 And the high priest arose, and said unto him, Answerest thou nothing? what is it which these witness against thee?
 
-64. Jesus said to him, "You have said it. Nevertheless, I tell you, after this you will see the Son of Man sitting at the right hand of Power, and coming on the clouds of the sky."
+63 But Jesus held his peace, And the high priest answered and said unto him, I adjure thee by the living God, that thou tell us whether thou be the Christ, the Son of God.
 
-65. Then the high priest tore his clothing, saying, "He has spoken blasphemy! Why do we need any more witnesses? Behold, now you have heard his blasphemy.
+64 Jesus saith unto him, Thou hast said: nevertheless I say unto you, Hereafter shall ye see the Son of man sitting on the right hand of power, and coming in the clouds of heaven.
 
-66. What do you think?"     They answered, "He is worthy of death!"
+65 Then the high priest rent his clothes, saying, He hath spoken blasphemy; what further need have we of witnesses? behold, now ye have heard his blasphemy.
 
-67. Then they spit in his face and beat him with their fists, and some slapped him,
+66 What think ye? They answered and said, He is guilty of death.
 
-68. saying, "Prophesy to us, you Christ! Who hit you?"
+67 Then did they spit in his face, and buffeted him; and others smote him with the palms of their hands,
 
-69. Now Peter was sitting outside in the court, and a maid came to him, saying, "You were also with Jesus, the Galilean!"
+68 Saying, Prophesy unto us, thou Christ, Who is he that smote thee?
 
-70. But he denied it before them all, saying, "I don't know what you are talking about."
+69 Now Peter sat without in the palace: and a damsel came unto him, saying, Thou also wast with Jesus of Galilee.
 
-71. When he had gone out onto the porch, someone else saw him, and said to those who were there, "This man also was with Jesus of Nazareth."
+70 But he denied before them all, saying, I know not what thou sayest.
 
-72. Again he denied it with an oath, "I don't know the man."
+71 And when he was gone out into the porch, another maid saw him, and said unto them that were there, This fellow was also with Jesus of Nazareth.
 
-73. After a little while those who stood by came and said to Peter, "Surely you are also one of them, for your speech makes you known."
+72 And again he denied with an oath, I do not know the man.
 
-74. Then he began to curse and to swear, "I don't know the man!"     Immediately the rooster crowed.
+73 And after a while came unto him they that stood by, and said to Peter, Surely thou also art one of them; for thy speech bewrayeth thee.
 
-75. Peter remembered the word which Jesus had said to him, "Before the rooster crows, you will deny me three times." He went out and wept bitterly.
+74 Then began he to curse and to swear, saying, I know not the man. And immediately the cock crew.
 
+75 And Peter remembered the word of Jesus, which said unto him, Before the cock crow, thou shalt deny me thrice. And he went out, and wept bitterly.
 
-## Chapter 27
 
-1. Now when morning had come, all the chief priests and the elders of the people took counsel against Jesus to put him to death:
+## Matthew Chapter 27
 
-2. and they bound him, and led him away, and delivered him up to Pontius Pilate, the governor.
+1 When the morning was come, all the chief priests and elders of the people took counsel against Jesus to put him to death:
 
-3. Then Judas, who betrayed him, when he saw that Jesus was condemned, felt remorse, and brought back the thirty pieces of silver to the chief priests and elders,
+2 And when they had bound him, they led him away, and delivered him to Pontius Pilate the governor.
 
-4. saying, "I have sinned in that I betrayed innocent blood."     But they said, "What is that to us? You see to it."
+3 Then Judas, which had betrayed him, when he saw that he was condemned, repented himself, and brought again the thirty pieces of silver to the chief priests and elders,
 
-5. He threw down the pieces of silver in the sanctuary, and departed. He went away and hanged himself.
+4 Saying, I have sinned in that I have betrayed the innocent blood. And they said, What is that to us? see thou to that.
 
-6. The chief priests took the pieces of silver, and said, "It's not lawful to put them into the treasury, since it is the price of blood."
+5 And he cast down the pieces of silver in the temple, and departed, and went and hanged himself.
 
-7. They took counsel, and bought the potter's field with them, to bury strangers in.
+6 And the chief priests took the silver pieces, and said, It is not lawful for to put them into the treasury, because it is the price of blood.
 
-8. Therefore that field was called "The Field of Blood" to this day.
+7 And they took counsel, and bought with them the potter's field, to bury strangers in.
 
-9. Then that which was spoken through [123>]Jeremiah[<123] the prophet was fulfilled, saying, "They took the thirty pieces of silver,    the price of him upon whom a price had been set,    whom some of the children of Israel priced,
+8 Wherefore that field was called, The field of blood, unto this day.
 
-10. and they gave them for the potter's field,    as the Lord commanded me."[124]
+9 Then was fulfilled that which was spoken by Jeremy the prophet, saying, And they took the thirty pieces of silver, the price of him that was valued, whom they of the children of Israel did value;
 
-11. Now Jesus stood before the governor: and the governor asked him, saying, "Are you the King of the Jews?"     Jesus said to him, "So you say."
+10 And gave them for the potter's field, as the Lord appointed me.
 
-12. When he was accused by the chief priests and elders, he answered nothing.
+11 And Jesus stood before the governor: and the governor asked him, saying, Art thou the King of the Jews? And Jesus said unto him, Thou sayest.
 
-13. Then Pilate said to him, "Don't you hear how many things they testify against you?"
+12 And when he was accused of the chief priests and elders, he answered nothing.
 
-14. He gave him no answer, not even one word, so that the governor marveled greatly.
+13 Then said Pilate unto him, Hearest thou not how many things they witness against thee?
 
-15. Now at the feast the governor was accustomed to release to the multitude one prisoner, whom they desired.
+14 And he answered him to never a word; insomuch that the governor marvelled greatly.
 
-16. They had then a notable prisoner, called Barabbas.
+15 Now at that feast the governor was wont to release unto the people a prisoner, whom they would.
 
-17. When therefore they were gathered together, Pilate said to them, "Whom do you want me to release to you? Barabbas, or Jesus, who is called Christ?"
+16 And they had then a notable prisoner, called Barabbas.
 
-18. For he knew that because of envy they had delivered him up.
+17 Therefore when they were gathered together, Pilate said unto them, Whom will ye that I release unto you? Barabbas, or Jesus which is called Christ?
 
-19. While he was sitting on the judgment seat, his wife sent to him, saying, "Have nothing to do with that righteous man, for I have suffered many things this day in a dream because of him."
+18 For he knew that for envy they had delivered him.
 
-20. Now the chief priests and the elders persuaded the multitudes to ask for Barabbas, and destroy Jesus.
+19 When he was set down on the judgment seat, his wife sent unto him, saying, Have thou nothing to do with that just man: for I have suffered many things this day in a dream because of him.
 
-21. But the governor answered them, "Which of the two do you want me to release to you?"     They said, "Barabbas!"
+20 But the chief priests and elders persuaded the multitude that they should ask Barabbas, and destroy Jesus.
 
-22. Pilate said to them, "What then shall I do to Jesus, who is called Christ?"     They all said to him, "Let him be crucified!"
+21 The governor answered and said unto them, Whether of the twain will ye that I release unto you? They said, Barabbas.
 
-23. But the governor said, "Why? What evil has he done?"     But they cried out exceedingly, saying, "Let him be crucified!"
+22 Pilate saith unto them, What shall I do then with Jesus which is called Christ? They all say unto him, Let him be crucified.
 
-24. So when Pilate saw that nothing was being gained, but rather that a disturbance was starting, he took water, and washed his hands before the multitude, saying, "I am innocent of the blood of this righteous person. You see to it."
+23 And the governor said, Why, what evil hath he done? But they cried out the more, saying, Let him be crucified.
 
-25. All the people answered, "May his blood be on us, and on our children!"
+24 When Pilate saw that he could prevail nothing, but that rather a tumult was made, he took water, and washed his hands before the multitude, saying, I am innocent of the blood of this just person: see ye to it.
 
-26. Then he released to them Barabbas, but Jesus he flogged and delivered to be crucified.
+25 Then answered all the people, and said, His blood be on us, and on our children.
 
-27. Then the governor's soldiers took Jesus into the Praetorium, and gathered the whole garrison together against him.
+26 Then released he Barabbas unto them: and when he had scourged Jesus, he delivered him to be crucified.
 
-28. They stripped him, and put a scarlet robe on him.
+27 Then the soldiers of the governor took Jesus into the common hall, and gathered unto him the whole band of soldiers.
 
-29. They braided a crown of thorns and put it on his head, and a reed in his right hand; and they kneeled down before him, and mocked him, saying, "Hail, King of the Jews!"
+28 And they stripped him, and put on him a scarlet robe.
 
-30. They spat on him, and took the reed and struck him on the head.
+29 And when they had platted a crown of thorns, they put it upon his head, and a reed in his right hand: and they bowed the knee before him, and mocked him, saying, Hail, King of the Jews!
 
-31. When they had mocked him, they took the robe off of him, and put his clothes on him, and led him away to crucify him.
+30 And they spit upon him, and took the reed, and smote him on the head.
 
-32. As they came out, they found a man of Cyrene, Simon by name, and they compelled him to go with them, that he might carry his cross.
+31 And after that they had mocked him, they took the robe off from him, and put his own raiment on him, and led him away to crucify him.
 
-33. They came to a place called "Golgotha," that is to say, "The place of a skull."
+32 And as they came out, they found a man of Cyrene, Simon by name: him they compelled to bear his cross.
 
-34. They gave him sour wine to drink mixed with gall. When he had tasted it, he would not drink.
+33 And when they were come unto a place called Golgotha, that is to say, a place of a skull,
 
-35. When they had crucified him, they divided his clothing among them, casting lots,[125]
+34 They gave him vinegar to drink mingled with gall: and when he had tasted thereof, he would not drink.
 
-36. and they sat and watched him there.
+35 And they crucified him, and parted his garments, casting lots: that it might be fulfilled which was spoken by the prophet, They parted my garments among them, and upon my vesture did they cast lots.
 
-37. They set up over his head the accusation against him written, "THIS IS JESUS, THE KING OF THE JEWS."
+36 And sitting down they watched him there;
 
-38. Then there were two robbers crucified with him, one on his right hand and one on the left.
+37 And set up over his head his accusation written, This Is Jesus The King Of The Jews.
 
-39. Those who passed by blasphemed him, wagging their heads,
+38 Then were there two thieves crucified with him, one on the right hand, and another on the left.
 
-40. and saying, "You who destroy the temple, and build it in three days, save yourself! If you are the Son of God, come down from the cross!"
+39 And they that passed by reviled him, wagging their heads,
 
-41. Likewise the chief priests also mocking, with the scribes, [126>]the Pharisees,[<126] and the elders, said,
+40 And saying, Thou that destroyest the temple, and buildest it in three days, save thyself. If thou be the Son of God, come down from the cross.
 
-42. "He saved others, but he can't save himself. If he is the King of Israel, let him come down from the cross now, and we will believe in him.
+41 Likewise also the chief priests mocking him, with the scribes and elders, said,
 
-43. He trusts in God. Let God deliver him now, if he wants him; for he said, 'I am the Son of God.'"
+42 He saved others; himself he cannot save. If he be the King of Israel, let him now come down from the cross, and we will believe him.
 
-44. The robbers also who were crucified with him cast on him the same reproach.
+43 He trusted in God; let him deliver him now, if he will have him: for he said, I am the Son of God.
 
-45. Now from the [127>]sixth hour[<127] there was darkness over all the land until the [128>]ninth hour.[<128]
+44 The thieves also, which were crucified with him, cast the same in his teeth.
 
-46. About the ninth hour Jesus cried with a loud voice, saying, "Eli, Eli, [129>]lima[<129] sabachthani?" That is, "My God, my God, why have you forsaken me?"[130]
+45 Now from the sixth hour there was darkness over all the land unto the ninth hour.
 
-47. Some of them who stood there, when they heard it, said, "This man is calling Elijah."
+46 And about the ninth hour Jesus cried with a loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my God, why hast thou forsaken me?
 
-48. Immediately one of them ran, and took a sponge, and filled it with vinegar, and put it on a reed, and gave him a drink.
+47 Some of them that stood there, when they heard that, said, This man calleth for Elias.
 
-49. The rest said, "Let him be. Let's see whether Elijah comes to save him."
+48 And straightway one of them ran, and took a spunge, and filled it with vinegar, and put it on a reed, and gave him to drink.
 
-50. Jesus cried again with a loud voice, and yielded up his spirit.
+49 The rest said, Let be, let us see whether Elias will come to save him.
 
-51. Behold, the veil of the temple was torn in two from the top to the bottom. The earth quaked and the rocks were split.
+50 Jesus, when he had cried again with a loud voice, yielded up the ghost.
 
-52. The tombs were opened, and many bodies of the saints who had fallen asleep were raised;
+51 And, behold, the veil of the temple was rent in twain from the top to the bottom; and the earth did quake, and the rocks rent;
 
-53. and coming out of the tombs after his resurrection, they entered into the holy city and appeared to many.
+52 And the graves were opened; and many bodies of the saints which slept arose,
 
-54. Now the centurion, and those who were with him watching Jesus, when they saw the earthquake, and the things that were done, feared exceedingly, saying, "Truly this was the Son of God."
+53 And came out of the graves after his resurrection, and went into the holy city, and appeared unto many.
 
-55. Many women were there watching from afar, who had followed Jesus from Galilee, serving him.
+54 Now when the centurion, and they that were with him, watching Jesus, saw the earthquake, and those things that were done, they feared greatly, saying, Truly this was the Son of God.
 
-56. Among them were Mary Magdalene, Mary the mother of James and Joses, and the mother of the sons of Zebedee.
+55 And many women were there beholding afar off, which followed Jesus from Galilee, ministering unto him:
 
-57. When evening had come, a rich man from Arimathaea, named Joseph, who himself was also Jesus' disciple came.
+56 Among which was Mary Magdalene, and Mary the mother of James and Joses, and the mother of Zebedees children.
 
-58. This man went to Pilate, and asked for Jesus' body. Then Pilate commanded the body to be given up.
+57 When the even was come, there came a rich man of Arimathaea, named Joseph, who also himself was Jesus' disciple:
 
-59. Joseph took the body, and wrapped it in a clean linen cloth,
+58 He went to Pilate, and begged the body of Jesus. Then Pilate commanded the body to be delivered.
 
-60. and laid it in his own new tomb, which he had cut out in the rock, and he rolled a great stone to the door of the tomb, and departed.
+59 And when Joseph had taken the body, he wrapped it in a clean linen cloth,
 
-61. Mary Magdalene was there, and the other Mary, sitting opposite the tomb.
+60 And laid it in his own new tomb, which he had hewn out in the rock: and he rolled a great stone to the door of the sepulchre, and departed.
 
-62. Now on the next day, which was the day after the Preparation Day, the chief priests and the Pharisees were gathered together to Pilate,
+61 And there was Mary Magdalene, and the other Mary, sitting over against the sepulchre.
 
-63. saying, "Sir, we remember what that deceiver said while he was still alive: 'After three days I will rise again.'
+62 Now the next day, that followed the day of the preparation, the chief priests and Pharisees came together unto Pilate,
 
-64. Command therefore that the tomb be made secure until the third day, lest perhaps his disciples come at night and steal him away, and tell the people, 'He is risen from the dead;' and the last deception will be worse than the first."
+63 Saying, Sir, we remember that that deceiver said, while he was yet alive, After three days I will rise again.
 
-65. Pilate said to them, "You have a guard. Go, make it as secure as you can."
+64 Command therefore that the sepulchre be made sure until the third day, lest his disciples come by night, and steal him away, and say unto the people, He is risen from the dead: so the last error shall be worse than the first.
 
-66. So they went with the guard and made the tomb secure, sealing the stone.
+65 Pilate said unto them, Ye have a watch: go your way, make it as sure as ye can.
 
+66 So they went, and made the sepulchre sure, sealing the stone, and setting a watch.
 
-## Chapter 28
 
-1. Now after the Sabbath, as it began to dawn on the first day of the week, Mary Magdalene and the other Mary came to see the tomb.
+## Matthew Chapter 28
 
-2. Behold, there was a great earthquake, for an angel of the Lord descended from the sky, and came and rolled away the stone from the door, and sat on it.
+1 In the end of the sabbath, as it began to dawn toward the first day of the week, came Mary Magdalene and the other Mary to see the sepulchre.
 
-3. His appearance was like lightning, and his clothing white as snow.
+2 And, behold, there was a great earthquake: for the angel of the Lord descended from heaven, and came and rolled back the stone from the door, and sat upon it.
 
-4. For fear of him, the guards shook, and became like dead men.
+3 His countenance was like lightning, and his raiment white as snow:
 
-5. The angel answered the women, "Don't be afraid, for I know that you seek Jesus, who has been crucified.
+4 And for fear of him the keepers did shake, and became as dead men.
 
-6. He is not here, for he has risen, just like he said. Come, see the place where the Lord was lying.
+5 And the angel answered and said unto the women, Fear not ye: for I know that ye seek Jesus, which was crucified.
 
-7. Go quickly and tell his disciples, 'He has risen from the dead, and behold, he goes before you into Galilee; there you will see him.' Behold, I have told you."
+6 He is not here: for he is risen, as he said. Come, see the place where the Lord lay.
 
-8. They departed quickly from the tomb with fear and great joy, and ran to bring his disciples word.
+7 And go quickly, and tell his disciples that he is risen from the dead; and, behold, he goeth before you into Galilee; there shall ye see him: lo, I have told you.
 
-9. As they went to tell his disciples, behold, Jesus met them, saying, "Rejoice!"     They came and took hold of his feet, and worshiped him.
+8 And they departed quickly from the sepulchre with fear and great joy; and did run to bring his disciples word.
 
-10. Then Jesus said to them, "Don't be afraid. Go tell my [131>]brothers[<131] that they should go into Galilee, and there they will see me."
+9 And as they went to tell his disciples, behold, Jesus met them, saying, All hail. And they came and held him by the feet, and worshipped him.
 
-11. Now while they were going, behold, some of the guards came into the city, and told the chief priests all the things that had happened.
+10 Then said Jesus unto them, Be not afraid: go tell my brethren that they go into Galilee, and there shall they see me.
 
-12. When they were assembled with the elders, and had taken counsel, they gave a large amount of silver to the soldiers,
+11 Now when they were going, behold, some of the watch came into the city, and shewed unto the chief priests all the things that were done.
 
-13. saying, "Say that his disciples came by night, and stole him away while we slept.
+12 And when they were assembled with the elders, and had taken counsel, they gave large money unto the soldiers,
 
-14. If this comes to the governor's ears, we will persuade him and make you free of worry."
+13 Saying, Say ye, His disciples came by night, and stole him away while we slept.
 
-15. So they took the money and did as they were told. This saying was spread abroad among the Jews, and continues until this day.
+14 And if this come to the governor's ears, we will persuade him, and secure you.
 
-16. But the eleven disciples went into Galilee, to the mountain where Jesus had sent them.
+15 So they took the money, and did as they were taught: and this saying is commonly reported among the Jews until this day.
 
-17. When they saw him, they bowed down to him, but some doubted.
+16 Then the eleven disciples went away into Galilee, into a mountain where Jesus had appointed them.
 
-18. Jesus came to them and spoke to them, saying, "All authority has been given to me in heaven and on earth.
+17 And when they saw him, they worshipped him: but some doubted.
 
-19. Go,TR and NU add "therefore" and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit,
+18 And Jesus came and spake unto them, saying, All power is given unto me in heaven and in earth.
 
-20. teaching them to observe all things that I commanded you. Behold, I am with you always, even to the end of the age." Amen.
+19 Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost:
 
+20 Teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you always, even unto the end of the world. Amen.
+
+
+## eof
