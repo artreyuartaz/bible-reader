@@ -124,7 +124,7 @@ desktop.bat       Launches the desktop app
 
 ### Source file formats
 
-- **Bible books** (`Bible_Books/NN_Name.md`): `# Book`, then `## Chapter N`, then one paragraph per verse written as `N. text`. Books are numbered in the standard order, so ids 0–38 are the Old Testament and 39–65 the New Testament.
+- **Bible books** (`Bible_Books/NN_Name.md`): `# Book`, then a `## Book Chapter N` heading per chapter, then one paragraph per verse written as `N text` (`N. text` also works). An optional trailing `## eof` marker is ignored. Books are numbered in the standard order, so ids 0–38 are the Old Testament and 39–65 the New Testament.
 - **Dictionary** (`Dictionary/A.md` …): a `# A` heading, then each entry as `## Name` followed by its definition. An entry goes in the file for the first letter of its name.
 
 You can replace the Bible text or dictionary with your own, as long as you keep these formats. Restart the server after editing the source files.
